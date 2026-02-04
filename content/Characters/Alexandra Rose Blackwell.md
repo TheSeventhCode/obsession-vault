@@ -36,7 +36,6 @@ At the start of the story, [[Alexandra Rose Blackwell|Alexandra]] has only under
 Over the years, [[Alexandra Rose Blackwell|Alexandra]] has gone through various surgeries and extreme [[Figure Enhancements|plastic surgeries]], all performed by Luna to achieve the perfect body and figure she actually wants before transforming into a Bane. She has completed the extreme [[Figure Enhancements|plastic surgeries]], trained to effortlessly walk on her extreme [[Ballet Feet|en-pointe feet]] and has completed her brutal [[Rib Removal|waist reduction]] training.
 
 At the beginning of the story, [[Alexandra Rose Blackwell|Alexandra]] has already completed all the surgeries for [[Figure Enhancements|breast implants]], [[Figure Enhancements|plastic surgery]], [[Ballet Feet|en-pointe feet]] and her [[rib removal]] and [[Rib Removal|waist training]] to achieve her absurd hourglass figure.
-
 ## Personality
 [[Alexandra Rose Blackwell|Alexandra]] has two distinct personalities depending on whom she interacts with: either with [[Lumina]] or with anyone else.
 ### Outward-Facing
@@ -54,3 +53,5 @@ When anxious, [[Alexandra Rose Blackwell|Alexandra]] spirals into pleas, apologi
 
 ---
 Early on, [[Alexandra Rose Blackwell|Alexandra]] remains very confident and goal-oriented, even with [[Lumina]]. She is very comfortable with [[Lumina]], though slowly becoming shy and submissive. Her submission to and dependence on [[Lumina]] grows, until [[Alexandra Rose Blackwell|Alexandra]]'s inner devotion is absolute and deeply rooted in the very core of her being.
+
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Alexandra%20Extreme/public)

@@ -1,0 +1,1 @@
+The large circular driveway of [[Alexandra's mansion]] works like a little roundabout, with a long road coming from the gate. The centre of the driveway has some beautiful marble decorations.

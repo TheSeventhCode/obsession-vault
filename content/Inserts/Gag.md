@@ -1,0 +1,21 @@
+---
+aliases:
+  - Throat Dildo
+---
+With [[Alexandra Blackwell|Alexandra]] completely transformed into a Bane, sealed airtight, she has no need for her voice, throat, or mouth.
+
+### Structure and Features
+
+To handle this, a huge and very long special kind of gag is inserted into [[Alexandra Blackwell|Alexandra]]'s mouth and throat. In the shape of a giant phallus, the rubber gag reaches from her mouth all the way down into [[Alexandra Blackwell|Alexandra]]'s stomach, where it's ending connects with the [[supply connection]], coming from her intestines. This connection permanently locks the two objects in position, allowing neither to be pulled out and removed any more.
+
+The part inside [[Alexandra Blackwell|Alexandra]]'s mouth has a slot on the underside, into which [[Alexandra Blackwell|Alexandra]]'s tongue is placed. The entire section is then inflated more with the same [[biocompatible polymer]], like with her [[ear removal]] or [[anal plug]], inflating the section heavily, until [[Alexandra Blackwell|Alexandra]]'s cheeks start to bulge, and even the tiniest gap in her mouth is filled. Eventually, it also dissolves the balloon containing the polymer, and it begins to grow together with the surrounding tissue, becoming one with [[Alexandra Blackwell|Alexandra]]'s mouth and tongue. Later on, it even dissolves [[Alexandra Blackwell|Alexandra]]'s teeth, fully integrating with her gums and dental roots. This melding results in a complete immobilization of her jaw and finalizes the permanent binding of the gag into her oral structure.
+
+After the inflation of the gag, [[Alexandra Blackwell|Alexandra]]'s lips and entire mouth opening are surgically removed and sewn together, resulting in just smooth skin, where her mouth once had been.
+
+The entire gag can vibrate, gyrate, shock, or even thrust inside [[Alexandra Blackwell|Alexandra]]'s mouth, throat, and stomach, all fully controlled by [[Lumina]], allowing for full stimulation of [[Alexandra Blackwell|Alexandra]]'s mouth, throat, and stomach.
+
+---
+
+### Nanobot Conversion
+
+Later on, when [[Lumina]] begins injecting [[nanobots]] into [[Alexandra Blackwell|Alexandra]], this entire gag is restructured and repurposed, to become a factory for more [[nanobots]], endlessly multiplying and spreading throughout [[Alexandra Blackwell|Alexandra]]'s entire body. [[Alexandra Blackwell|Alexandra]]'s entire mouth and throat become this factory, almost similar to bone-marrow producing cells (_emphasize this comparison, to drive home the eventual symbiosis and full replacement by the [[nanobots]])_.

@@ -1,0 +1,9 @@
+---
+aliases:
+  - Catwoman costume
+---
+Like with other cosplays, the Catwoman costume is a perfect costume created by [[Lumina]] for [[Alexandra Blackwell|Alexandra]] to become Catwoman.
+
+Requiring an actual human appearance under the iconic catsuit, [[Alexandra Blackwell|Alexandra]] must first be fully encased in the [[Alexandra's Disguise|Skinsuit]] disguise, over which she then wears the actual Catwoman costume. It's specifically made to fit with [[Alexandra Blackwell|Alexandra]]'s [[Figure Enhancements|extreme proportions]]. The catsuit is in fact one single piece of clothing, the only openings being the area around the mouth, eye holes, and a connection point between the legs for the [[maintenance port]], so that [[Alexandra Blackwell|Alexandra]] can also go through a full [[Maintenance Process|maintenance cycle]] without having to remove anything. This means to put on the catsuit, the mouth area has to be stretched wide open and [[Alexandra Blackwell|Alexandra]] has to climb into the suit. This area is also specifically made to actually contract enough so that it cannot be stretched open again, trapping [[Alexandra Blackwell|Alexandra]] inside the costume, until this area is opened up again by [[Lumina]].
+
+There are also various gadgets and iconic items [[Lumina]] and [[Alexandra Blackwell|Alexandra]] have created that belong to Catwoman. Finally, like with other cosplays, [[Lumina]] engages a slightly altered version of [[Alexandra Blackwell|Alexandra]]'s personality and character, making mental changes for [[Alexandra Blackwell|Alexandra]] to become the ultimate fetish Catwoman.

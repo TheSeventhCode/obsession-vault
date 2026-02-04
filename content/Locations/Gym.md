@@ -1,0 +1,1 @@
+The gym is a larger private room inside [[Alexandra's mansion]]. Before her entire transformation, she had set it up as a personal exercise room, with different tools and equipment to exercise. Having still quite the admiration for ballet, two walls of the room are complete mirrors, one wall even featuring the support bars, common for ballet.

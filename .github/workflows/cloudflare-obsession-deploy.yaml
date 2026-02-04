@@ -1,0 +1,38 @@
+name: Deploy Quartz to Cloudflare Pages
+
+on:
+  push:
+    branches:
+      - v4 # Or 'main', depending on your default branch name
+
+jobs:
+  deploy:
+    runs-on: ubuntu-latest
+    name: Build and Deploy
+    permissions:
+      contents: read
+      deployments: write
+
+    steps:
+      - name: Checkout
+        uses: actions/checkout@v4
+        with:
+          fetch-depth: 0 # Fetch all history for git info (created/modified dates)
+
+      - uses: oven-sh/setup-bun@v2
+        with:
+            bun-version: latest
+
+      - name: Install Dependencies
+        run: bun install && bun install wrangler
+
+      - name: Build Quartz
+        run: bun quartz build
+
+      - name: Deploy to Cloudflare Pages
+        uses: cloudflare/wrangler-action@v3
+        with:
+          apiToken: ${{ secrets.CLOUDFLARE_API_TOKEN }}
+          accountId: ${{ secrets.CLOUDFLARE_ACCOUNT_ID }}
+          # The 'public' directory is the default build output for Quartz v4
+          command: pages deploy public --project-name=obsession-vault --branch=main

@@ -1,4 +1,5 @@
 import { QuartzConfig } from "./quartz/cfg"
+import { ImageAndTitle } from "./quartz/components/scripts/custom-og"
 import * as Plugin from "./quartz/plugins"
 
 /**
@@ -89,6 +90,7 @@ const config: QuartzConfig = {
       // Comment out CustomOgImages to speed up build time
       Plugin.CustomOgImages({
         colorScheme: "darkMode",
+        imageStructure: ImageAndTitle
       }),
     ],
   },

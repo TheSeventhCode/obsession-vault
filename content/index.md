@@ -1,4 +1,7 @@
-# Obsession and Servitude – World Compendium
+---
+title: Obsession and Servitude
+---
+# Obsession and Servitude – Compendium
 
 This is the central reference hub for _Obsession and Servitude_, a story inspired in part by the Bane concept from Evil‑Dolly’s _Eudeamon_—but expanded, re‑engineered, and pushed into a very different direction.
 

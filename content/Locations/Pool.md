@@ -1,3 +1,0 @@
-Inside [[Alexandra's mansion]], there is an integrated [[pool]], which also has a connection to the larger outside portion of the [[pool]] where one can seamlessly swim / dive from one part to the other, without having to leave the water. The outside section is almost the size of an Olympic swimming [[pool]].
-
-On the indoor side of the [[pool]], there's the [[pool maintenance station]] built into the floor. The valve and opening are integrated into the floor very smoothly, appearing almost invisible and only activating on [[Lumina]]'s command.

@@ -6,10 +6,16 @@ aliases:
   - Artificial Muscles
   - Synthetic Muscles
 ---
-To provide [[Alexandra Blackwell|Alexandra]] with substantially more strength and control once she's fully transformed into a Bane, a network of artificial muscle fibres is placed over a large majority of her body, over the [[armour]] layer. These artificial fibres are fully controlled by [[Lumina]], but when under [[Alexandra Blackwell|Alexandra]]'s control, allow her to achieve far greater strength than a normal human could.
+With [[Alexandra Blackwell|Alexandra]]'s encasement and resulting restrictions, [[Lumina]] and her have come up with a way to give [[Alexandra Blackwell|Alexandra]] her strength back, and going even far beyond that. To provide [[Alexandra Blackwell|Alexandra]] with substantially more power and control once she's fully transformed into a Bane, a network of [[Enhancement Layer|artificial muscle fibres]] is placed over basically her entire body, on top of the [[Armour|armour layer]].
+## Function
+These artificial fibres are fully controlled by [[Lumina]], but when under [[Alexandra Blackwell|Alexandra]]'s control, allow her to achieve far greater strength than a normal human could.
 
-Only activated when really needed, this layer of extremely dense and compressed artificial muscle fibres would allow [[Alexandra Blackwell|Alexandra]] to lift a small car, while still only standing on her needle like [[Ballet Feet|en-pointe feet]].
+Only activated when really needed, this layer of extremely dense and compressed [[Enhancement Layer|artificial muscle fibres]] give [[Alexandra Blackwell|Alexandra]] enough power to lift a small car, while still only standing on her needle like [[Ballet Feet|en-pointe feet]].
 
-The muscle fibres are connected to the [[armour]] layer underneath it and after application, this layer is again covered by the same black latex solution.
+The muscle fibres are connected to the [[armour]] layer underneath it, relying on the superior force distribution of the [[armour]] to stabilize and support any exertion of fibres immense power. After application, this layer is again covered by the same black latex solution.
 
-These artificial muscles eventually become so natural to [[Alexandra Blackwell|Alexandra]], that they've just become of her muscular system, her mind making no difference between the two.
+These [[Enhancement Layer|artificial muscles]] eventually become so natural to [[Alexandra Blackwell|Alexandra]], that they've just become of her muscular system, her mind making no difference between the two.
+## Physical Appearance
+Although fully encased in more layers, hidden underneath, and integrated into [[Alexandra Blackwell|Alexandra]] new latex skin, when these [[Enhancement Layer|artificial muscles]] are used, they flex enough so that their contours reappear on [[Alexandra Blackwell|Alexandra]]'s shiny latex skin.
+
+When activated, [[Alexandra Blackwell|Alexandra]]'s entire Bane body suddenly appears far more lean, showing muscle lines throughout her limbs and torso, resulting in an even more striking look when combined with her absurd figure.

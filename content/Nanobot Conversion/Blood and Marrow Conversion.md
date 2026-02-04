@@ -2,6 +2,9 @@
 aliases:
   - artificial blood
 ---
+With the goal of the [[Nanobots|Nanobot conversion]] being in replacing any remaining human biology within [[Alexandra Blackwell|Alexandra]], her blood and nutrient distribution has to be handled as well.
+
+## Function
 Once [[Alexandra Blackwell|Alexandra]]'s skeletal structure is largely converted, the [[nanobots]] turn to [[Alexandra Blackwell|Alexandra]]'s bone marrow and bloodstream. They systematically replace her marrow with synthetic production centres that generate a golden fluid, mimicking [[Lumina]]'s divinity, instead of blood cells. This fluid—composed of advanced oxygen carries, nanite clusters, and synthetic nutrients—gradually displaces her natural blood, eventually leaving not a single biological blood cell left in [[Alexandra Blackwell|Alexandra]]'s body.
 
 This new fluid carries oxygen more efficiently than human blood, regulates body temperature with precision, and delivers microscopic maintenance bots to any area in [[Alexandra Blackwell|Alexandra]]'s body requiring attention.

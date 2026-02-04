@@ -1,6 +1,6 @@
 ## Fantasies and Preparations
 
-### Chapter 1: An Obsession
+### Introduction
 
 The office light caught the sheen of my blouse wrong. Too bright. Too reflective.
 

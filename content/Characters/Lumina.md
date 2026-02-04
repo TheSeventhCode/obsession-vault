@@ -70,6 +70,6 @@ If [[Alexandra Blackwell|Alexandra]] is spiralling, [[Lumina]] becomes calm, off
 
 Her flexibility is not random, even if it might seem so to [[Alexandra Blackwell|Alexandra]]. It is intentional mastery, tailored to nurture [[Alexandra Blackwell|Alexandra]], challenge her, break her, rebuild her, or elevate her. [[Lumina]]'s voice and presence is the architecture of [[Alexandra Blackwell|Alexandra]]'s world.
 
-![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Lumina-clothed-v0.1/huge)
-![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Lumina-v0.1/huge)
-![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Lumina-Garden/huge)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Lumina-clothed-v0.1/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Lumina-v0.1/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Lumina-Garden/public)

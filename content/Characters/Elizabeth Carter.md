@@ -35,4 +35,5 @@ Her dominance is intuitive and personal, not structured or ritualised like [[Lum
 ---
 [[Elizabeth Carter|Elizabeth]] is expressive, sometimes vulnerable, and more easily flustered than she pretends. She blushes occasionally, stumbles over words when caught off guard, and tries to cover it with humour. She genuinely cares and tries not to overstep, even when she's tempted. 
 
-![](https://zipline.theseventhcode.tech/u/0WYJry.png)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Elizabeth/huge)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Elizabeth_naked/huge)

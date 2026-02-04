@@ -10,9 +10,9 @@ With [[Alexandra Blackwell|Alexandra]]'s encasement and resulting restrictions, 
 ## Function
 These artificial fibres are fully controlled by [[Lumina]], but when under [[Alexandra Blackwell|Alexandra]]'s control, allow her to achieve far greater strength than a normal human could.
 
-Only activated when really needed, this layer of extremely dense and compressed [[Enhancement Layer|artificial muscle fibres]] give [[Alexandra Blackwell|Alexandra]] enough power to lift a small car, while still only standing on her needle like [[Ballet Feet|en-pointe feet]].
+Only activated when really needed, this layer of extremely dense and compressed [[Enhancement Layer|artificial muscle fibres]] gives [[Alexandra Blackwell|Alexandra]] enough power to lift a small car, while still balancing on her two pinpoint contacts no larger than her fingertips. The muscle system also provides constant low-level stabilization, ensuring she can stand and move despite the radical deconstruction of her feet.
 
-The muscle fibres are connected to the [[armour]] layer underneath it, relying on the superior force distribution of the [[armour]] to stabilize and support any exertion of fibres immense power. After application, this layer is again covered by the same black latex solution.
+The muscle fibres are connected to the [[Armour|armour layer]] underneath it, relying on the superior force distribution of the [[armour]] to stabilize and support any exertion of fibres immense power. After application, this layer is again covered by the same black latex solution.
 
 These [[Enhancement Layer|artificial muscles]] eventually become so natural to [[Alexandra Blackwell|Alexandra]], that they've just become of her muscular system, her mind making no difference between the two.
 ## Physical Appearance

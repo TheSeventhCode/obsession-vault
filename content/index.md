@@ -9,11 +9,11 @@ If you’re familiar with the original Bane idea, you’ll recognise a few found
 Everything in this universe builds on those themes but develops its own systems, technology, and emotional core, and goes way too far in certain areas.
 
 Here you'll find:
-- The full cast, including [[Alexandra Blackwell|Alexandra]], [[Lumina]], [[Elizabeth Carter|Elizabeth]], and the later forms and personalities that emerge.
-- The complete suite of surgeries, devices, implants, and encasement layers that make up [[Alexandra Blackwell|Alexandra]]’s transformation.
+- The full cast, including [[Alexandra Rose Blackwell|Alexandra]], [[Lumina]], [[Elizabeth Carter|Elizabeth]], and the later forms and personalities that emerge.
+- The complete suite of surgeries, devices, implants, and encasement layers that make up [[Alexandra Rose Blackwell|Alexandra]]’s transformation.
 - Technical descriptions of the Bane systems, maintenance processes, neural interfaces, and synthetic biology.
 - All the outfits, shells, disguises, and behavioural overlays used throughout the story.
-- In‑world locations, vehicles, tools, and the closed ecosystem [[Alexandra Blackwell|Alexandra]] and [[Lumina]] construct together.
+- In‑world locations, vehicles, tools, and the closed ecosystem [[Alexandra Rose Blackwell|Alexandra]] and [[Lumina]] construct together.
 - Notes on the psychological, relational, and extreme fetish elements that drive the story’s themes.
 
 Nothing here is a plot summary. It’s simply a clean, organised archive of the world’s components—technology, characters, aesthetics, and concepts.

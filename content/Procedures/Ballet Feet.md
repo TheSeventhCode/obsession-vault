@@ -5,11 +5,11 @@ aliases:
   - vertical feet
   - heel removal
 ---
-Due to [[Alexandra Blackwell|Alexandra]]'s heavy ballet practice in her childhood and teens, and her continued admiration for the discipline, look, movement, and posture of a ballerina, [[Alexandra Blackwell|Alexandra]] had her tendons surgically shortened by [[Lumina]] to modify her feet into a permanently fixed on-point position. However, this is only the first stage.
+Due to [[Alexandra Rose Blackwell|Alexandra]]'s heavy ballet practice in her childhood and teens, and her continued admiration for the discipline, look, movement, and posture of a ballerina, [[Alexandra Rose Blackwell|Alexandra]] had her tendons surgically shortened by [[Lumina]] to modify her feet into a permanently fixed on-point position. However, this is only the first stage.
 
-After living with the short attendants and experiencing the aesthetic she craved, right before her actual Bane transformation, [[Alexandra Blackwell|Alexandra]] undergoes much more extreme reconstructions. What follows is a complete surgical deconstruction and rebuilding of her feet.
+After living with the short attendants and experiencing the aesthetic she craved, right before her actual Bane transformation, [[Alexandra Rose Blackwell|Alexandra]] undergoes much more extreme reconstructions. What follows is a complete surgical deconstruction and rebuilding of her feet.
 ## Physical Appearance
-The final surgery involves the removal of approximately 80–90% of [[Alexandra Blackwell|Alexandra]]'s original foot structure. Her heels are entirely excised. The majority of her metatarsals, all phalanges except structural anchors, and significant portions of her tarsal bones are removed or drastically reshaped. The remaining bone is fused, reinforced with embedded titanium support rods, and sculpted into smooth, tapering cones.
+The final surgery involves the removal of approximately 80–90% of [[Alexandra Rose Blackwell|Alexandra]]'s original foot structure. Her heels are entirely excised. The majority of her metatarsals, all phalanges except structural anchors, and significant portions of her tarsal bones are removed or drastically reshaped. The remaining bone is fused, reinforced with embedded titanium support rods, and sculpted into smooth, tapering cones.
 
 What remains is no longer recognisable as feet. From mid-calf downward, her legs taper into perfectly straight, needle-like extensions—smooth, rigid, and utterly inhuman. There is no ankle joint, no arch, no toes. The structure is a single continuous cone that narrows to an extremely fine point.
 

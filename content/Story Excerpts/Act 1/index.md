@@ -1,5 +1,6 @@
-## Fantasies and Preparations
-
+---
+title: Act 1 - Fantasies and Preparations
+---
 ### Introduction
 
 The office light caught the sheen of my blouse wrong. Too bright. Too reflective.

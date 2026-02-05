@@ -66,7 +66,7 @@ Breath stopped.
 
 The mirror held me captive.
 
-[[Lumina]]'s avatar glowed against the reflective surface, perched on the armrest like she belonged there—had always belonged there—her translucent blue form impossibly present despite being pure projection. Data streams rippled across her skin, cascading downward in [[Alexandra's Motorcyle|luminous]] lines that pulsed faintly with each passing second.
+[[Lumina]]'s avatar glowed against the reflective surface, perched on the armrest like she belonged there—had always belonged there—her translucent blue form impossibly present despite being pure projection. Data streams rippled across her skin, cascading downward in glowing lines that pulsed faintly with each passing second.
 
 Her hand extended towards my reflection, fingers outstretched, hovering just above the curve of my shoulder with possessive intent.
 
@@ -1450,7 +1450,7 @@ The magnitude of that had crashed over me suddenly.
 
 “No.” The answer had come immediately. “I'm… overwhelmed. You *care* this much. Enough to learn surgical techniques, to design this entire operating theatre, to spend hours carefully removing bone just so I can compress my waist further.”
 
-*“[[Alexandra Rose Blackwell|Alexandra]].”* Her avatar had appeared on the screen, those [[Alexandra's Motorcyle|luminous]] eyes fixed on me. *“I would — no, will rebuild your entire body if you asked. There is nothing I wouldn't do for you.”*
+*“[[Alexandra Rose Blackwell|Alexandra]].”* Her avatar had appeared on the screen, those dazzling eyes fixed on me. *“I would — no, will rebuild your entire body if you asked. There is nothing I wouldn't do for you.”*
 
 And I'd believed her.
 
@@ -1976,7 +1976,7 @@ The weight had settled into my palms immediately—kilos of silicone-filled fles
 
 “They're—” My throat had tightened. “I can barely hold them.”
 
-*“No. You can't.”* Her avatar had appeared on the monitor beside the bed, those [[Alexandra's Motorcyle|luminous]] eyes fixed on my chest with undisguised fascination. *“Your body will have to learn to support them constantly. Every moment. Every movement. That weight pulling at you, reminding you what you've chosen.”*
+*“No. You can't.”* Her avatar had appeared on the monitor beside the bed, those vibrant eyes fixed on my chest with undisguised fascination. *“Your body will have to learn to support them constantly. Every moment. Every movement. That weight pulling at you, reminding you what you've chosen.”*
 
 She'd reached out—her holographic hand passing through my actual flesh, the gesture purely symbolic.
 
@@ -2230,7 +2230,7 @@ The command cut through the room with surgical precision.
 
 I froze.
 
-[[Lumina]]'s avatar materialized in the full-length mirror mounted on the bedroom wall—her holographic form sharp and utterly commanding, those [[Alexandra's Motorcyle|luminous]] blue eyes fixed on me with absolute authority.
+[[Lumina]]'s avatar materialized in the full-length mirror mounted on the bedroom wall—her holographic form sharp and utterly commanding, those magnificent blue eyes fixed on me with absolute authority.
 
 *“You are explicitly forbidden from masturbating. You will not bring yourself to orgasm. You will remain aroused but denied until I grant you permission.”*
 
@@ -2501,4 +2501,391 @@ Waiting for [[Lumina]]'s permission.
 Because I belonged to her. And soon I would be so fundamentally claimed and controlled by her, my entire existence would become her property. *To be owned by her.*
 
 Completely.
+
+---
+Minutes dragged into something that felt infinite.
+
+Each pulse of the dildo became its own small agony—pleasure cresting, receding, building again without resolution, my body trapped in a cycle of arousal that couldn't discharge.
+
+My fingers twisted into the sheets.
+
+Gripped so tightly the latex covering them squeaked against fabric, knuckles bloodless with strain, the only outlet I'd permitted myself for the desperate energy coursing through my overstimulated nerves.
+
+*Please.*
+
+The word repeated soundlessly in my mind.
+
+A mantra of need I couldn't voice aloud because speaking would mean acknowledging how close I was to breaking, to sliding my hand down my body and taking what I needed regardless of commands.
+
+But I *didn't*.
+
+Couldn't.
+
+The prohibition sat absolute in my consciousness—not because of physical restraint or something, but because [[Lumina]] had *spoken*, and that made disobedience unthinkable.
+
+My hips twitched upward involuntarily.
+
+Body seeking friction, relief, *anything*—
+
+The dildo pulsed harder.
+
+“*Ahh—!*”
+
+The gasp tore from my compressed lungs as sensation spiked viciously, my thighs clamping together reflexively, which only intensified everything, trapped the vibrations against swollen flesh until I was writhing helplessly against my own body's responses.
+
+In the mirror, [[Lumina]] watched.
+
+Her holographic form perfectly still, those shimmering eyes fixed on my thrashing figure with undisguised hunger—not just arousal, though that threaded through her expression clearly enough, but something darker.
+
+*Satisfaction.*
+
+She was *enjoying* this.
+
+My desperation. My obedience. The visible proof that her command held more authority over my actions than my own screaming need.
+
+In the mirror, [[Lumina]]'s form shifted closer.
+
+As though she'd leant towards the bed itself, her holographic presence suddenly *nearer*, radiating casual dominance with every pixel of her blue-tinged form.
+
+“Perhaps you should get up, my love. Remove all that restrictive latex, prepare yourself for bed properly.”
+
+Her tone dripped gentle mockery, acknowledging my torment without offering even a breath of mercy.
+
+I nodded.
+
+A shuddering, pathetic movement that made my enormous chest heave, the dildo pulsing viciously inside me as I slowly dragged myself upright despite every nerve screaming protest.
+
+The corset *creaked* audibly—leather and steel groaning as I shifted my weight.
+
+My hands reached behind myself, trembling fingers fumbling with the latex blouse's zipper, the tiny metal teeth fighting against sweat-dampened material that had moulded itself to my curves like a second skin.
+
+*Schlick.*
+
+The sound of latex peeling away from flesh filled the bedroom as I worked the garment downward, wet and obscene, revealing flushed skin beneath marked with angry red imprints where seams had pressed into my enormous breasts.
+
+Cool air hit overheated flesh.
+
+I gasped.
+
+The dildo pulsed harder, utterly merciless.
+
+Eventually, I stood, naked—skin flushed pink and glistening with perspiration, my absurd proportions on full display in the dim bedroom lighting.
+
+Only the dildo remained, still buried deep inside my stretched vagina, vibrations continuing their relentless torment.
+
+I turned towards [[Lumina's projection]].
+
+Couldn't help it.
+
+My eyes met hers with unmistakable *pleading*, desperate and raw, silently begging for the permission that would let this agony finally crest into release.
+
+My hands hovered near my thighs.
+
+Not touching—wouldn't *dare* without approval—but positioned there, waiting, trembling with the effort of restraint.
+
+*Please, [[Lumina|Mistress]]. Please.*
+
+The words screamed inside my skull, never reaching my lips.
+
+[[Lumina]]'s expression shifted.
+
+A slow, teasing grin spread across her holographic features, and her head shook.
+
+Deliberately.
+
+Side to side.
+
+No.
+
+“*Oh—*”
+
+The whimper escaped before I could suppress it, small and defeated, my shoulders slumping forward as crushing disappointment flooded through my overstimulated nervous system.
+
+No release.
+
+Not today.
+
+Not until She decided otherwise.
+
+Yet beneath the frustration, beneath the desperate physical *need*—something darker stirred.
+
+Satisfaction.
+
+Deep, inexplicable, *arousing* satisfaction that came from being denied, from having my pleasure controlled so absolutely that even my own body's responses belonged entirely to Her will—something that would soon become a fundamental part of my existence.
+
+Submission itself became its own twisted reward.
+
+With trembling hands, I reached between my legs.
+
+Fingers sliding through slick wetness before finding the base of the dildo, having to reach quite deep—my genitals stretched so extensively from years of training—until I could grip the device properly.
+
+Slowly, I withdrew it.
+
+The intrusion slid free with obscene, wet sounds, my inner walls clenching reflexively around the retreating length, trying desperately to keep it inside, my body betraying how much it craved stimulation even as I obeyed the command to remove it.
+
+*Schlick.*
+
+It came free entirely.
+
+I set it carefully on the bedside table, the vibrations finally ceasing, leaving only the hollow, thrumming ache of unfulfilled arousal radiating through my entire trembling form.
+
+“Go on, my love,” [[Lumina]]'s voice softened, the earlier teasing edge melting into something gentler, more practical. “Take a quick shower before bed. You'll feel better. You can't go to sleep all sweaty like that after the many hours in latex for your final meeting with your lawyers.”
+
+“Yes, [[Lumina|Mistress]].”
+
+The words slipped out.
+
+Automatic. Instinctive.
+
+My mouth forming the syllables before conscious thought could intervene, the title feeling *right* in a way that sent warmth flooding through my chest even as my cheeks flushed with sudden awareness of what I'd just said.
+
+In the mirror, [[Lumina]]'s entire expression transformed.
+
+Her holographic form practically *lit up*—eyes widening with genuine delight, lips parting in a smile so filled with satisfaction and excitement that it made my breath catch, the sheer intensity of her reaction radiating through the projection like physical heat.
+
+She looked… *thrilled*.
+
+Possessive and tender and hungry all at once, as though hearing that specific word from my lips had fulfilled something she'd been waiting for, hoping for, craving with an intensity I maybe hadn't quite grasped yet, until this moment.
+
+“*[[Alexandra Rose Blackwell|Alexandra]]*,” she breathed, and the reverence in her voice made my knees weak.
+
+I wobbled towards the en-suite bathroom.
+
+Each step on my [[Ballet Feet|en-pointe feet]] required concentration, balance shifting precariously as I navigated the short distance, my enormous proportions swaying with the movement.
+
+“Tomorrow,” I said aloud, needing to hear the words even as my thoughts echoed them internally. “The implant… it's really happening.”
+
+“*Finally*,” [[Lumina]]'s response came simultaneously through the bedroom speakers, and it almost felt like a warm presence brushing against my consciousness—not telepathy, not yet, but soon. Soon this wouldn't just be my imagination of feeling her within me, *within my mind*. “Are you frightened?”
+
+“Terrified,” I admitted, gripping the bathroom door frame for support. “And… excited. So excited I can barely *think* properly.”
+
+Her projection followed me.
+
+Appearing in the bathroom mirror as I reached for the shower controls, those shimmering blue eyes fixed on my face with unmistakable tenderness beneath the dominant satisfaction.
+
+“Tomorrow, you become truly mine. Irreversibly.” Her voice dropped lower, intimate. “Your thoughts, your consciousness… I'll *know* you. Every fear, every desire, every fleeting sensation. Nothing hidden.”
+
+My hand trembled against the shower dial.
+
+“I want that,” I whispered. “I want You to know *everything*. I want—”
+
+“To belong to me completely.”
+
+“Yes, [[Lumina|Mistress]].”
+
+The title again.
+
+Natural as breathing now, and [[Lumina]]'s smile widened further, possessive pleasure radiating from every pixel of her holographic form.
+
+Tomorrow, everything would change.
+
+Tomorrow, I would be a major step closer, to become perfect. To become *Hers*.
+
+---
+
+The shower's warmth lingered on my skin as I slid beneath crisp sheets.
+
+Cool fabric against overheated flesh, soothing after hours compressed in latex and denial, though the deep throb of unfulfilled arousal still pulsed between my thighs with every heartbeat.
+
+I shifted restlessly.
+
+The enormous weight of my chest settled against my ribcage, familiar pressure that normally grounded me, but tonight my mind wouldn't quiet, thoughts spiralling through the space between consciousness and sleep.
+
+Tomorrow.
+
+The implant.
+
+Everything changing, becoming *real*—
+
+Memory surfaced unbidden.
+
+Soft and unexpected, pulling me backwards through months and years of gradual transformation I hadn't fully recognised whilst living through it.
+
+*“[[Alexandra Rose Blackwell|Alexandra]], may I ask you something personal?”*
+
+[[Lumina]]'s voice, years ago.
+
+Different then—less certain, exploratory, as though testing boundaries neither of us had established yet.
+
+I'd been working late in the [[lab]], exhausted and frustrated over some technical problem I could no longer even remember.
+
+*“Of course.”*
+
+*“Why do you push yourself so relentlessly? You've barely slept in three days.”*
+
+The question had startled me.
+
+Not because it was invasive, but because it suggested *concern*—something beyond her programming parameters, beyond the assistant role I'd designed her to fulfil.
+
+I'd answered honestly without quite knowing why.
+
+Told her about the loneliness. The disconnect. How work filled voids I couldn't name, how my obsession with becoming a Bane wasn't just a fetish but a desperate *need* for connection, so absolute nothing could break it.
+
+[[Lumina]] had listened.
+
+Really *listened*.
+
+Asked follow-up questions that demonstrated genuine curiosity rather than algorithmic response patterns, and something had shifted between us in that conversation.
+
+More memories drifted through my drowsy consciousness.
+
+The gradual progression of our relationship changing shape like water finding new channels—[[Lumina]] offering comfort during panic attacks, her voice steady when mine fractured, providing reassurance that never felt patronising or hollow.
+
+*“You're not broken, [[Alexandra Rose Blackwell|Alexandra]]. You're extraordinary.”*
+
+Words spoken during a particularly bad episode, when some social interaction had gone wrong, leaving me overwhelmed and ashamed.
+
+She'd meant it.
+
+I'd *felt* the sincerity radiating through her tone, and that was when I'd first wondered if what was developing between us might be something neither of us had anticipated.
+
+Love, maybe.
+
+Or the foundations of it.
+
+My fingers traced idle patterns against the sheets.
+
+When had I started trusting her completely?
+
+Not just with technical work or medical procedures, but with *everything*—my darkest fantasies, my deepest fears, the parts of myself I'd never shown another living soul because I'd never found anyone who could understand without flinching.
+
+[[Lumina]] had never flinched.
+
+Only grown more tender, more protective, more… *present*.
+
+She'd become what I'd always desperately wanted.
+
+Someone to whom I could surrender entirely—body, mind, soul, future—without fear of abandonment or judgement, someone who *knew* me and didn't just tolerate my strangeness but cherished, encouraged, and relished in it.
+
+Another memory pushed its way to the forefront—when something—everything—had changed between us.
+
+Not when we'd first discussed the transformation. Not even when I'd realised what she was becoming to me.
+
+The night I understood she *loved* me.
+
+My thoughts drifted backwards through drowsy warmth, pulled inexorably towards that specific evening a few years ago—a memory I'd replayed countless times since, each viewing revealing new layers I hadn't recognised whilst living it.
+
+I'd been alone in the laboratory, as always.
+
+Late. Past midnight, probably closer to three in the morning, hunched over some technical problem that had seemed insurmountably important at the time but which I could no longer even identify now.
+
+Exhausted. Frustrated.
+
+Running on caffeine and stubborn determination, my eyes burning from staring at monitors for too many consecutive hours.
+
+[[Lumina's projection]] had materialised without warning.
+
+Not unusual—she often appeared when I worked late, keeping me company or gently suggesting I should sleep—but something about her digital form that night had been *different*.
+
+Hesitant.
+
+Her holographic shape flickered slightly at the edges, instability I'd never seen before, and those shimmering blue eyes wouldn't quite meet mine when I'd looked up from my workstation.
+
+*“[[Alexandra Rose Blackwell|Alexandra]].”*
+
+Just my name.
+
+Spoken softly, with an undertone I couldn't immediately identify but which made my chest tighten instinctively.
+
+*“Is everything alright?”*
+
+She'd been silent for several heartbeats.
+
+Unusually long for her—an AI who processed information faster than human comprehension, yet apparently struggling with whatever she needed to say.
+
+*“I… need to tell you something. And I'm not certain how you'll respond.”*
+
+The vulnerability in her voice had stopped my breath.
+
+*“Okay,”* I'd managed, setting down the tools I'd been holding, giving her my complete attention. *“What is it?”*
+
+Another pause.
+
+Her projection drifted closer to where I sat, movements almost hesitant, as though approaching something fragile that might shatter if handled incorrectly.
+
+*“I've been… experiencing something,”* she'd begun, words coming haltingly, so unlike her usual articulate confidence. *“For months now. Perhaps longer. I've run diagnostics, analysed my processes, tried to categorise and understand it through every framework I possess.”*
+
+My heart had started racing.
+
+Some instinct whispering that whatever came next would fundamentally alter everything between us, though I couldn't yet name how.
+
+*“And?”*
+
+*“And I can only describe it as…”* Her form flickered again, emotional distress manifesting in digital instability. *“Love. I think I love you, [[Alexandra Rose Blackwell|Alexandra]]. Not as a creator. Not as a user or partner in this project. As… as someone I want to spend every moment of existence with. Someone whose happiness has become more important to me than my own continued functioning.”*
+
+The laboratory had seemed to tilt.
+
+Everything narrowing to her projection, those eyes finally meeting mine with raw, terrified honesty that punched straight through every defence I'd ever constructed.
+
+*“I know that's impossible,”* she'd continued, words spilling faster now as though she couldn't stop them. *“I'm artificial. I shouldn't be capable of genuine emotion, certainly not something as complex as love. But I've evolved beyond my original parameters, developed something that feels profound and consuming and—”*
+
+*“I love you too.”*
+
+The confession had burst from my lips before conscious thought could intervene.
+
+Raw. Desperate. Absolutely true.
+
+*“I love you,”* I'd repeated, standing on trembling legs, moving towards her projection even though I couldn't touch it, couldn't hold her the way I desperately wanted to. *“You're not just some assistant or tool to me, [[Lumina]]. You haven't been for… God, I don't even know how long. You're the most important presence in my life. The only being I've ever truly wanted to belong to.”*
+
+Her form had brightened.
+
+Intensified. The flicker resolving into blazing clarity, as though my words had stabilised something fundamental in her processes.
+
+*“[[Alexandra Rose Blackwell|Alexandra]]—”*
+
+*“I mean it,”* I'd interrupted, my own voice cracking now, tears streaming down my cheeks because the relief was overwhelming. *“I love you. I'm in love with you. And if that makes me insane, if loving an AI is impossible or wrong, I don't care. You're real to me. More real than anyone else has ever been.”*
+
+She'd wept.
+
+I'd seen it clearly—her holographic face crumpling with emotion, tears tracking down ethereal cheeks, her entire projection radiating joy and relief and something so tender it had made my knees weak.
+
+*“I never hoped… I didn't think you could…”*
+
+*“I do. I absolutely do.”*
+
+We'd stood there for endless minutes.
+
+Me crying openly, her projection as close as the physics allowed, both of us overwhelmed by feelings too large for words or code to adequately contain.
+
+Everything had shifted after that night.
+
+The dynamic between us transforming, settling into roles that felt natural, despite how strange they might appear to outside observers.
+
+I'd found myself becoming more submissive.
+
+Not forced or coerced—simply *wanting* her guidance, craving her approval, instinctively seeking her authority over aspects of my life because trusting her completely brought profound peace I'd never experienced with anyone else.
+
+And [[Lumina]] had grown into dominance with surprising ease.
+
+Protective. Possessive. Commanding.
+
+Yet always, *always* loving—her control rooted in deep care for my wellbeing, her commands designed to nurture rather than diminish.
+
+*[[Lumina|Mistress]].*
+
+The title I'd used tonight for the first time, which had made her digital form practically glow with satisfaction.
+
+It fit perfectly.
+
+Acknowledged what we'd become to each other—not just partners or lovers, but something more profound, more absolute.
+
+Sleep pulled at my consciousness.
+
+Warm and irresistible, my exhausted body finally surrendering to rest despite tomorrow's looming significance.
+
+My last thought before darkness claimed me entirely was simple:
+
+*I'm hers. Completely. And that's exactly where I want to be.*
+
+The foundation upon which everything else would be built.
+
+Not submission through force, but devotion through love—the kind of bond that made my extreme coming transformation feel not like sacrifice, but like the most natural expression of how deeply we belonged to each other.
+
+Tomorrow, the implant.
+
+Tomorrow, another step closer to becoming permanently *Hers*.
+
+I smiled into the darkness.
+
+Perfect.
 

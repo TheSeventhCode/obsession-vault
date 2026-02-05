@@ -410,4 +410,4 @@ Hers.
 Finally, irrevocably, completely hers.
 
 ---
-Continue with [[Chapter 1]].
+Continue with [[Chapter 1 - An Obsession]].

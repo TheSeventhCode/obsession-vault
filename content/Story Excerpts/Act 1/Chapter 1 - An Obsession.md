@@ -1,5 +1,3 @@
-### [[Chapter 1]]: An Obsession
-
 I pushed myself up from the desk, palms flat against the mahogany surface as I leveraged my weight forward—and immediately felt the protest ripple through my entire frame.
 
 Balance shifted wrong.

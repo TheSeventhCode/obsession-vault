@@ -54,4 +54,4 @@ When anxious, [[Alexandra Rose Blackwell|Alexandra]] spirals into pleas, apologi
 ---
 Early on, [[Alexandra Rose Blackwell|Alexandra]] remains very confident and goal-oriented, even with [[Lumina]]. She is very comfortable with [[Lumina]], though slowly becoming shy and submissive. Her submission to and dependence on [[Lumina]] grows, until [[Alexandra Rose Blackwell|Alexandra]]'s inner devotion is absolute and deeply rooted in the very core of her being.
 
-![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Alexandra%20Extreme/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alex/public)

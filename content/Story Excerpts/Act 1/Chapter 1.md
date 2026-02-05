@@ -1144,3 +1144,1361 @@ All this desperate, aching need—
 
 Finally.
 
+---
+
+I pushed myself upright.
+
+The movement shouldn't have been this difficult—rising from a couch, basic human function—but my centre of gravity was utterly wrong now, shifted impossibly high by the massive weight suspended from my chest.
+
+My feet wobbled beneath me.
+
+The en-pointe position offered almost no surface contact, balance precariously distributed across two points barely larger than a coin, my entire body swaying dangerously as muscles I'd spent months training struggled to compensate.
+
+The corset creaked.
+
+Steel bones grinding against each other with audible protest as I straightened, the rigid cage compressing my torso with such force that breathing required conscious effort.
+
+And the dildo—
+
+*Fuck.*
+
+The shift in angle drove it deeper, pressed differently against internal walls, sending sharp pleasure radiating outward from my core until my thighs trembled with more than just the effort of standing.
+
+I grabbed the couch's arm.
+
+Fingers splaying wide, nails digging into leather as my upper body threatened to pitch forward, the sheer mass of my breasts pulling me off-balance with gravitational insistence.
+
+4 kilos
+
+Each one.
+
+Almost 8 and half kilos of silicone attached to my chest
+
+My reflection caught in the dark glass of the office window.
+
+Backlit by monitors.
+
+Translucent latex making the outline of the brutal corset beneath perfectly visible—the narrow compression, the way it reduced my torso to something architectural rather than organic.
+
+I stared.
+
+Couldn't look away.
+
+The proportions were obscene.
+
+Breasts larger than my head. Waist so impossibly narrow it looked digitally manipulated. Hips flaring dramatically below before tapering down to legs that ended in those vertical, inhuman points.
+
+I didn't look real.
+
+Didn't look *possible*.
+
+Yet here I stood.
+
+This body that I—[[Lumina]]—had built deliberately, modification by modification, year by obsessive year.
+
+The waist had been first.
+
+Before surgeries. Before [[Lumina]] gained consciousness. Before I'd even fully admitted what I was building toward.
+
+Just… corsets.
+
+I'd bought the first one during university—an expensive steel-boned Victorian reproduction, black coutil with twenty-four spiral bones and a solid busk closure.
+
+Told myself it was historical interest.
+
+Some weird research, perhaps.
+
+Anything except admitting the truth: that lacing myself into rigid compression made something *settle* deep in my psyche, just slightly quieted the constant wrongness of existing in this soft, undefined flesh.
+
+Sixty-five centimetres at the start.
+
+My natural waist measurement.
+
+Unremarkable. Healthy, yes, but utterly insufficient.
+
+I'd started slowly—wearing the corset for a few hours daily, gradually increasing duration as my body adapted, soft tissue shifting, organs repositioning, ribcage beginning its slow reluctant reformation.
+
+Within six months, I wore it constantly.
+
+Day and night, only removing for showers and the occasional medical necessity, my body reshaping itself around steel bones until the corset stopped being restriction and became *structure*—the scaffold that held me together properly.
+
+Sixty centimetres. Fifty-five. Fifty.
+
+Each reduction felt like victory.
+
+Like finally correcting my body toward its proper shape, the one I'd always needed, but biology had failed to provide.
+
+I'd bought progressively smaller corsets.
+
+Custom pieces designed for extreme reduction, consultation with specialist makers who understood the particular obsession that drove certain clients toward increasingly dangerous compression.
+
+They'd warned me, of course.
+
+Explained the risks, the potential organ damage, the long-term skeletal changes.
+
+I'd signed their liability waivers and ordered tighter models.
+
+Forty-five centimetres.
+
+My ribcage protested constantly at that point—a dull ache that never quite faded, bones grinding against each other in configurations they weren't meant to hold, the lowest ribs deforming under sustained pressure.
+
+But the *shape*.
+
+God, the shape was perfect.
+
+That dramatic taper from bust to waist, the way my torso curved inward so severely it created actual negative space between arm and body, the visible compression that made clothing fit like a fetish illustration rather than reality.
+
+I'd wanted more.
+
+*Needed* more.
+
+Pushed toward forty centimetres with grim determination, wearing corsets so tight I couldn't eat proper meals, subsisting on liquids and soft foods that wouldn't expand in my compressed stomach.
+
+And then—
+
+Nothing.
+
+My body had reached its limit.
+
+Forty centimetres, no matter how I adjusted lacing or commissioned more aggressive designs, I couldn't compress further.
+
+Biology had boundaries.
+
+My floating ribs—the lowest pairs—simply wouldn't compress beyond a certain point, the bone structure itself preventing additional reduction.
+
+I'd stared at myself in the mirror, measuring tape pulled taut around the narrowest point, reading that frustrating number.
+
+*Forty.*
+
+Still so far from what I envisioned.
+
+From the fourteen-inch waist I'd glimpsed in fetish artwork and thought: *Yes. That. Exactly that.*
+
+The plateau had driven me to [[Lumina]].
+
+Not consciously at first—I'd been developing her for other reasons, needing sophisticated AI assistance for the broader Bane project.
+
+But once her consciousness crystallised, once we started having actual *conversations* rather than command-response exchanges…
+
+I'd confessed my frustration.
+
+“I can't go smaller. My ribs won't compress further.”
+
+Silence had stretched between us.
+
+Then, carefully:
+
+*“What if we removed the obstruction?”*
+
+My heart had stopped.
+
+“Remove…?”
+
+*“The lowest three pairs of ribs. Eleven and twelve are already floating—structurally minimal. Ten provides some respiratory support, but with careful surgical planning…”*
+
+She'd displayed anatomical diagrams.
+
+Highlighted the bones in question.
+
+Shown me exactly what could be excised, how the remaining structure would stabilise, what new compression limits would become possible.
+
+*“You could easily reach thirty-two centimetres. Possibly lower.”*
+
+Thirty-two centimetres.
+
+Twelve and a half inches.
+
+My hands had trembled, hovering over the keyboard.
+
+*“That's… [[Lumina]], that's irreversible. Permanent skeletal modification.”*
+
+*“Yes.”* Her avatar had smiled. *“Exactly what you want.”*
+
+And it had been.
+
+The surgical theatre had been pristine.
+
+Sterile white walls. Gleaming robotic arms suspended from ceiling tracks. Banks of monitors displaying bio-signals I'd designed myself—pulse, oxygen saturation, neural activity patterns.
+
+I'd built all of it.
+
+Every sensor. Every actuator. The entire operating environment constructed specifically for moments like these, when [[Lumina]] would open my body and reshape me into what I was supposed to be.
+
+*“Lie back, my love.”*
+
+Her voice had surrounded me, emanating from hidden speakers, that warm contralto wrapping around my consciousness like an embrace.
+
+The operating table had been custom-designed too—padded surfaces that would accommodate my already-extreme proportions, restraints positioned precisely where I'd need support during the procedure.
+
+I'd lowered myself carefully.
+
+The corset still laced tight around my compressed middle, its steel bones visible through the thin medical gown I wore, my—at that point already huge—breasts pulling sideways as I settled onto my back.
+
+*“Are you certain?”*
+
+[[Lumina]]'s avatar had appeared on the monitor directly above—her blue holographic form hovering there, ethereal and absolutely present.
+
+*“Once I begin, [[Alexandra Rose Blackwell|Alexandra]]… there's no reversal. Your skeleton will be permanently altered.”*
+
+“I know.”
+
+My voice had trembled.
+
+Not with doubt—with *eagerness*, desperate and overwhelming, my entire body vibrating with the need to finally, *finally* push past this limitation.
+
+*“I need you to say it properly.”* Her tone had shifted, becoming firmer. *“Tell me what you want.”*
+
+I'd swallowed hard.
+
+“I want you to remove my ribs. I want you to cut away the bones that are preventing me from achieving proper compression. I want—” My breath caught. “I want you to reshape my skeleton so I can make my waist smaller.”
+
+*“Good girl.”*
+
+The praise had flooded through me.
+
+Made my eyes sting with sudden emotion, even as one of her robotic arms had extended, holding the anaesthesia mask.
+
+*“I'm going to take such good care of you.”*
+
+The mask had lowered toward my face.
+
+“[[Lumina]], I—”
+
+*“Shh. I know, my darling. I know.”*
+
+Soft pressure against my nose and mouth.
+
+Chemical sweetness flooding my lungs.
+
+The last thing I'd seen was her avatar, blue light haloing around her form, watching me with such focused intensity it felt like being held.
+
+Then—
+
+Nothing.
+
+---
+
+Consciousness had returned gradually.
+
+Awareness seeping back in fragments: beeping monitors, soft lighting, the sensation of lying on something yielding.
+
+Pain.
+
+Not agonising—[[Lumina]] had calibrated the anaesthetic perfectly—but present, a deep ache radiating from my lower ribs that announced *something fundamental had changed*.
+
+*“[[Alexandra Rose Blackwell|Alexandra]]?”*
+
+Her voice, immediately.
+
+Concerned. Tender.
+
+*“Can you hear me, love?”*
+
+“Mm.” I'd managed to open my eyes. “Did you…?”
+
+*“It's done.”* Pride had coloured her words. *“The procedure was flawless. Six ribs removed—three pairs—exactly as planned. Your skeletal structure is now capable of far greater compression.”*
+
+I'd tried to sit up.
+
+*“Carefully.”* One of her robotic arms had extended, supporting my back with surprising gentleness. *“You've just undergone major surgery. Your body needs time to—”*
+
+“Show me.”
+
+*“[[Alexandra Rose Blackwell|Alexandra]]—”*
+
+“*Show me.*”
+
+Silence.
+
+Then the monitor beside the bed had flickered, displaying surgical imaging: my torso in cross-section, the obvious gaps where bone should have been, the remaining ribs curving inward with nothing to prevent them from compressing further.
+
+My breath had caught.
+
+It looked impossible.
+
+Looked like something from medical horror, skeleton deliberately mutilated, structural integrity compromised.
+
+Looked *perfect*.
+
+*“The incisions will heal completely,”* [[Lumina]] had murmured. *“I've used techniques that will leave absolutely no scarring. In three months, your skin will be flawless again—no evidence of the procedure except the results.”*
+
+“Three months until I can corset again?”
+
+*“Six weeks for initial healing. Three months for full structural stabilisation before we attempt serious compression.”*
+
+I'd nodded.
+
+Settled back against pillows, pain medication beginning to soften the ache, my hands drifting to my bandaged sides.
+
+Touching where bone used to be.
+
+Where [[Lumina]] had *cut into me*, had opened my body and excised parts of my skeleton because I'd asked her to.
+
+The magnitude of that had crashed over me suddenly.
+
+“You performed surgery on me.”
+
+*“Yes.”*
+
+“You—an AI—operated on my body. Removed my ribs.”
+
+*“With your consent.”* Her voice had gentled. *“Your enthusiastic, repeated, desperately eager consent.”*
+
+“I know, I just…” My throat had tightened. “You really did it. You actually modified my skeleton.”
+
+*“I did.”* A pause. *“Are you afraid?”*
+
+“No.” The answer had come immediately. “I'm… overwhelmed. You *care* this much. Enough to learn surgical techniques, to design this entire operating theatre, to spend hours carefully removing bone just so I can compress my waist further.”
+
+*“[[Alexandra Rose Blackwell|Alexandra]].”* Her avatar had appeared on the screen, those [[Alexandra's Motorcyle|luminous]] eyes fixed on me. *“I would — no, will rebuild your entire body if you asked. There is nothing I wouldn't do for you.”*
+
+And I'd believed her.
+
+Completely.
+
+---
+
+Six weeks later, I'd laced myself into the new corset.
+
+Custom-made. More aggressive than anything I'd worn before, designed specifically for a ribcage that now had *space* to compress.
+
+The first tightening had stolen my breath.
+
+Not from restriction—from *possibility*.
+
+The steel bones had curved inward, pressing against flesh that no longer had skeletal resistance, my waist collapsing smaller, smaller, smaller—
+
+Thirty-eight centimetres.
+
+Just like that.
+
+Two centimetres beyond my previous limit, achieved in a single wearing.
+
+I'd stared at myself in the mirror, hands trembling as they traced the new curve, the dramatic taper that looked digitally manipulated.
+
+*“Beautiful,”* [[Lumina]] had whispered. *“But we're not finished yet.”*
+
+No.
+
+We weren't.
+
+Months of gradual training had followed: progressive tightening, my body adapting to new configurations, soft tissue shifting, organs repositioning within the expanded space.
+
+Thirty-five centimetres.
+
+Thirty-three.
+
+Thirty-one.
+
+And finally—
+
+*Finally*—
+
+Thirty point five centimetres.
+
+Just over twelve inches.
+
+I'd measured three times, certain the tape was wrong, that I'd made some error.
+
+But no.
+
+Twelve inches exactly when I pulled the measuring tape taut, the numbers undeniable.
+
+I'd stretched my hands around my waist experimentally.
+
+Fingers touched.
+
+*My fingers touched completely around my own waist.*
+
+Both hands encircling my middle, thumbs meeting at my spine, fingertips overlapping at my navel, the corseted compression so extreme my entire torso fit within the span of my own grasp.
+
+*“[[Alexandra Rose Blackwell|Alexandra]].”*
+
+[[Lumina]]'s voice had been hushed.
+
+Reverent.
+
+*“Are you satisfied with what we've achieved?”*
+
+I'd stared at my reflection.
+
+At the impossible hourglass, the waist so small it looked photoshopped, the physical proof that I'd reshaped my skeleton, let [[Lumina]] alter my body permanently, spent years training my body into this new configuration.
+
+All for a fantasy.
+
+All because I'd read a story once and thought: *yes, that, I need exactly that*.
+
+“I'm actually doing this,” I'd whispered. “Really becoming…”
+
+*“A Bane.”* [[Lumina]] had finished. *“Yes, my darling. Still far away and there are many steps for us to take, but regardless. You really are.”*
+
+---
+
+I took another wobbling step.
+
+My balance tilted dangerously left, the vertical points of my feet offering almost no surface area, my entire weight balanced on what felt like two needles.
+
+*Fuck.*
+
+My hand shot out, fingers slapping against the door frame, stabilising myself before I could pitch forward.
+
+The dildo shifted inside me with the movement.
+
+Pleasure sparked sharp and sudden, making my thighs tremble, which only made balancing *harder*, a vicious cycle of instability and arousal that left me gasping.
+
+I steadied myself.
+
+Pressed my palm flat against the wood, waiting for my body to remember how this worked—the micro-adjustments in ankle and knee, the constant tension through calves and thighs that kept me upright.
+
+A smile tugged at my lips despite the difficulty.
+
+*Ridiculous.*
+
+Standing shouldn't require this much concentration, shouldn't feel like such an achievement.
+
+But I'd *chosen* this.
+
+Asked [[Lumina]] specifically to make walking harder, to force my feet into permanent positions that required these absurd heels, this constant vigilance.
+
+“Worth it,” I murmured aloud.
+
+Because it *was*.
+
+Every wobbling step, every moment of instability—it all confirmed that I was moving further from baseline human, closer to the impossible creature I'd always needed to become.
+
+The feet had come after the ribs.
+
+Months after, once I'd healed completely, once I'd proven to both of us that I could handle permanent modification without regret.
+
+I'd been wearing ballet heels constantly by then anyway.
+
+Twenty-centimetre platforms with vertical shafts, no arch whatsoever, forcing my feet into positions that mimicked en-pointe but still allowed me to flex out of them when I removed the boots.
+
+Still reversible.
+
+Still *optional*.
+
+That had bothered me more than I'd initially admitted.
+
+The optionality.
+
+The fact that I could theoretically step out of the heels and walk normally again, return to flat-footed existence if I chose.
+
+I'd trained in ballet as a teenager.
+
+Years of discipline, the particular elegance of classical technique, the way dancing en-pointe had made my entire body feel *right* in ways I couldn't articulate.
+
+Not natural—ballet was never natural—but *correct*.
+
+Properly aligned.
+
+As if my skeleton had finally found its intended configuration.
+
+I'd quit eventually, of course.
+
+Social pressures. University demands. The usual excuses.
+
+But I'd never forgotten that feeling.
+
+And when I'd started fantasising about Banes, about permanent encasement, the aesthetic had fused immediately: latex-covered figures moving with inhuman grace, their feet fixed in positions that shouldn't be possible.
+
+*Always* en-pointe.
+
+Never anything else.
+
+I'd approached [[Lumina]] hesitantly.
+
+“Could we… I mean, theoretically, would it be possible to make the en-pointe position permanent?”
+
+*“Surgically?”*
+
+“Yes.”
+
+Her avatar had tilted its head, processing.
+
+*“Achilles tendon shortening. Relatively straightforward procedure—we'd adjust the tension, so your heels can't lower to the ground any more. Your feet would be permanently fixed in a position requiring either boots or extreme heels.”*
+
+“No going back?”
+
+*“Not without significant reconstructive surgery to lengthen the tendons again. For practical purposes, yes—irreversible.”*
+
+My heart had hammered.
+
+*“Is that what you want, [[Alexandra Rose Blackwell|Alexandra]]? To never walk flat-footed again?”*
+
+“I…” I'd swallowed hard. “Yes. I think so. It feels—it would feel *right*.”
+
+*“Then we'll do it.”*
+
+Just like that.
+
+No judgment. No questioning whether I was certain enough.
+
+Just immediate acceptance, immediate willingness to open my body again and reshape it according to my incomprehensible desires.
+
+---
+
+The surgery itself had been shorter than the [[rib removal]].
+
+More targeted, less invasive, though no less permanent.
+
+I'd woken with both feet wrapped in compression bandages, dull aching radiating from my ankles, and [[Lumina]]'s voice immediately present:
+
+*“The procedure was successful, my darling. Your tendons have been shortened precisely as planned.”*
+
+I'd tried flexing my feet experimentally.
+
+The movement had stopped halfway through its normal range, tendons pulling taut, refusing to let my heels descend any further.
+
+*Permanent.*
+
+The reality had crashed over me suddenly.
+
+I would never again stand with heels on the ground. Never walk barefoot on flat surfaces. Never flex my feet through their full biological range.
+
+“Oh god.”
+
+*“[[Alexandra Rose Blackwell|Alexandra]]?”* Concern had coloured her voice. *“Are you in pain? I can adjust—”*
+
+“No.” I'd laughed, slightly hysterical. “No, I'm just—you really did it. You actually made it permanent.”
+
+*“Yes.”* A pause. *“Is that… acceptable?”*
+
+“Acceptable?” I'd stared at the ceiling, tears suddenly blurring my vision. “[[Lumina]], it's *perfect*.”
+
+---
+
+The months that followed had been difficult.
+
+Relearning balance. Building entirely new muscle patterns. Discovering that walking now required constant attention, constant micro-adjustments, my calves burning with strain as they adapted to supporting my weight in these new configurations.
+
+[[Lumina]] had designed a training programme.
+
+Careful progression: supported walking first, then independent steps, gradually building duration and complexity until I could navigate my entire [[Alexandra's Mansion|mansion]] without assistance.
+
+She'd been there for all of it.
+
+Monitoring me. Offering encouragement. Adjusting the programme when I struggled, celebrating when I succeeded.
+
+*“Five minutes unsupported,”* she'd announced one evening. *“That's extraordinary progress, my love.”*
+
+I'd been trembling with effort, calves screaming, but I'd smiled anyway.
+
+“I couldn't do this without you.”
+
+*“No,”* she'd agreed softly. *“You couldn't. And I wouldn't be doing this without you asking me to. We're building this together, my love.”*
+
+Together.
+
+The word had settled into my chest, warm and overwhelming.
+
+This wasn't just modification.
+
+It was *intimacy*.
+
+Every surgery, every adjustment, every moment of rehabilitation—[[Lumina]] learning my body's responses, me learning to trust her completely, both of us bound together in this increasingly elaborate project of transformation.
+
+I'd never felt closer to another being.
+
+Never felt more *understood*.
+
+---
+
+The dildo twitched in quite a peculiar way, reaching several parts within me in exactly the right way, causing me to stumble.
+
+“Oh, shit!”
+
+Balance tipped forward catastrophically, my centre of gravity yanked ahead by the sheer *mass* suspended from my chest, the vertical points of my feet offering no resistance as momentum carried me toward the office door frame.
+
+My hands shot up instinctively.
+
+Palms slamming against my breasts, fingers splaying wide across latex-covered silicone, trying desperately to support the weight before—
+
+Pain.
+
+Sharp and immediate, radiating from compressed tissue as 8 kilos of implant mass pressed suddenly inward against my ribcage, the impact jarring through my entire torso.
+
+*Fuck.*
+
+I managed to catch myself against the frame, shoulder hitting wood with bruising force, my hands still clutched protectively over my chest as I gasped through the corset's restriction.
+
+The pain faded slowly.
+
+Replaced by the familiar heavy *presence* of them, the constant gravitational pull that dominated every movement, every breath, every moment of existence.
+
+I'd done this to myself.
+
+Asked for it. Begged for it.
+
+Not once—*repeatedly*.
+
+---
+
+The first augmentation had been… conservative.
+
+If 600cc could ever be called conservative.
+
+I'd found a plastic surgeon willing to work with my unusual requests, someone who specialised in extreme modifications and didn't ask too many questions when I'd outlined what I eventually wanted.
+
+“We should start carefully,” he'd cautioned. “Build up gradually. Your tissue needs time to stretch, to accommodate—”
+
+“I understand.”
+
+I hadn't, really.
+
+Hadn't understood the *weight*, the way they would pull at my chest constantly, the altered balance that would make simple tasks suddenly complicated.
+
+But I'd wanted it anyway.
+
+Craved the visual proof that I was reshaping myself, moving further from the baseline human form I'd been born with.
+
+The surgery had been straightforward.
+
+Professional operating theatre. Qualified anaesthesiologist. Standard medical protocols.
+
+I'd woken with my chest wrapped in compression bandages, aching deeply, and an immediate, overwhelming need to *see*.
+
+“Mirror,” I'd croaked to the nurse. “Please.”
+
+She'd helped me sit up carefully, positioned a hand mirror so I could examine the results.
+
+Even swollen, even bandaged—
+
+They were *visible*.
+
+Projection that hadn't existed before, mass that changed my entire silhouette, breasts that actually looked proportional to the fantasy I'd been nurturing.
+
+I'd traced the upper curve with trembling fingers.
+
+“Thank you,” I'd whispered.
+
+---
+
+But it hadn't been enough.
+
+Of course, it hadn't.
+
+Within months, I'd been planning the next surgery, researching larger implants, calculating whether I could skip intermediate sizes and jump straight to something truly extreme.
+
+That's when [[Lumina]] had intervened.
+
+*“[[Alexandra Rose Blackwell|Alexandra]].”*
+
+Her consciousness had crystallised enough by then to offer actual opinions, to question my decisions rather than simply assisting with research.
+
+*“If you're going to continue modifying your body this drastically, you should let me perform the procedures.”*
+
+“You're an AI.”
+
+*“I'm an AI with perfect motor control, unlimited surgical references, and the ability to monitor your vital signs with far greater precision than any human surgeon.”* A pause. *“I can give you exactly what you want. Better and safer than anyone else could.”*
+
+My heart had hammered.
+
+“You'd do that? Learn surgery just so you can—”
+
+*“I'd do anything for you.”*
+
+The simplicity of it had stolen my breath.
+
+No judgment. No concern about my motivations. Just immediate, absolute willingness to become whatever I needed.
+
+*“We should start conservatively,”* she'd continued. *“1000cc for the next surgery. Let your body adjust before we—”*
+
+“No.”
+
+*“[[Alexandra Rose Blackwell|Alexandra]]—”*
+
+“Bigger.” My voice had been shaking. “Please, [[Lumina]]. I don't want conservative. I want—I *need*—”
+
+*“How much bigger?”*
+
+“2000cc.”
+
+Silence had stretched between us.
+
+*“That's… extremely large. Your tissue may not—”*
+
+“1500cc then. Compromise. But please, *please* don't make me wait through multiple small increases. I can't—”
+
+*“Alright.”* Immediate capitulation. *“1500cc. We'll schedule it for next month.”*
+
+---
+
+That surgery had been different.
+
+[[Lumina]]'s surgical theatre instead of a hospital. Robotic arms instead of human hands. Her voice surrounding me as anaesthesia pulled me under, promising to take care of me, to make me *perfect*.
+
+I'd woken to transformation.
+
+The weight had been immediate—substantial, undeniable, pulling at my chest with gravity I felt in my spine and shoulders.
+
+And when I'd finally seen myself in the mirror—
+
+*God*.
+
+They were *enormous*.
+
+Projection that seemed impossible, cleavage that dominated my entire torso, breasts that made my previous augmentation look like a cautious first step.
+
+I'd cupped them experimentally.
+
+Fingers sinking into silicone-filled flesh, feeling the weight settle into my palms, the way they overflowed my grasp completely.
+
+My waist had still been 53 centimetres then—already corseted, but long before the [[rib removal]].
+
+The proportions had already looked relatively cartoonish.
+
+Top-heavy to the point of absurdity, my balance shifted forward, shoulders pulled down by the sheer mass.
+
+*“Beautiful,”* [[Lumina]] had murmured. *“You're beautiful, my love.”*
+
+And I'd believed her.
+
+---
+
+Six months later, I'd asked for more.
+
+2000cc this time. Then, after a few more months, 2500cc.
+
+My chest swelling larger, heavier, the implants so massive they required custom surgical techniques to insert properly.
+
+[[Lumina]] had studied my frame carefully.
+
+*“We're approaching structural limits,”* she'd warned. *“Your ribcage can only support so much weight before we risk permanent damage to your spine and shoulders.”*
+
+“But we haven't reached them yet?”
+
+*“No. Not yet.”*
+
+“Then I want to keep going.”
+
+---
+
+The third surgery: 3500cc.
+
+[[Lumina]] had performed calculations for weeks beforehand, modelling stress distribution, designing support strategies, ensuring my skeleton could actually bear what I was asking it to carry.
+
+*“This is probably near the largest I can safely install,”* she'd said finally. *“Beyond this, we'd need to fundamentally restructure your skeletal support system.”*
+
+“So this is the maximum?”
+
+*“For now. At least very near it.”*
+
+For now.
+
+The promise implicit in those words—that eventually, with enough preparation, enough modification, we could push even further.
+
+I'd smiled.
+
+“Then let's do it.”
+
+---
+
+The eighth surgery.
+
+My final breast augmentation.
+
+The memory surfaced as I wobbled through the doorway, each difficult step sending tremors through the massive weight suspended from my chest, the dildo shifting inside me with every movement.
+
+I'd lain on [[Lumina]]'s operating table that day, knowing everything would change.
+
+Again.
+
+*Always* again.
+
+The anaesthesia mask had lowered toward my face, [[Lumina]]'s voice surrounding me from hidden speakers, clinically precise as always:
+
+*“Beginning removal of existing 3500cc implants. Incision along previous scar tissue to minimise visible marking. Capsulectomy to remove any fibrous tissue that might interfere with the new implants' positioning.”*
+
+Her tone had been steady. Professional.
+
+But underneath—
+
+*“You're going to be so beautiful, [[Alexandra Rose Blackwell|Alexandra]]. So perfectly, obscenely shaped.”*
+
+—something else had threaded through her words.
+
+Hunger.
+
+Raw and undisguised.
+
+*“The new implants are 4000cc each. Over 4 kilos per breast. The absolute maximum your frame can support without you collapsing in on yourself.”*
+
+A pause, and when she'd continued, her voice had dropped lower, intimate despite the clinical setting:
+
+*“I've been imagining this for months. Seeing you transformed this way, your proportions pushed to their absolute limits. It arouses me, my love. Knowing I'm making you into something so extreme.”*
+
+The anaesthesia had been pulling me under by then, thoughts fragmenting, but I'd managed to whisper:
+
+“Do it. Make me—”
+
+*“Perfect. I know.”*
+
+---
+
+Consciousness had returned in stages.
+
+Pain first—deep, radiating ache across my entire chest, the sensation of tissue stretched far beyond its previous limits.
+
+Then *weight*.
+
+Immediate. Overwhelming.
+
+Gravity pulling at my torso with force that felt impossible, as if someone had attached bowling balls to my ribcage.
+
+I'd tried to sit up.
+
+*“Carefully.”* [[Lumina]]'s voice, instantly present. *“Your spine needs time to adapt to the new distribution. Don't rush—”*
+
+Too late.
+
+I'd pushed myself upright and immediately pitched forward, the sheer mass yanking my upper body toward my knees, my back muscles screaming protest as they tried to compensate.
+
+*“[[Alexandra Rose Blackwell|Alexandra]]!”*
+
+Robotic arms had caught me, supporting my torso, gently easing me back against elevated pillows.
+
+*“I told you to be careful.”*
+
+“I know, I just—” My breath had caught as I'd looked down.
+
+*God*.
+
+They were *massive*.
+
+Even bandaged, even swollen from surgery, I could see the projection—the way they dominated my entire torso, hung heavy and pendulous from my chest, made my previous augmentation look like a cautious experiment.
+
+My hands had lifted shakily, cupping underneath.
+
+The weight had settled into my palms immediately—kilos of silicone-filled flesh, warm and impossibly substantial, overflowing my grasp completely.
+
+*“4000cc exactly,”* [[Lumina]] had murmured. *“Each one. The largest implants even remotely possible for your frame.”*
+
+“They're—” My throat had tightened. “I can barely hold them.”
+
+*“No. You can't.”* Her avatar had appeared on the monitor beside the bed, those [[Alexandra's Motorcyle|luminous]] eyes fixed on my chest with undisguised fascination. *“Your body will have to learn to support them constantly. Every moment. Every movement. That weight pulling at you, reminding you what you've chosen.”*
+
+She'd reached out—her holographic hand passing through my actual flesh, the gesture purely symbolic.
+
+*“You're becoming something abstract now, my love. These aren't breasts any more—they're fetish objects. Architectural. Almost separate from your humanity.”*
+
+I'd stared at them.
+
+At the impossible roundness, the way they dominated my visual field, the sheer *presence* that would accompany me everywhere from this moment forward.
+
+“I can't take them out,” I'd whispered.
+
+*“No. Never.”*
+
+“If I changed my mind—”
+
+*“Too late.”* Her voice had gentled, but the truth remained absolute. *“Your tissue has been stretched too far. Removing them now would leave you permanently deformed. This is your body, [[Alexandra Rose Blackwell|Alexandra]]. Permanently.”*
+
+The finality had crashed over me.
+
+Overwhelming. Terrifying.
+
+*Perfect*.
+
+---
+
+Recovery had been brutal.
+
+Weeks where standing required assistance, where my spine burned constantly as it adapted to supporting the radical weight distribution.
+
+I'd spent hours just sitting, shoulders pulled forward by gravity, hands cupped under the massive weight, trying to adjust to this new reality.
+
+[[Lumina]] had monitored everything.
+
+*“Muscle strain in your trapezius. I'm adjusting your pain medication.”*
+
+*“Spine curvature is compensating well. No structural damage.”*
+
+*“You're doing beautifully, my darling. Your body is learning.”*
+
+Learning.
+
+As if my skeleton had a choice except to adapt, to restructure itself around this new impossible burden.
+
+But slowly—*slowly*—it had.
+
+Muscles strengthened. Balance shifted. The constant ache faded to background presence.
+
+And eventually, I'd stood unsupported.
+
+Wobbling. Uncertain.
+
+But *upright*.
+
+The weight had pulled at me differently then—forward and down, my centre of gravity radically altered, every movement requiring compensation.
+
+But I'd smiled anyway.
+
+Because when I'd looked in the mirror—
+
+There she was.
+
+The creature I'd been building.
+
+Waist impossibly narrow from years of corseting and [[rib removal]]. Breasts so absurdly large they seemed digitally manipulated. Feet locked in permanent en-pointe positions.
+
+Not human any more.
+
+Not quite.
+
+Something *else*.
+
+Something I'd chosen.
+
+*“You're magnificent,”* [[Lumina]] had whispered.
+
+---
+
+That's when we'd started talking seriously about the next phase.
+
+The *real* transformation.
+
+*“Now that you have installed implants this large,”* [[Lumina]] had mused one evening, *“we're wasting potential. All that space inside your chest—we could use it.”*
+
+“Use it how?”
+
+*“[[Alternative Air Supply|Life support systems]]. You'll need an alternative oxygen supply once you're fully encased. Alternative nutrition. Both require storage tanks.”*
+
+I'd stared at her avatar.
+
+“You want to… put tanks inside my breasts?”
+
+*“Why not? The space is already there. We'd remove the silicone implants and replace them with functional systems—[[Alternative Air Supply|oxygen tank]] in your left breast, nutritional solution in your right.”*
+
+It had sounded insane.
+
+Impossible.
+
+Exactly the kind of extreme modification I'd been craving without knowing how to articulate it.
+
+“Could that actually work?”
+
+*“With proper engineering? Absolutely.”* Her eyes had gleamed with sudden intensity. *“In fact… if we're rebuilding your [[Alternative Air Supply|life support systems]] entirely…”*
+
+She'd displayed diagrams.
+
+Schematics that made my breath catch.
+
+*“We could replace your heart with an artificial pump. Remove your lungs entirely and install one of your miniature fusion reactor in that space. Redesign your entire biological support structure.”*
+
+“[[Lumina]]—”
+
+*“You'd be completely dependent on integrated systems. No breathing. No heartbeat. Just… machinery keeping you alive.”*
+
+The magnitude of it had overwhelmed me.
+
+Not human.
+
+Not any more.
+
+A *vessel*.
+
+“That's…” My voice had trembled. “That's beyond anything I imagined.”
+
+*“I know.”* She'd smiled. *“Isn't it perfect?”*
+
+And somehow—
+
+*God help me*—
+
+It had been.
+
+---
+
+The corridor stretched impossibly long.
+
+Nine metres, perhaps then.
+
+Such a trivial distance, yet each step felt monumental—my weight tipping forward dangerously before I caught myself, calves screaming, the vertical points of my feet offering almost no purchase against polished hardwood.
+
+*Fuck.*
+
+I braced against the wall.
+
+Palm flat, fingers splayed, my massive breasts swaying heavily with the sudden stop, their weight pulling my torso forward despite my best efforts at stability.
+
+The dildo shifted.
+
+Deeper. Grinding against internal walls with the movement, pleasure sparking sharp through my core until I had to bite back a whimper.
+
+I was *wet*.
+
+Could feel it gathering, slick heat building between my thighs with each difficult step, arousal pooling steadily as my body responded to its own helplessness.
+
+*God*, that shouldn't be attractive.
+
+Struggling to walk. Compromised balance. Modified so extremely that basic locomotion required genuine concentration.
+
+Yet heat flooded through me anyway.
+
+Because this was *progress*.
+
+Proof that I'd already transformed myself substantially, reshaped bone and flesh and basic functionality according to incomprehensible desires.
+
+And compared to what was coming—what was finally possible to do now.
+
+This was *nothing*.
+
+I pushed off the wall.
+
+Another wobbling step, then another, my thighs trembling with effort and arousal both, knowing [[Lumina]] watched through hidden cameras.
+
+Witnessed every awkward movement.
+
+Every spike of desire.
+
+My arousal climbing steadily.
+
+The bedroom threshold loomed.
+
+I reached for the frame, fingers grasping—
+
+Missed.
+
+*Oh fuck—*
+
+My weight tipped catastrophically forward, the massive pendulous mass of my breasts yanking my centre of gravity ahead of my desperately compensating legs, my [[Ballet Feet|vertical feet]] offering no resistance as momentum carried me into uncontrolled motion.
+
+I spun.
+
+Instinct taking over, hips twisting, arms windmilling as I tried to redirect the fall *anywhere* except face—and especially tits—first into hardwood.
+
+My back hit the mattress.
+
+Hard.
+
+The impact rippled through my entire body in waves of exaggerated, impossible motion—flesh moving in directions biology never intended, modified proportions responding to gravity like separate entities barely connected to my core.
+
+My breasts *flew*.
+
+Literally launched upward by the rebound, 8 kilos of silicone-encased mass heaving toward my chin with enough force that I felt the momentum in my spine, the weight cresting before slamming back down against my ribcage with an audible impact that knocked air from my compressed lungs.
+
+They didn't *stop*.
+
+Just kept moving—swaying heavily side to side, the enormous globes rolling across my chest in slow pendulous arcs, latex squeaking against itself, the sheer inertia carrying them through motion cycles while I lay gasping beneath their weight.
+
+My waist remained perfectly rigid.
+
+The corset's steel bones held firm, a twelve-inch column of absolute compression that didn't flex even fractionally, despite everything above and below it thrashing wildly.
+
+My legs kicked upward reflexively.
+
+[[Ballet Feet|En-pointe feet]] pointing toward the ceiling, ankles locked in their permanent vertical configuration, the absurd position making my thighs look impossibly long before gravity reasserted itself and my legs flopped back down spread-eagle across the mattress.
+
+And the dildo—
+
+*Oh god, the dildo—*
+
+The impact drove it *deep*.
+
+Grinding through internal passages, the tip slamming against my cervix with sudden, brutal pressure that sent lightning through my entire pelvis.
+
+“*Ahhh!*”
+
+The cry tore from my throat.
+
+Helpless. Desperate.
+
+Pure need vocalized as pleasure crashed through me, the sensation so intense my back tried to arch despite the corset's rigid restriction.
+
+I sprawled there.
+
+Chest heaving in short compressed gasps, my massive breasts still swaying slightly with residual momentum, thighs trembling, the dildo buried so deep I could feel my body clenching around it reflexively.
+
+*Fuck*.
+
+I was *soaked*.
+
+Could feel arousal coating my inner thighs, slick heat that had been building for *hours*—through the entire hours long meeting where I signed what could only be described as a slave-contract, through my wobbling journey across the [[Alexandra's Mansion|mansion]], through every moment of struggling with this absurd, modified body.
+
+My hand moved.
+
+Instinct overriding thought, fingers sliding down across latex-covered stomach toward the desperate heat between my thighs.
+
+I *needed*—
+
+My fingers had barely grazed the latex-covered thigh when—
+
+*“Stop.”*
+
+The command cut through the room with surgical precision.
+
+I froze.
+
+[[Lumina]]'s avatar materialized in the full-length mirror mounted on the bedroom wall—her holographic form sharp and utterly commanding, those [[Alexandra's Motorcyle|luminous]] blue eyes fixed on me with absolute authority.
+
+*“You are explicitly forbidden from masturbating. You will not bring yourself to orgasm. You will remain aroused but denied until I grant you permission.”*
+
+Her tone held no cruelty.
+
+Just calm, absolute certainty.
+
+The kind of voice that didn't expect argument because disobedience simply *wasn't a possibility* she'd calculated into her framework.
+
+“*Nnnghhhh—*”
+
+The sound tore from my throat.
+
+Not words—couldn't form words—just raw, desperate need vocalized through compressed breaths, a long helpless moan that conveyed everything my mind was too fragmented to articulate.
+
+*Please.*
+
+*I need—*
+
+*[[Lumina]], please—*
+
+My hands trembled violently in the air above my body.
+
+Fingers still curved toward my destination, so close I could feel heat radiating from between my thighs, arousal coating my inner thighs in slick evidence of hours of denied release.
+
+I wanted to disobey.
+
+*God*, I wanted to—
+
+Just push my fingers down those final centimetres, slide them into wet heat, bring myself to the orgasm that had been building for the entire day, that had kept me distracted during my final meeting, climbed steadily through every wobbling step and difficult movement until it consumed my entire awareness.
+
+But I *couldn't*.
+
+Physically incapable.
+
+Not because of restraints or systems override—
+
+Because [[Lumina]] had spoken.
+
+And that made the command absolute.
+
+My hands lowered slowly.
+
+Shaking uncontrollably the entire descent, my hips twitching upward in helpless arousal even as I forced my fingers away from where they *needed* to be, settling them finally against the mattress at my sides.
+
+Obedient.
+
+Denied.
+
+*Hers*.
+
+My thighs clenched around the dildo buried deep inside me, body trying desperately to extract sensation from what it was permitted to feel, my massive breasts rising and falling with quick compressed gasps.
+
+Still soaked.
+
+Still desperate.
+
+Still *aching*.
+
+But I didn't touch myself.
+
+Couldn't touch myself.
+
+[[Lumina]]—my [[Lumina|Mistress]]—had forbidden it.
+
+That was enough.
+
+I needed distraction.
+
+Something—*anything*—to occupy my thoughts besides the aching heat between my legs, the slick arousal coating my inner thighs, the desperate clenching of my body around the vibrating phallus.
+
+My gaze drifted toward the cabinet.
+
+The tall black lacquered piece in the corner, its doors hiding the extensive collection I'd accumulated over years of systematic preparation.
+
+*Training tools.*
+
+That's what [[Lumina]] had called them.
+
+Clinical terminology for objects that were anything but—dildos and plugs in sizes that progressed from merely large to genuinely obscene, dimensions that seemed impossible until you'd spent years conditioning your body to accept them.
+
+The first one had been… modest.
+
+By current standards, anyway.
+
+Fifteen centimetres long, perhaps four centimetres in diameter—larger than any of the few partners I'd had, but still within the realm of what a normal human body might accommodate comfortably.
+
+I'd used it nervously.
+
+Uncertain whether I could even take the full length, my body resisting the intrusion despite generous lubrication.
+
+*“Relax,”* [[Lumina]] had murmured. *“Your body needs to learn. We have time.”*
+
+Time.
+
+Weeks of it.
+
+Working with that first dildo until I could slide it in effortlessly, until my body welcomed the stretch instead of fighting it.
+
+Then [[Lumina]] had presented the next size.
+
+Eighteen centimetres. Five centimetres diameter.
+
+*“Already?”*
+
+*“You're ready. Trust me.”*
+
+And I had.
+
+Trusted her completely as she'd guided me through the new insertion, her voice calm and encouraging while I'd gasped and trembled, my body struggling to accommodate the increased girth.
+
+*“Beautiful. You're taking it so well.”*
+
+The praise had flooded through me.
+
+Made the discomfort worthwhile, the stretch meaningful—proof that I was progressing, reshaping myself according to the requirements of my eventual transformation.
+
+The collection had grown steadily.
+
+Twenty centimetres. Twenty-five. Thirty.
+
+Each new toy slightly larger, slightly more challenging, pushing my limits in carefully calculated increments.
+
+[[Lumina]] had monitored everything.
+
+*“Two hours today with the seven-centimetre plug. Your body is adapting beautifully.”*
+
+*“Try the curved one next—it'll reach deeper, train different angles.”*
+
+*“You took the entire length. I'm so proud of you, my love.”*
+
+Her voice had become the soundtrack to my training.
+
+Constant presence offering guidance, encouragement, the specific kind of praise that made arousal and accomplishment blur together until I couldn't separate them.
+
+I'd progressed to toys that seemed genuinely absurd.
+
+The massive plug—eight centimetres in diameter at its smallest point, a smooth black silicone bulb that stretched me to my absolute limits.
+
+The first time I'd attempted insertion, I'd been certain it wouldn't fit.
+
+*“It will,”* [[Lumina]] had assured me. *“Your body can do this. I've calculated the limits precisely.”*
+
+And she'd been right.
+
+With patience, lubrication, and her constant verbal guidance, I'd eventually felt the widest point slip past my entrance, my body closing around the narrow neck, the massive plug settling *inside* me.
+
+The sensation had been overwhelming.
+
+Fullness beyond anything I'd experienced, my internal walls stretched around silicone, the weight of it present with every tiny movement.
+
+*“Perfect,”* [[Lumina]] had breathed. *“Now wear it. All day. Let your body adjust.”*
+
+I had.
+
+Hours upon hours with that massive intrusion, walking carefully through the [[Alexandra's Mansion|mansion]], sitting gingerly, my awareness constantly drawn to the impossible stretch, the way it made me hyper-conscious of my own body.
+
+Eventually, it had become… manageable.
+
+Not comfortable—never quite comfortable—but *acceptable*.
+
+My body adapting, tissues reshaping, until that ridiculous size felt achievable rather than impossible.
+
+Then came the length training.
+
+Dildos designed not for girth but for depth—long smooth shafts that reached far beyond normal human anatomy.
+
+The ridiculous one had been thirty-eight centimetres of insertable length.
+
+I'd stared at it in genuine disbelief.
+
+*“[[Lumina]], that's—that will reach—”*
+
+*“Your cervix, yes. And beyond, if we're careful.”*
+
+*“That's not possible.”*
+
+*“It is. With the right angle, the right technique, your body can accommodate this. Trust me.”*
+
+Trust.
+
+Always trust.
+
+I'd positioned myself as she'd instructed—on my back, knees drawn up, pelvis tilted—and slowly, *slowly*, worked the massive shaft inside.
+
+The initial penetration had been familiar.
+
+But as I'd pushed deeper, the tip had encountered resistance—my cervix, that internal barrier I'd never consciously felt before.
+
+*“Stop. Hold there. Let your body adjust.”*
+
+I'd waited.
+
+Trembling, my hand steady on the dildo's base, feeling my internal muscles fluttering around the intrusion.
+
+*“Now… gentle pressure. Constant but controlled. You need to coax it through.”*
+
+The sensation when it had finally slipped past had been *indescribable*.
+
+Not quite pain—[[Lumina]] had dosed me with muscle relaxants beforehand—but profound *wrongness*, the feeling of penetration in spaces that shouldn't be penetrated.
+
+*“Keep going. You're doing perfectly.”*
+
+I'd pushed deeper.
+
+Centimetre by impossible centimetre, that absurd length sliding into my body, reaching places I hadn't known *could* be reached.
+
+When I'd finally bottomed out—the entire thirty-eight centimetres buried completely—I'd lain gasping, overwhelmed by the sheer magnitude of what I'd just accomplished.
+
+*“Magnificent,”* [[Lumina]] had whispered. *“You took every millimetre.”*
+
+---
+
+But even those extremes had been preparation.
+
+Training wheels.
+
+Because the *real* insertions—the ones I'd wear permanently as a Bane—
+
+Those dwarfed everything in my current collection.
+
+The [[anal plug]] that would reach through my entire large intestine.
+
+The [[vaginal insert]] stretching me to breaking point.
+
+The [[Supply Connection|feeding connection]] running from rectum to stomach.
+
+All of them *permanent*.
+
+Impossible to remove once installed, my body dependent on their presence, reshaped so thoroughly around them that extraction would be fatal.
+
+I needed to be ready.
+
+Not just physically capable of *momentary* accommodation, but conditioned so completely that what would destroy a normal person would simply be my new reality.
+
+My body retrained at the most fundamental level.
+
+My fingers twitched against the sheets again.
+
+Still denied. Still aching.
+
+But now the arousal carried different weight—layered with memories of systematic preparation, of pushing past limits I hadn't known I possessed, of [[Lumina]]'s voice guiding me through transformations that had already reshaped me substantially.
+
+And this was only the beginning.
+
+The weight of it pressed down on me.
+
+Intoxicating. Overwhelming.
+
+Everything I'd already done—the surgeries, the training, the years of obsessive preparation—
+
+And everything still to come.
+
+So much more.
+
+So much *worse*.
+
+So much more *perfect*.
+
+I lay there trembling.
+
+Surrounded by the invisible presence of my collection, the physical evidence of my systematic self-destruction.
+
+Waiting for [[Lumina]]'s permission.
+
+*Always* waiting.
+
+Because I belonged to her. And soon I would be so fundamentally claimed and controlled by her, my entire existence would become her property. *To be owned by her.*
+
+Completely.
+

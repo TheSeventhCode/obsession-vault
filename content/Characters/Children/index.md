@@ -1,5 +1,8 @@
 ---
 title: Solene and Lucine
+aliases:
+  - twin daughters
+  - Blackwell Twins
 ---
 [[Solene Victoria Blackwell|Solene]] and [[Lucine Grace Blackwell|Lucine]] are the twin-daughters of [[Alexandra Rose Blackwell|Alexandra]], [[Lumina]], and [[Elizabeth Carter|Elizabeth]]—born from a meticulously designed genetic fusion that represents the perfect synthesis of all three mothers.
 
@@ -27,6 +30,10 @@ Furthermore, [[Lumina]] also injects them with a small dose of her [[nanobots]].
 The twins are raised in the [[Alexandra's Mansion|mansion]], surrounded by the love of all three of their mothers. They are primarily educated by [[Lumina]] and [[Alexandra Rose Blackwell|Alexandra]], the two handling primary academics and sciences, with [[Elizabeth Carter|Elizabeth]] handling social education. [[Alexandra Rose Blackwell|Alexandra]] and [[Elizabeth Carter|Elizabeth]] also share teaching them the creative arts, with [[Alexandra Rose Blackwell|Alexandra]] handling music, and [[Elizabeth Carter|Elizabeth]] art and ballet. [[Alexandra Rose Blackwell|Alexandra]] also handles their physical well-being, routinely exercising different sports with their children on [[Alexandra's Property|the property]].
 
 [[Solene Victoria Blackwell|Solene]] and [[Lucine Grace Blackwell|Lucine]] are encouraged to explore their own interests and identities, their mothers ensuring they have the chance to try and explore anything they want, no matter how expensive, or how much effort it takes.
+
+To make sure they properly develop their social skills and interact with the outside world, [[Elizabeth Carter|Elizabeth]] goes out with them on the regular, be it nearby playgrounds early on, various sports activities, or other community meetups. Only after they've grown enough to understand why the real nature of their home, family, and especially [[Alexandra Rose Blackwell|Alexandra]], needs to be hidden, do their mothers allow them to freely remain with other people without supervision—even though [[Lumina]] is constantly with them.
+
+Although also getting thought at home, [[Solene Victoria Blackwell|Solene]] and [[Lucine Grace Blackwell|Lucine]] eventually attend a private middle-school, the first institution they go to without any of their parents present. From then on, they go through a traditional school life, though always standing out by their high intellect.
 
 Regarding [[Alexandra Rose Blackwell|Alexandra]]'s transformation and real relationship between her and [[Lumina]], the three women very gradually explain to their daughters how and why [[Alexandra Rose Blackwell|Alexandra]] is different. They never lie, but keep things vague for a long time, it being self-evident, that the true nature of [[Alexandra Rose Blackwell|Alexandra]]'s entire existence can only be explained when their children have fully grown.
 

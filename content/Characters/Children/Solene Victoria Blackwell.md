@@ -2,8 +2,9 @@
 aliases:
   - Solene Blackwell
   - Solene
+  - Sol
 ---
-[[Solene Victoria Blackwell|Solene]] is one of the twin-daughters of [[Alexandra Rose Blackwell|Alexandra]], [[Lumina]], and [[Elizabeth Carter|Elizabeth]]—born from a meticulously designed genetic fusion that represents the perfect synthesis of all three mothers.
+[[Solene Victoria Blackwell|Solene]], called [[Solene Victoria Blackwell|Sol]] by her sister, is one of the twin-daughters of [[Alexandra Rose Blackwell|Alexandra]], [[Lumina]], and [[Elizabeth Carter|Elizabeth]]—born from a meticulously designed genetic fusion that represents the perfect synthesis of all three mothers.
 ## Physical Appearance
 [[Solene Victoria Blackwell|Solene]] has long, flowing platinum-white hair—an exact match to [[Alexandra Rose Blackwell|Alexandra]]'s natural hair before her transformation. It cascades like liquid silver, shimmering faintly in the light.
 

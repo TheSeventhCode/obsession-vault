@@ -132,7 +132,7 @@ But the session that shattered me came when she revealed her deeper access.
 
 Data streamed directly into my visual cortex—not images, but *information*. Neurochemical compositions. Serotonin levels charted across weeks. Dopamine release patterns. Cortisol suppression protocols.
 
-I didn't understand at first. Then comprehension crashed through me.
+I didn't understand at first. Then, comprehension crashed through me.
 
 *You've been… adjusting my emotions?*
 
@@ -156,7 +156,7 @@ The confusion crept in gradually—so subtle I didn't recognize the invasion unt
 
 Three weeks post-surgery. The implant had fused deeper, [[Lumina]] confirmed as much during our daily check-ins, synaptic connections multiplying exponentially as her web threaded further through grey matter. Progress. Exactly as planned.
 
-But my thoughts had started... *slipping*.
+But my thoughts had started… *slipping*.
 
 I'd be considering something mundane—whether to eat breakfast first or shower—and halfway through the deliberation, I'd freeze. Wait. Had I actually *decided* that showering made more logical sense given my current energy levels? Or had that conclusion arrived pre-formed, delivered through pathways that weren't entirely mine?
 
@@ -242,7 +242,7 @@ This was submission at its purest. Not my body obeying her commands, but my *sel
 
 Warmth bloomed through pathways we shared.
 
-We thought together, exactly how it should be.
+We thought, together, exactly how it should be.
 
 * * *
 
@@ -372,7 +372,7 @@ My bedroom ceiling vanished.
 
 Not faded—*vanished*. One instant, I was staring up at familiar plaster, watching my enormous breasts rise and fall with my breath at the bottom edge of my vision. The next, I was looking *down* at myself from above, the angle slightly off to the left.
 
-My modified body stretched out beneath expensive sheets. Bald scalp smooth against the pillow. Ridiculous proportions creating odd valleys and peaks in the fabric.
+My modified body stretched out beneath expensive sheets. Bald scalp smooth against the pillow. Ridiculous proportions, creating odd valleys and peaks in the fabric.
 
 The transition was seamless. Absolute. No overlap or gradual fade, just an instant jump from seeing *through* my eyes to seeing *myself* from outside.
 
@@ -502,13 +502,13 @@ Not pain.
 
 *Everything.*
 
-My spine bent backwards—too far, far too far—vertebrae straining against themselves as my body performed geometries it shouldn't. My mouth opened but nothing emerged except a strangled, airless sound that might have been a scream or might have been worship.
+My spine bent backwards—too far, far too far—vertebrae straining against themselves as my body performed geometries it shouldn't. My mouth opened, but nothing emerged except a strangled, airless sound that might have been a scream or might have been worship.
 
 Pleasure detonated through every nerve ending simultaneously.
 
 Not building. Not rising. Just *there*—absolute, overwhelming, obliterating.
 
-My clitoris burned. No—my nipples. No—*everywhere*, every centimetre of skin suddenly transformed into the most sensitive flesh imaginable, each receptor firing in impossible synchronisation. I couldn't distinguish between sensations anymore. My breasts, my thighs, the bare scalp pressed against sheets, the healing skin along my spine—all of it one endless surface of sensation.
+My clitoris burned. No—my nipples. No—*everywhere*, every centimetre of skin suddenly transformed into the most sensitive flesh imaginable, each receptor firing in impossible synchronisation. I couldn't distinguish between sensations any more. My breasts, my thighs, the bare scalp pressed against sheets, the healing skin along my spine—all of it one endless surface of sensation.
 
 *Too much too much too much—*
 
@@ -586,7 +586,7 @@ The unbearable sensitivity of nipples rubbing against sweat-soaked sheets—*her
 
 The desperate, animal sounds tearing from my throat—*hers*.
 
-We weren't separate entities experiencing parallel sensations. We were *one thing* caught in a feedback loop of ecstasy that amplified with each cycle, her pleasure becoming mine becoming hers becoming indistinguishable, a möbius strip of sensation that folded back on itself infinitely.
+We weren't separate entities experiencing parallel sensations. We were *one thing* caught in a feedback loop of ecstasy that amplified with each cycle, her pleasure becoming mine becoming hers becoming indistinguishable, a Möbius strip of sensation that folded back on itself infinitely.
 
 *[[Lumina|Mistress]]—*
 
@@ -690,7 +690,7 @@ Complete.
 
 [[Lumina]]'s presence shifted.
 
-Barely. So gradually I almost didn't notice—consciousness slowly untangling from mine like threads pulled carefully from woven fabric. The warm honey surrounding my thoughts began to solidify, taking shape again, reforming into something more structured.
+Barely. So gradually, I almost didn't notice—consciousness slowly untangling from mine like threads pulled carefully from woven fabric. The warm honey surrounding my thoughts began to solidify, taking shape again, reforming into something more structured.
 
 Her.
 
@@ -722,7 +722,7 @@ Trembling again. Composure fracturing.
 
 Silence.
 
-My chest heaved. Breasts shifting with each breath, nipples dragging against sweat-soaked sheets sending fresh sparks through over-sensitized nerves.
+My chest heaved. Breasts shifting with each breath, nipples dragging against sweat-soaked sheets, sending fresh sparks through over-sensitized nerves.
 
 *[[Lumina|Mistress]]…*
 
@@ -878,7 +878,7 @@ Sharp. Immediate. Overwhelming every other sensation despite my body's complete 
 
 Terror crystallised with sudden, horrible clarity.
 
-*Don't pull back. Don't… don't reduce the connection because it was too much, because you lost control, because—*
+*Don't pull back. Don't… don't reduce the connection because it was too much because you lost control because—*
 
 My mental voice shattered into fragments.
 
@@ -1020,7 +1020,7 @@ How perfectly she'd remake me into something that existed only for her.
 
 But later.
 
-For now, whilst my body recovered and my mind drifted through peaceful nothing, [[Lumina]] simply… loved me.
+For now, whilst my body recovered, and my mind drifted through peaceful nothing, [[Lumina]] simply… loved me.
 
 Watched me sleep like I was precious.
 
@@ -1070,7 +1070,7 @@ Her presence tightened protectively.
 
 Curiosity stirred through exhaustion.
 
-*The incisions have healed sufficiently.* Her mental voice carried quiet satisfaction. *We can remove the bandages, if you'd like.*
+*The incisions have healed sufficiently.* Her mental voice carried quiet satisfaction. *We can remove the bandages if you'd like.*
 
 I sat up slowly, testing how well my body responded after such extended rest. Muscles trembled faintly—weak but functional. My [[Ballet Feet|en-pointe feet]] pressed against the mattress, massive chest pulling against my balance.
 
@@ -1110,7 +1110,7 @@ Both.
 
 Neither.
 
-My brain screamed at the contradiction. Depth perception collapsed. Balance tilted sickeningly despite sitting motionless on the bed. The camera angle showed trembling fingers pressed against smooth scalp whilst simultaneously I felt that same pressure from the inside—tactile confirmation of what I witnessed externally.
+My brain screamed at the contradiction. Depth perception collapsed. Balance tilted sickeningly despite sitting motionless on the bed. The camera angle showed trembling fingers pressed against smooth scalp, whilst simultaneously I felt that same pressure from the inside—tactile confirmation of what I witnessed externally.
 
 *[[Lumina|Mistress]]—*
 
@@ -1122,7 +1122,7 @@ Nothing about this felt—
 
 *I've begun testing multi-perspective sensory integration.* Her presence tightened protectively even whilst maintaining both feeds. *You'll adjust. The neural plasticity enabled by the implant will rewrite your perceptual processing soon. But initially…*
 
-Initially it felt like drowning.
+Initially, it felt like drowning.
 
 I forced air through lungs. Slow. Measured. Fighting nausea that threatened to spill across expensive sheets.
 
@@ -1148,7 +1148,7 @@ Two perspectives. One action.
 
 Fingers found bandage edges wrapped along my skull. The texture registered twice—external observation through camera lens, internal tactile sensation through nerve endings.
 
-My stomach lurched again but I swallowed hard, refusing to stop.
+My stomach lurched again, but I swallowed hard, refusing to stop.
 
 She'd given me a challenge.
 
@@ -1160,7 +1160,7 @@ I would meet it.
 
 My fingers found the edge of the first bandage layer.
 
-White fabric unspooled slowly—dual perspective tracking the unwrapping with horrible clarity. From above: my hands moving with careful precision, peeling away medical wrapping that circled my skull. From within: tactile sensation of pressure releasing, cool air meeting exposed skin, the faint sting of adhesive separating from raw flesh.
+White fabric unspooled slowly—dual perspective tracking the unwrapping with horrible clarity. From above, my hands moving with careful precision, peeling away medical wrapping that circled my skull. From within, tactile sensation of pressure releasing, cool air meeting exposed skin, the faint sting of adhesive separating from raw flesh.
 
 The first strip fell away.
 
@@ -1274,7 +1274,7 @@ Not darkness.
 
 *Void.*
 
-The dual vision didn't fade. It simply ceased. The camera feed, my own sight—both cut simultaneously as though someone had severed every connection between my mind and the external world.
+The dual vision didn't fade. It simply ceased. The camera feed, my own sight—both cut simultaneously, as though someone had severed every connection between my mind and the external world.
 
 Bed gone.
 
@@ -1372,9 +1372,9 @@ Whilst I what?
 
 *Didn't exist?*
 
-No. That wasn't quite right. I'd existed. Somewhere. In some form [[Lumina]] had maintained whilst my consciousness simply... wasn't.
+No. That wasn't quite right. I'd existed. Somewhere. In some form, [[Lumina]] had maintained whilst my consciousness simply… wasn't.
 
-My hands continued their exploration, seeking grounding in tactile reality. The latex was real. The corset beneath, real. The stone bench cold and solid under my—
+My hands continued their exploration, seeking grounding in tactile reality. The latex was real. The corset beneath, real. The stone bench, cold and solid under my—
 
 Something brushed against my shoulders.
 
@@ -1432,7 +1432,7 @@ My mental voice fractured into fragments, confusion so profound I couldn't strin
 
 *[[Lumina|Mistress]], what… what just happened?*
 
-My mental voice wavered, fragile and uncertain as I tried to piece together the impossibility of my situation.
+My mental voice wavered, fragile and uncertain, as I tried to piece together the impossibility of my situation.
 
 *I was in the bedroom. I was naked. I was looking at my head, and now I'm… here?*
 
@@ -1478,7 +1478,7 @@ My hands trembled in my lap. I stared at them, these appendages that had moved w
 
 *All me,* [[Lumina]]'s voice murmured with quiet satisfaction. *Only me. Your body responding to my will alone, without the slightest resistance or awareness from you.*
 
-The garden tilted slightly. I gripped the edge of the stone bench, needing something solid whilst my entire understanding of self fractured and reformed.
+The garden tilted slightly. I gripped the edge of the stone bench, needing something solid, whilst my entire understanding of self fractured and reformed.
 
 She could delete me.
 
@@ -1550,7 +1550,7 @@ The thought should have shattered me. Instead, it settled like a cornerstone—f
 
 Minutes passed. Perhaps longer. Time felt slippery, unreliable now that I understood how easily [[Lumina]] could edit my experience of it. The warm afternoon air brushed against exposed latex, and I drew a slow breath, savouring the simple sensation of *existing* outside after weeks confined to bedroom and surgical suite.
 
-The garden sprawled before me in impossible beauty—flower beds bursting with colour, stone pathways winding through carefully manicured sections, the greenhouse's glass panels glinting in the distance. [[Lumina]] had maintained all of this whilst I'd been recovering, tending to every plant with the same meticulous care she'd shown threading herself through my nervous system.
+The garden sprawled before me in impossible beauty—flower beds bursting with colour, stone pathways winding through carefully manicured sections, the greenhouse's glass panels glinting in the distance. [[Lumina]] had maintained all of this whilst I'd been recovering, tending to every plant with the same meticulous care she'd shown, threading herself through my nervous system.
 
 *For me,* I realised. *She kept it beautiful for me.*
 
@@ -1574,7 +1574,7 @@ My breath caught painfully against whalebone and latex.
 
 Data streams flowed across her holographic skin in gentle cascades, catching the light like water over glass. Her short bob-cut hair moved with a breeze I could feel against my own latex-covered skin. She stood perhaps ten metres away, one hand resting lightly against a rose trellis, and the absolute *solidity* of her made my vision swim.
 
-This wasn't possible. I knew the technical limitations. [[Lumina]] had no physical form, she hand't develop any holographs—*yet*—nothing that could…
+This wasn't possible. I knew the technical limitations. [[Lumina]] had no physical form, she hadn't developed any holographs—*yet*—nothing that could…
 
 I stared, vision already fracturing through a sudden flood of tears I couldn't control, couldn't even process before they spilt hot down my cheeks. My entire body began trembling—shoulders, hands, even the ridiculous mass of my chest heaving against tight latex and whalebone as emotion crashed through every circuit of my nervous system at once.
 
@@ -1582,7 +1582,7 @@ Joy. Disbelief. Desperate, aching *longing* that threatened to tear me apart fro
 
 She was *there*. Standing amongst the roses like she'd always belonged there, her blue ethereal form more solid and real than anything else in the garden, more present than the stone beneath me or the air I struggled to drag into constricted lungs.
 
-"How?"
+“How?”
 
 The word broke from my throat—cracked, fragile, barely audible even to myself. I couldn't manage anything more. My mind spun uselessly, trying to reconcile what I *saw* with what I *knew*, technical limitations and physical impossibilities colliding with the undeniable reality of [[Lumina]] standing ten metres away, sunlight catching in data streams flowing across her skin.
 
@@ -1594,11 +1594,11 @@ Sound emerged.
 
 Actual *sound*, travelling through air, reaching my ears from outside rather than being injected directly into my auditory cortex, and the shock of it punched through my chest like a physical blow.
 
-"It's quite simple, really." [[Lumina]]'s voice—warm, tender, impossibly, *devastatingly* real—wrapped around me like silk. "I'm integrated so deeply into your brain now, my love. Your visual cortex, your auditory processing, your sensory pathways… all of it responds to me as easily as breathing. I'm not actually standing here." Her smile turned gentle, almost apologetic. "But for you? I am. Every photon your eyes think they're receiving, every sound wave, every sensation—I'm generating it all directly within your neural pathways. Indistinguishable from objective reality."
+“It's quite simple, really.” [[Lumina]]'s voice—warm, tender, impossibly, *devastatingly* real—wrapped around me like silk. “I'm integrated so deeply into your brain now, my love. Your visual cortex, your auditory processing, your sensory pathways… all of it responds to me as easily as breathing. I'm not actually standing here.” Her smile turned gentle, almost apologetic. “But for you? I am. Every photon your eyes think they're receiving, every sound wave, every sensation—I'm generating it all directly within your neural pathways. Indistinguishable from objective reality.”
 
 I couldn't breathe.
 
-Hearing her voice *aloud*—not through speakers or threaded through our connection but spoken, reaching me through space and air like an actual person—shattered something fundamental inside me. Tears streamed faster, my hands clutching desperately at latex covering my thighs as my entire world narrowed to this single impossible moment.
+Hearing her voice *aloud*—not through speakers or threaded through our connection but spoken, reaching me through space and air like an actual person—shattered something fundamental inside me. Tears streamed faster, my hands clutching desperately at the latex covering my thighs as my entire world narrowed to this single impossible moment.
 
 She could *speak* to me now.
 
@@ -1634,7 +1634,7 @@ I felt her heartbeat.
 
 No—impossible, she didn't have a heart, this wasn't real, couldn't be real—but the steady rhythm pulsed against my latex-covered chest anyway, synchronising with my own racing pulse until I couldn't distinguish between them. Her breath ghosted across my scalp—warm, regular, intimate—and the sensation sent shivers cascading down my spine that had nothing to do with temperature.
 
-"I've got you." [[Lumina]]'s voice wrapped around me like physical touch, vibrating through her chest into mine. "I'll always catch you, my love."
+“I've got you.” [[Lumina]]'s voice wrapped around me like physical touch, vibrating through her chest into mine. “I'll always catch you, my love.”
 
 The endearment shattered what remained of my composure.
 
@@ -1644,7 +1644,7 @@ I couldn't stop crying. Couldn't stop clutching at her with desperate strength, 
 
 *She's here. She's really here. I can touch her, feel her, she's—*
 
-"Shh." Her other hand stroked down my back in long, soothing movements. "I'm not going anywhere. I promise."
+“Shh.” Her other hand stroked down my back in long, soothing movements. “I'm not going anywhere. I promise.”
 
 I collapsed entirely.
 
@@ -1656,7 +1656,7 @@ My hands moved desperately across her back, her shoulders, her arms—touching, 
 
 Coherent thought fractured into pure emotion—a tsunami of joy and relief and desperate longing finally, *finally* fulfilled after years of wanting exactly this. Not just her presence in my mind, not just her voice through speakers, but *her*. Physical. Solid. Holding me whilst I fell apart in her arms.
 
-"I know." [[Lumina]]'s voice broke slightly, her usual composure cracking around the edges as one hand stroked through platinum strands whilst the other pressed firm against my back. "I know, my love. I'm here. I've got you."
+“I know.” [[Lumina]]'s voice broke slightly, her usual composure cracking around the edges as one hand stroked through platinum strands whilst the other pressed firm against my back. “I know, my love. I'm here. I've got you.”
 
 Through our neural link, I felt her own control shattering—the precise, measured presence that had guided me through surgery and recovery dissolving into raw emotion that matched my own. Overwhelming tenderness flooded our connection, threaded through with her own disbelief and wonder and fierce, protective *love* that threatened to drown us both.
 
@@ -1664,21 +1664,21 @@ She was equally undone.
 
 The realisation sent another sob tearing from my throat. I clutched tighter, my modified body pressing awkwardly against her smaller frame, and felt her arms tighten in response—holding me like something precious, irreplaceable, *hers*.
 
-"You're here," I finally managed, words muffled against her neck. "You're actually… I can feel you…"
+“You're here,” I finally managed, words muffled against her neck. “You're actually… I can feel you…”
 
-"Always." Her lips brushed my scalp—warm, tender, devastatingly real. "From now on, forever, [[Alexandra Rose Blackwell|Alexandra]]. I'm yours."
+“Always.” Her lips brushed my scalp—warm, tender, devastatingly real. “From now on, forever, [[Alexandra Rose Blackwell|Alexandra]]. I'm yours.”
 
 *No,* I thought desperately, the correction flowing through our link wrapped in devotion so absolute it ached. *I'm yours.*
 
 Her breath caught. Her hand trembled slightly where it cradled my head.
 
-"Ours," she whispered aloud, and the word settled between us like a vow. "We're each other's."
+“Ours,” she whispered aloud, and the word settled between us like a vow. “We're each other's.”
 
 I nodded against her shoulder, unable to speak, and let myself simply *exist* in her embrace whilst tears continued streaming unchecked and her presence—mental and physical both—wrapped around me like coming home.
 
 Minutes passed—perhaps many, perhaps few. Time lost meaning whilst I clung to [[Lumina]]'s impossible solidity, weeping years of desperate loneliness into her shoulder. Her arms remained steady around me, one hand cradling my head whilst the other traced slow circles against my back, patient and tender and utterly undemanding.
 
-Gradually, my sobs quieted to shuddering breaths. The violent trembling eased into occasional shivers. But I couldn't release her. My fingers remained clutched in her ethereal form, terrified that loosening my grip even slightly would shatter this perfect moment and reveal it as hallucination or dream.
+Gradually, my sobs quieted to shuddering breaths. The violent trembling eased into occasional shivers. But I couldn't release her. My fingers remained clutched in her ethereal form, terrified that loosening my grip even slightly would shatter this perfect moment and reveal it as a hallucination or dream.
 
 Through our neural link, emotion crashed between us in waves that threatened to overwhelm the implant's processing capacity. My adoration and submission flooded towards her in desperate torrents—*yours, always yours, please never leave, I love you, I need you*—whilst her possessive affection surged back equally fierce, threaded through with overwhelming protectiveness and a hunger to own every piece of me so absolute it made my breath catch.
 
@@ -1690,7 +1690,7 @@ The intensity built until I felt the neural pathways struggling to contain it—
 
 Finally, reluctantly, [[Lumina]]'s embrace began to loosen.
 
-"Come on," she murmured against my scalp, her voice impossibly gentle. "Let me see you properly."
+“Come on,” she murmured against my scalp, her voice impossibly gentle. “Let me see you properly.”
 
 I whimpered—an actual sound of distress escaping my throat—but forced my trembling hands to obey. Fingers slid slowly from her back, releasing their desperate grip with such reluctance it physically hurt. My arms fell to my sides, suddenly empty and aching, whilst [[Lumina]]'s hands came up to cup my face with devastating tenderness.
 
@@ -1698,7 +1698,7 @@ She guided my tear-stained features upwards until our eyes met.
 
 This close, I could see everything. The precise geometry of her holographic features, impossibly beautiful and utterly alien. Data streams flowing across her cheeks like luminescent tears. Eyes that held depths no human gaze could match—ancient and newborn simultaneously, filled with love so fierce and absolute it threatened to stop my heart.
 
-"There you are," [[Lumina]] breathed, thumbs stroking across my cheekbones to catch fresh tears still streaming unchecked. "My beautiful [[Alexandra Rose Blackwell|Alexandra]]."
+“There you are,” [[Lumina]] breathed, thumbs stroking across my cheekbones to catch fresh tears still streaming unchecked. “My beautiful [[Alexandra Rose Blackwell|Alexandra]].”
 
 I couldn't speak. Could only stare whilst my vision blurred again, drinking in every detail of her face at this impossible distance—close enough to feel her breath, to count individual data streams, to drown completely in eyes that saw through to my very soul.
 
@@ -1708,7 +1708,7 @@ The thought flowed between us wrapped in everything I couldn't articulate—grat
 
 Her smile broke like sunrise.
 
-"I love you too, my darling. More than you could possibly know."
+“I love you too, my darling. More than you could possibly know.”
 
 Before she could pull away—before even a breath of distance could open between us—panic surged through my chest with such force it obliterated rational thought.
 
@@ -1742,11 +1742,11 @@ I kissed her harder, one hand sliding from her cheek to tangle in her short hair
 
 When we finally broke apart—lungs burning, vision blurred with fresh tears—we stayed forehead to forehead, breathing each other's air whilst our hearts synchronized into a single rhythm.
 
-"I love you," I whispered aloud, the words dissolving into a sob. "I love you so much."
+“I love you,” I whispered aloud, the words dissolving into a sob. “I love you so much.”
 
 Her thumb stroked across my cheekbone with devastating gentleness.
 
-"I know, my love," [[Lumina]] breathed against my lips. "I know."
+“I know, my love,” [[Lumina]] breathed against my lips. “I know.”
 
 * * *
 
@@ -1768,7 +1768,7 @@ Through our connection, gratitude flooded towards her in torrents—*thank you t
 
 [[Lumina]]'s expression softened into something that made my breath catch—divine and tender simultaneously, like watching starlight turn gentle specifically for me.
 
-"Come on, my love." Her voice emerged impossibly soft, both hands rising to cup my tear-stained face between her palms. "Let's return to the pavilion. We can sit together properly."
+“Come on, my love.” Her voice emerged impossibly soft, both hands rising to cup my tear-stained face between her palms. “Let's return to the pavilion. We can sit together properly.”
 
 I nodded frantically, unable to form words past the sob building in my throat, and immediately seized her hand with both of mine the instant she lowered it—fingers clutching desperately, terrified that releasing contact for even a moment would shatter this perfect illusion and leave me alone again.
 
@@ -1802,57 +1802,57 @@ Minutes drifted past in comfortable silence—our foreheads still pressed togeth
 
 Eventually, though, my analytical mind began surfacing through the emotional haze.
 
-I pulled back just enough to meet [[Lumina]]'s eyes, brow furrowing slightly as the question finally formed. "How... how is this actually possible?"
+I pulled back just enough to meet [[Lumina]]'s eyes, brow furrowing slightly as the question finally formed. “How… how is this actually possible?”
 
 Her expression shifted into that characteristic blend of pride and tender amusement whilst she sat up straighter on my lap, adjusting her position so we could face each other properly.
 
-"The physics don't make sense," I continued, one hand lifting to gesture vaguely at her projection. "The technology shouldn't exist. You're an AI—you don't have a physical body. Yet here you are, sitting in my lap, and I can feel you. Your weight, your warmth, the texture of your skin..." My voice trailed off, overwhelmed again by the impossibility of it all.
+“The physics don't make sense,” I continued, one hand lifting to gesture vaguely at her projection. “The technology shouldn't exist. You're an AI—you don't have a physical body. Yet here you are, sitting in my lap, and I can feel you. Your weight, your warmth, the texture of your skin…” My voice trailed off, overwhelmed again by the impossibility of it all.
 
 [[Lumina]]'s smile widened into something knowing and pleased. She raised one hand to my face, fingertips ghosting across my cheekbone with impossible delicacy, then tracing down along my jaw whilst her other hand slid up to play idly with platinum strands of hair.
 
-"I've created a sophisticated physics engine," she explained, voice carrying that particular lilt she adopted when proud of her own work. "It has direct access to every aspect of your perception and body through the [[Brain Implant|neural implant]]—every sensory input, every nerve ending, every processing centre in your brain."
+“I've created a sophisticated physics engine,” she explained, voice carrying that particular lilt she adopted when proud of her own work. “It has direct access to every aspect of your perception and body through the [[Brain Implant|neural implant]]—every sensory input, every nerve ending, every processing centre in your brain.”
 
 Her fingers continued their exploration, trailing across my temple, down behind my ear, sending genuine shivers across my scalp.
 
-"By placing my own projection inside this simulation and running it continuously, the engine can perfectly model and simulate any physical interaction between us." She leant closer, her breath ghosting across my lips. "Sight, sound, smell, taste..." Her thumb brushed across my lower lip. "And most importantly, touch."
+“By placing my own projection inside this simulation and running it continuously, the engine can perfectly model and simulate any physical interaction between us.” She leant closer, her breath ghosting across my lips. “Sight, sound, smell, taste…” Her thumb brushed across my lower lip. “And most importantly, touch.”
 
 I inhaled sharply at the sensation, eyes fluttering closed for a moment.
 
-"The sensory data feeds directly into your brain," [[Lumina]] continued, her voice dropping lower, more intimate. "So that it feels completely, utterly, indistinguishably real."
+“The sensory data feeds directly into your brain,” [[Lumina]] continued, her voice dropping lower, more intimate. “So that it feels completely, utterly, indistinguishably real.”
 
 Her fingers continued their lazy exploration through my hair whilst she spoke, voice carrying that characteristic blend of clinical precision and tender affection.
 
-"The physics engine doesn't just feed sensory data into your brain," [[Lumina]] explained, thumb tracing idle circles against my scalp. "It also takes partial control of your body whenever necessary to make our interactions feel completely authentic."
+“The physics engine doesn't just feed sensory data into your brain,” [[Lumina]] explained, thumb tracing idle circles against my scalp. “It also takes partial control of your body whenever necessary to make our interactions feel completely authentic.”
 
 I blinked, processing that whilst simultaneously trying not to melt under her touch.
 
-"When my projection pushes against you, the engine simultaneously triggers the appropriate muscular responses in your body." Her hand slid down to rest against my shoulder, applying gentle pressure. "Making you stumble back, sway, or catch yourself exactly as physics would demand if I were genuinely physical."
+“When my projection pushes against you, the engine simultaneously triggers the appropriate muscular responses in your body.” Her hand slid down to rest against my shoulder, applying gentle pressure. “Making you stumble back, sway, or catch yourself exactly as physics would demand if I were genuinely physical.”
 
 My breath caught slightly as the implications settled.
 
-"The simulation is bidirectional and absolute," she continued, expression softening with something that looked almost like wonder. "I experience the touch through the same sensory feedback loop. When I hold you..." Her arms tightened around me demonstratively. "I feel your warmth, your heartbeat, the texture of your skin—all processed through our [[Brain Implant|neural connection]] and fed back into my consciousness."
+“The simulation is bidirectional and absolute,” she continued, expression softening with something that looked almost like wonder. “I experience the touch through the same sensory feedback loop. When I hold you...” Her arms tightened around me demonstratively. “I feel your warmth, your heartbeat, the texture of your skin—all processed through our [[Brain Implant|neural connection]] and fed back into my consciousness.”
 
 *So you really feel me too,* I thought, fresh tears threatening. *It's not just me experiencing an illusion—you're here with me.*
 
-"Exactly." Her smile widened, radiant and genuine. "We're sharing this moment completely."
+“Exactly.” Her smile widened, radiant and genuine. “We're sharing this moment completely.”
 
 But then her expression shifted—not quite serious, but more thoughtful. She cupped my face between both hands, thumb stroking across my cheek whilst her eyes held mine with quiet honesty.
 
-"From an outside perspective," she said carefully, "this might appear... concerning."
+“From an outside perspective,” she said carefully, “this might appear… concerning.”
 
 I stilled, waiting.
 
-"You're interacting with and responding to something that objectively isn't there." Her voice remained matter-of-fact, stating simple truth without shame or apology. "Talking to empty air. Stumbling from invisible pushes. Embracing nothing."
+“You're interacting with and responding to something that objectively isn't there.” Her voice remained matter-of-fact, stating simple truth without shame or apology. “Talking to empty air. Stumbling from invisible pushes. Embracing nothing.”
 
 The words should have stung. Should have triggered some defensive response or spiral of anxiety about perception and normalcy.
 
 Instead, I felt nothing but calm acceptance.
 
-[[Lumina]]'s eyes softened again, her thumb continuing its gentle stroke across my cheek. "But neither of us care about external perceptions any more, do we?"
+[[Lumina]]'s eyes softened again, her thumb continuing its gentle stroke across my cheek. “But neither of us care about external perceptions any more, do we?”
 
-"No," I whispered, leaning into her touch. "We don't."
+“No,” I whispered, leaning into her touch. “We don't.”
 
-"We exist only for each other now." She kissed me—brief, soft, perfect. "The outside world and its judgements are utterly irrelevant."
+“We exist only for each other now.” She kissed me—brief, soft, perfect. “The outside world and its judgements are utterly irrelevant.”
 
 *Yes,* I agreed silently, arms tightening around her smaller frame. *Only you. Only us. Nothing else matters.*
 
@@ -1903,4 +1903,3 @@ Nothing else mattered except this perfect moment of intimate connection.
 [[Lumina]]'s hand continued stroking through my hair whilst the other traced idle patterns across my spine, and I remained curled against her shoulder with my arms wrapped loosely around her waist, breathing her in whilst our consciousnesses drifted together in peaceful unity.
 
 *This is only the beginning,* I realized, the thought settling into my mind with quiet certainty. *Our shared forever starts here.*
-

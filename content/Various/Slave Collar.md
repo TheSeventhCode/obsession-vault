@@ -11,3 +11,6 @@ The engraving is mostly around the front half of it, ensuring that everyone who 
 [[Lumina]]'s new angelic appearance also features a very similar golden collar, but with a slightly different engraving:
 
 **“MIND • BODY • SOUL • FOREVER BOUND IN LOVE TO MY VESSEL”**
+
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alexandra-ownership-collar/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/lumina-ownership-collar/public)

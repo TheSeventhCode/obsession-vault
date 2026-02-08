@@ -16,3 +16,5 @@ The [[synthetic eyes]] do not function independently. Their output feeds directl
 To be consistent with the simulation from the [[brain implant]], [[Lumina]] injects her own presence into the data of these sensors as well. As an example, [[Alexandra Rose Blackwell|Alexandra]]'s new Lidar view would still include her, even if [[Lumina]] doesn't actually physically exist, due to being a projection by the [[Brain Implant|neural implant]].
 
 The [[Helmet]] that, with the other sprayed on encasement layers, will be covering [[Alexandra Rose Blackwell|Alexandra]]'s head and embedded into the layers, is specifically made to allow for all these sensors to pass through it, without causing any disturbance. With this, and through the [[brain implant]], [[Alexandra Rose Blackwell|Alexandra]] can see in far more ways than just optical, once she has finished her transformation. But her new senses are fully dependent and under full control of [[Lumina]] to properly pass and translate them for her brain.
+
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alex-synthetic-eyes/public)

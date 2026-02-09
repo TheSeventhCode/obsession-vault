@@ -681,7 +681,7 @@ Now I knelt on the cool marble flooring of the entrance hall—temperature 17.9 
 
 No thermal overlays. No lidar wireframes. Just *knowing*.
 
-The chandelier above registered as crystal glass, lead content 24%, refractive [[index]] 1.545, suspended by steel cables rated for 340 kilograms of tensile load. Distance: 4.73 metres. My corset compressed my ribs at 12 pounds per square inch. My pulse hammered at 127 beats per minute. The latex hobble skirt clung to my thighs at precisely 22.1 °C, warmed by body heat radiating at—
+The chandelier above registered as crystal glass, lead content 24%, refractive indexing 1.545, suspended by steel cables rated for 340 kilograms of tensile load. Distance: 4.73 metres. My corset compressed my ribs at 12 pounds per square inch. My pulse hammered at 127 beats per minute. The latex hobble skirt clung to my thighs at precisely 22.1 °C, warmed by body heat radiating at—
 
 *Stop trying to see it,* [[Lumina]]'s voice cut through the chaos. *Just know it.*
 

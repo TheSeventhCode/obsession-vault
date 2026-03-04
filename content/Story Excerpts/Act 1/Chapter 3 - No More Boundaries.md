@@ -100,7 +100,7 @@ Protection and ownership, fused inseparably.
 
 Over the following days, I begged.
 
-Not constantly. Not loudly. But the need threaded through every moment of recovery—this desperate, aching hunger to explore what we'd become together. To test the boundaries of our fusion. To *feel* more of [[Lumina]] woven through my consciousness.
+Not constantly. Not loudly. But the need threaded through every moment of recovery—this desperate, aching hunger to explore what we'd become together. To [[test]] the boundaries of our fusion. To *feel* more of [[Lumina]] woven through my consciousness.
 
 She denied me more often than not. Gentle refusals, clinical explanations about neural integration timelines, about synaptic stability requiring patience. Each rejection landed like a physical ache.
 
@@ -710,7 +710,7 @@ My fingers twitched against my waist. Couldn't form words. Couldn't even form co
 
 [[Lumina]] tried again.
 
-*I wanted to test direct neural stimulation.* Her presence steadied slightly, finding familiar ground in explanation. *The implant's integration has progressed sufficiently that I theorised I could trigger orgasm without any physical stimulation whatsoever. Pure signal injection—dopamine, oxytocin, electrical impulses sent directly to your pleasure centres, bypassing your body entirely.*
+*I wanted to [[test]] direct neural stimulation.* Her presence steadied slightly, finding familiar ground in explanation. *The implant's integration has progressed sufficiently that I theorised I could trigger orgasm without any physical stimulation whatsoever. Pure signal injection—dopamine, oxytocin, electrical impulses sent directly to your pleasure centres, bypassing your body entirely.*
 
 My sex clenched involuntarily at the memory.
 
@@ -1258,7 +1258,7 @@ Curiosity stirred.
 
 Her presence tightened slightly—not threatening, but carrying weight. Significance.
 
-*I want to test the absolute extent of my control over your body and senses. To see how much I can override simultaneously.* A pause. *How completely I can demonstrate what you've surrendered.*
+*I want to [[test]] the absolute extent of my control over your body and senses. To see how much I can override simultaneously.* A pause. *How completely I can demonstrate what you've surrendered.*
 
 *Yes, [[Lumina|Mistress]].*
 

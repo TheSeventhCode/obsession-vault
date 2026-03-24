@@ -15,7 +15,7 @@ What remains is no longer recognisable as feet. From mid-calf downward, her legs
 
 Each needle-point terminus is roughly the diameter of a small fingertip—approximately12–15 mm across. These points have been slightly extended beyond the biological structure with reinforced synthetic tips, ensuring they can bear her full weight without fracturing.
 
-She now balances entirely on these two pinpoint contacts. Her feet do not flex, do not adjust. Every step is a deliberate act of controlled descent onto an area smaller than a coin.
+She now balances entirely on these two pinpoint contacts. Her feet do not flex, do not adjust. Every step is a deliberate act of controlled descent onto an area smaller than a coin. These contact points are so small, that even the smallest moment of imbalance causes Alexandra to stumble and fall, her body incapable of moving without constantly maintaining _perfect_ balance.
 
 Once her Bane transformation is complete and the [[armour]] feet are fitted, the remaining biological structure is fully encased. The smooth black latex skin makes the transition from calf to needle-point utterly seamless. Her legs appear as elegant, tapering rods ending in impossibly sharp points. There is no hint of humanity left—no toes, no heels, no human foot shape whatsoever.
 

@@ -1298,11 +1298,43 @@ My hands trembled against the smooth oval of my head, processing the reality of 
 
 *But there's more,* she whispered, her voice dropping to intimate intensity. *The [[armour]]'s composition creates a Faraday cage effect—it completely isolates you from external electromagnetic interference. No wireless signals can penetrate it. No radio frequencies can reach the systems embedded in your body. You're electromagnetically sealed, my love. Cut off. Separated from the rest of the universe by barriers that make you invisible to every spectrum of wireless communication.*
 
-The implication crashed through my consciousness with devastating force.
+*There's more,* [[Lumina]] continued, her voice carrying that particular cadence she used when reciting specifications—clinical on the surface, something reverent underneath. *Once all the layers have fully merged together, the protection becomes absolute. Not just against physical force.*
 
-*The only wireless access point to your systems,* [[Lumina]] continued, her words precise and absolute, *is the [[maintenance port]] between your legs. That single small connection is now the sole bridge between your sealed existence and the outside world. The only way I can remotely access your body's functions. The only break in your all-encompassing isolation.*
+She paused, letting me process.
 
-My latex-coated hand moved unconsciously downward, trembling fingers finding the barely-visible port amidst the displayed contours of my fake genitals.
+*Radiation. The fully fused mesh will attenuate ionising radiation so completely that you could walk through the core of a nuclear reactor and sustain zero biological damage. Contaminated zones, fallout, radioactive waste—none of it can reach you. You could stand inside a detonating warhead and emerge without a single cell damaged.*
+
+My fingers were still pressed against the smooth dome of my sealed head. I couldn't stop touching it. The featureless surface where my face used to be, where my ears used to be, where every recognisable thing about me had been.
+
+*Pressure. The structural integrity of the fused layers means you could survive at the bottom of the deepest ocean trench. The [[armour]] distributes compressive force so completely that crushing becomes irrelevant. You could be buried under tonnes of concrete and simply wait.*
+
+Wait for what, I almost thought. For [[Lumina]]. Always for [[Lumina]].
+
+*Temperature.* Something almost playful entered her tone. *Negative one hundred degrees Celsius to over two hundred. You could be submerged in liquid nitrogen or pushed into a furnace. The [[Power Supply|fusion core]] would compensate for cold. Your tanks would manage heat dissipation. Your biology inside will remain at a perfect, constant temperature, regardless of what the outside world tries to do to you.*
+
+The image hit me all at once—my featureless black body submerged in ice, in acid, in fire. Untouched. Unreachable.
+
+*And no chemical compound that exists can damage the fused layers,* she finished. *Acid. Caustic base. Industrial solvents. Biological agents. Nothing interacts with what your skin has become.*
+
+Silence in the [[lab]].
+
+*You understand what this means.*
+
+I did. The realisation settled through me slowly, the weight of it dropping into my chest where a heartbeat used to be.
+
+Nothing could hurt me. Nothing could reach me. No environment, no hazard, no force that I could experience on this world would ever touch the biology sealed inside these layers again.
+
+I was permanently separated from everything.
+
+The only thing that connected me to anything outside was the port between my legs.
+
+That flat, almost invisible connector buried past the fake latex of my cunt — smaller than a palm, flushed so flat against my body it barely registered in my own sensor data. Through it, [[Lumina]] would restock my oxygen solution, nutrients, water. Through it, she drained me clean. That was everything. That was the entirety of my relationship with the outside world now.
+
+A hole between my legs.
+
+And even that wasn't *mine*. [[Lumina]] controlled every valve.
+
+I was sealed. Permanently. With the prison holding me, becoming my very skin.
 
 *But that connection—even that final bridge—doesn't truly matter,* [[Lumina]] whispered through our neural link, her voice shifting to something softer, trembling with emotion I'd never heard from her before. *Because I'm already here, my love. Inside you. Always.*
 

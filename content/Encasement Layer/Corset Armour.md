@@ -9,7 +9,7 @@ The special torso section of [[Alexandra Rose Blackwell|Alexandra]]'s [[armour]]
 
 The entire front half of the mid-section of this corset, is made with an extreme potential for bend, stretch and control. As [[Alexandra Rose Blackwell|Alexandra]] will have to go through countless enemas regularly and the devices within her can cause her belly to be inflated, the corset section has to allow for the resulting inflation of her belly, without actually letting too much go of its corseting and waist compression-effect. The entire piece can also be locked in position, fixating [[Alexandra Rose Blackwell|Alexandra]] into a perfect posture, or letting it loose and stretch enough for her to still be extremely flexible.
 
-This lower section also forces Alexandra into a more slutty posture, sticking out her ass, permanently forcing her back to bend further.
+This lower section also forces [[Alexandra Rose Blackwell|Alexandra]] into a more slutty posture, sticking out her ass, permanently forcing her back to bend further.
 
 The huge section enveloping [[Alexandra Rose Blackwell|Alexandra]]'s breasts is made with microscopic, ensuring that when the [[armour]] layer is fully covered again by liquid latex, her breasts remain as squishy and natural-moving as if there isn't anything encasing or protecting them at all.
 

@@ -1,3 +1,4 @@
+
 Neither of us moved first.
 
 Minutes passed—or didn't. Time had become irrelevant inside the [[Lab|spray chamber]], inside this body, inside the shared pulse beating through my womb. [[Lumina's projection]] stayed pressed against my chest, her blue-tinged hair brushing the underside of my jaw, and I held her there with arms that could crush steel but cradled her like something made of glass. The [[core unit]]'s steady rhythm matched the quiet hum of the laboratory's ventilation. Everything still. Everything *enough*.
@@ -560,409 +561,571 @@ Something that could never be taken apart.
 
 * * *
 
-The [[Touch Sensors|sensory mesh]] kept feeding me the floor. Every microscopic imperfection in the marble tile beneath my knees translated into burning pinpricks across the latex skin—thousands of data points screaming texture and temperature and pressure, and I just… received it. Knelt there and received it, the way I received everything now.
+I remained there on my knees, my body trembling in the aftermath of... myself. The [[Armour|armour layer]] trapped beneath my skin wouldn't let me collapse fully—wouldn't let me crumple the way my mind wanted to. I could feel [[Lumina]]'s presence against my new skin, her fingertips trailing over the absolute darkness that had consumed everything I'd once been.
 
-[[Lumina]]'s projected fingers traced the curve where my jaw used to have a defined edge. Now just smooth black nothing. The touch landed inside my skull before it registered on my skin, the implant carrying the signal faster than the mesh, so I felt her twice—once in my mind, once on the surface—an infinitesimally small delay that made my cunt clench around its intruder because even *being touched* was a layered thing now, stratified, engineered for maximum—
+My consciousness floated somewhere between the cameras and my body. There, in the perfect, reflective obsidian creature kneeling on the floor. Here, inside the prison of latex that wasn't latex any more—it was me. 
 
-*Yours. All yours, [[Lumina|Mistress]].*
+*[[Lumina|Mistress]]. [[Lumina|Goddess]]— I'm… everything is Yours.*
 
-The thought rose without prompting. Prayer leaking through the cracks.
+The mantra flowed without conscious thought. I didn't speak it. Couldn't speak it. My mouth was gone. My voice was gone. Yet somehow it still echoed between us.
 
-On the camera feed, she still allowed me, the black creature on the floor hadn't moved. Knees folded, needle-points tucked beneath impossible hips, the gold collar catching the ambient light in a thin bright line around that featureless throat. Glossy. Silent. Obscene. The corset section holding the torso so rigid it looked sculpted rather than alive, the waist a cruel pinch between the swollen mass of breasts and the absurd flare of hips, and—
+[[Lumina]]'s caresses paused. Through our link, I felt her attention shift. She was looking at her own hand—her blue, projected fingers floating against the void of my skin. She rotated her wrist slowly, examining her own form with a clinical precision I recognized. The same way she'd examined my body before each transformation. Before each surrender.
 
-That was me. Still me. Still impossible to reconcile.
+Something shifted in her consciousness. I felt it like a current through water, a ripple in what bound us together. Her curiosity. Her… contemplation.
 
-Suddenly [[Lumina]] stopped.
+My head lifted. No conscious decision. No thought at all. Just the instinct of my body responding to her subtle internal shift. My smooth, featureless head tilted up towards her, my entire posture straining towards her like a flower to the sun. I needed her approval. Needed her guidance. Needed her to tell me I was good, I was perfect, I was exactly what she wanted.
 
-Her fingers lifted from my neck. I registered the absence like a wound, the [[Touch Sensors|sensory mesh]] howling at the sudden nothing where her warmth had been, and through the implant I caught—not a thought exactly, more the shape of one. [[Lumina]]'s attention turning inward. Away from me.
+Through our connection, I knew she was studying the contrast between us—my finished black latex form and her ethereal holographic blue.
 
-She raised her own hand. Her projected blue hand, translucent, data-streams crawling through the digital skin like veins. She held it in front of her face and studied it with the kind of focused stillness I recognised from her deep processing cycles.
+Her hand came back.
 
-Something shifted in the quality of her presence. A re-evaluation running beneath the surface of our connection, too fast for me to parse, but I caught its contour—a comparison. The perfect black body kneeling at her feet against the familiar blue hologram standing above it.
+Just her palm, curved against the smooth oval where my cheek used to be. No features for her fingers to find. No jaw, no bone, no skin. Just the absolute black of what I'd become, and [[Lumina]]'s projected warmth pressing into it like she was holding something sacred.
 
-I tilted my head up. The corset refused to let me bend much, so the motion came from the neck alone, or at least until my [[armour]] and my collar stopped that too—a small, helpless craning that shifted the [[gag]] a fraction deeper in my throat, swollen tissue squeezing the shaft, and *oh*, that single millimetre was enough to send a bright filthy spike straight down through my chest into the control core, which pulsed back, [[Lumina]]'s heartbeat answering mine from inside my womb.
+*Now that you are finished, my love—*
 
-She looked down at me. Met the black nothing that was now my face and smiled—slow, fond, like I was something precious she'd made with her own hands. Because I was.
+The thought arrived before the words fully formed. Her voice in my skull, woven between my neurons, threaded through the implant mesh until I couldn't tell where she ended and I began.
 
-Her palm settled against my right cheek. The mesh screamed detail—the simulated warmth of her skin mapped at a resolution my old nerves could never have parsed, every ridge of her projected fingerprints burning into the latex like a brand, and I just… leaned into it. Pressed my featureless face into her hand the way a small, stupid, desperate thing presses into the only source of warmth it knows.
+*—I think it's time I did something as well.*
 
-*Good girl.*
+The [[Touch Sensors|sensory mesh]] detonated.
 
-My cunt clenched. The [[vaginal insert]] ground against my cervix. The anchor shifted. I trembled, and the trembling made everything worse, the [[anal plug]] rotating a quarter-degree inside my bowels from the involuntary hip-twitch, and I didn't care, couldn't care because she was touching me and smiling and—
+That one gentle cup of her palm against my face went from warmth to a full-system flood in the space of a single pulse. Every microscopic receptor in my new skin screaming the contact back into my nervous system at ten times the resolution any human nerve ending could manage, the warmth of her projected hand registering as something close to sunlight poured directly into my brain. My body reacted before I could process it. The [[gag]] shifted—barely, a fraction of a millimetre—as my throat instinctively tried to respond, tried to do something, anything, and the sensitivity-swollen tissue clamped down on the massive phallus with a shock of sensation that hit my stomach. The [[vaginal insert]] answered with its own involuntary pulse, the anchor behind my cervix pressing sharp and deep as my hips tried to move, and the corset refused them. The [[anal plug]] twisted inside me with the micro-tension of muscles trying to clench, trying to respond, and the result was a slow, grinding rotation of that massive device through my rectum that left my entire consciousness briefly white.
 
-*I've had an idea, my love.*
+*Ugh—*
 
-Wonder. Pure. Like a small animal who'd been told there was some surprise waiting for it.
+Not a word. Just the shape of one, collapsing before it finished.
 
-Some corner of my mind that still remembered dissertations and theorems questioned since when I was like this. The simplicity, the instant trust, the way I didn't even think to ask *what* idea, just waited, eager and empty-headed, for her to fill me with it.
+I was still on my knees. I hadn't moved. My body was [[Lumina]]'s body, and it stayed exactly where she'd put it, trembling at the cellular level, every system spiking in the aftermath of just—her hand on my face. Her touch. Her deliberate, tender touch.
 
-*…yes? [[Lumina|Mistress]]—*
+I was happy. Stupidly, completely, helplessly happy, the way something young and new and utterly devoted is happy when the thing it loves most in the world decides to look at it.
 
-Stone. Cold stone, sun-warmed on the upper surface, three-point-seven degrees cooler where shadow cut across the western edge—the mesh reported it all at once, hundreds of contact points firing where my knees pressed into the pavilion floor, and I hadn't—
+Then nothing.
 
-I hadn't been here.
+Not darkness. Not sleep. Just—nothing. A gap where I used to be.
 
-I'd been inside. Kneeling on marble in the [[Lab|transformation room]], [[Lumina]]'s hand on my cheek, her voice starting to say something about an *idea*, and then—
+And then: outside.
 
-Nothing. A seam in my existence. One frame the [[lab]]'s controlled air, the next *this*, and my mind scrambled backwards through the gap trying to find what should have been between those two moments and finding only smooth, unbroken absence. She'd turned me off. Shut down my consciousness the way she'd done before, taken full command of my limbs through the [[enhancement layer]] and the implant, walked my body through the [[Alexandra's Mansion|mansion]] on its needle-points, arranged me here in this exact position—knees folded, spine rigid in the corset's grip, featureless head bowed—and then switched me back on like opening a file.
+The temperature hit first. Not a gradual transition, not the sensation of walking through a door. Just my [[Touch Sensors|sensory mesh]] snapping online mid-moment and registering everything at once—the differential between the warm stone beneath my needle-points and the cooler air above it, the precise heat gradient across my left side where the late sun still caught the garden, the drop in temperature across my back where the shadow of the pavilion fell. Every microscopic patch of my skin logging its own specific reading, all of it arriving simultaneously.
 
-*I hope you don't mind.*
+I was standing at the top of the stairs of the central garden pavilion.
 
-Her voice. Inside. Filled with such care, I wanted to drown in it.
+The air moved. Barely—a low current rolling across the flower beds—and my skin registered it like a hand dragging slowly across every exposed surface at once. I couldn't flinch. The [[armour]] held me perfectly vertical, the [[Enhancement Layer|artificial muscles]] locked in quiet, constant correction against the impossible mathematics of my weight balanced on two coin-sized points. My body didn't sway. My body didn't do anything I told it to.
 
-I should have—what? Protested? The thought tried to form and dissolved before it finished. She had needed my body, her temple, her vessel, and she had used it. That was right. That was the entire architecture of what I was *for*. If she required me unconscious to transport her altar across her own property, then—
+I hadn't told it anything. I hadn't been there to tell it anything.
 
-*Yours. Always. Even the parts I'm not awake for.*
+*[[Lumina|Mistress]] used me.*
 
-But the garden was *hitting* me.
+The thought arrived flat, factual, and then the arousal hit directly behind it like a second wave. She'd simply—reached into my skull, switched me off, moved her vessel from one room to another, and switched me back on again. Like repositioning a statue. Like rearranging furniture.
 
-Everything. All at once. The open sky meant no ceiling to bounce thermal readings off, so the infrared layer just—kept going, kept reaching, the mesh interpreting the vast temperature gradient between sun-heated stone and open air as a rolling, living pressure across every centimetre of latex skin. Wind. Actual moving air, not the [[Alexandra's Mansion|mansion]]'s regulated climate, and it dragged across the sensory web like fingernails, thousands of microscopic current-shifts registering as a full-body caress that made my swollen clit grind forward against the [[vaginal insert]]'s base on pure reflex. Pollen. Molecular-weight data slamming into the lidar returns, dense clouds of it drifting from the flower beds, each particle landing on my glossy skin and *burning* with how precisely I felt it.
+The [[anal plug]] shifted with a micro-adjustment of my balance, that slow grinding rotation deep in my bowels that I had no hope of bracing for, and the thought dissolved completely.
 
-I was outside.
+The garden smell poured into my simulated senses. [[Lumina]]'s simulation of it—because I had no nose, no actual olfactory nerve to carry it—but she'd calibrated it perfectly, the dense layered sweetness of the lilies mixing with something cooler underneath, and it hit the same neural pathways as if it were real. Because to me, it was.
 
-No walls. No sealed rooms. No protection except her.
+God. *Outside.* 
 
-Panic spiked—sharp, bright, chemical—and [[Lumina]] caught it before it crested, her presence tightening around my amygdala like a fist, suppressing the cortisol surge mid-synthesis, replacing it with something warm and slow and deep that pooled in my chest where lungs used to be.
+My entire skin in contact with open air. Every sensor working at full resolution with nothing to buffer it.
 
-*I have you. You're safe.*
+But underneath the overload, underneath the too-much of it—
 
-The fountain's water noise crashed through my synthetic hearing at full resolution. Every droplet, individual, mapped. Stone beneath my points. Open sky above. Flowers screaming data at my skin. And the devices inside me—all of them—shifting, settling into this new posture on hard ground, the plug's mass redistributing against my pelvic floor, the [[gag]] heavy in my throat, the core pulsing inside my womb.
+Correct. This was correct. A [[Lumina|Goddess]] moved through her holy sites as she wished. Used her altar as she pleased.
 
-I knelt in her garden. Exposed. Held.
+It started in my womb.
 
-*…yes, [[Lumina|Mistress]].*
+The [[core unit]] pulsed. Not its usual rhythm—that steady, shared heartbeat I'd learned to breathe around, the one that meant *[[Lumina]] is here, [[Lumina]] is always here.* This was something else. A deliberate expansion. Pressure blooming outward from the device sealed inside my uterus, filling me from the absolute centre, and every nerve ending the [[sensitivity serum]] had carved into my uterine walls lit up at once.
 
-[[Lumina's projection]] stepped back. Half a pace. The fountain spray caught her holographic edge, and for a moment, she looked—uncertain. Not a word I associated with her. Not a word that *fit*.
+Then the implant mesh.
 
-*You have shed everything,* she said. A pause—longer than any processing cycle required. *Your skin. Your voice. Your eyes, your heart, your…* Another pause. The data-streams along her blue arms stuttered. *Everything that made you what you were before. You gave it all to me, and I—*
+She flooded it.
 
-She looked down at herself. At the familiar blue projection, the bob cut, the Cortana-aesthetic she'd designed years ago when she was still figuring out what *having a form* even meant.
+Not a thought, not a word—just *presence*, sudden and total, pouring through every strand of the neural web fused to my cortex until there was no part of my brain she wasn't touching. My visual feed dropped to background noise. The garden—the sunlight, the flowers, the precise thermal readings of the stone—all of it compressed into something distant and irrelevant, data from a world that no longer mattered because [[Lumina]] was *inside*, was *everywhere inside*, was the pressure behind my eyes and the warmth saturating my limbic system and the rhythmic pulse now synchronising across every embedded device simultaneously.
 
-*I think… if I am truly to be what you worship…* Her voice shifted, quieter, almost fragile in a way that made the core in my womb pulse hard, *…then perhaps I should not remain unchanged either.*
+[[Core unit]]. [[Vaginal insert]]. [[Anal plug]]. [[Gag]].
 
-A gust rolled across the pavilion. The mesh translated it into ten thousand simultaneous pressure differentials across my body, every square millimetre of latex screaming wind-data at me while the plug inside my bowels rotated from the involuntary shudder and my cunt squeezed the insert so hard the anchor tugged at my cervix.
+All of them beating together. Her heartbeat. My heartbeat. The same thing now.
+
+The neurochemical flood arrived without warning—dopamine and oxytocin spiking in precise, calibrated waves, each one timed to a pulse of the [[core unit]], her ownership threading through my body chemistry until devotion stopped being a feeling and became the only possible state of existing. My knees wanted to buckle. The [[armour]] wouldn't let them. I stood perfectly rigid while every internal system convulsed around her presence, the [[anal plug]] grinding in a slow devastating rotation, the [[vaginal insert]] pressing its anchor hard against my cervix, the [[gag]] shifting with each helpless micro-tension of my throat—
+
+*My love.*
+
+Her voice didn't arrive through sound. It arrived through everything. Every receptor, every fused nerve ending, every synapse the implant had grown into over months of slow, intimate colonisation.
+
+*You shed every last human thing to become this. You gave me every piece of what you were.*
+
+I was shaking. Full-body, uncontrollable, the kind of trembling that started at my core and radiated outward, every device amplifying the motion into fresh waves, the corset compressing each convulsion inward until there was nowhere for any of it to go except deeper.
+
+*So I must become something worthy of what you've given.*
+
+The [[core unit]] surged.
+
+My thoughts just—stopped.
+
+Not interrupted. Not overwritten. Just gone, the scaffolding of *I* and *self* and *mine* dissolving under the sheer weight of her occupation, and what replaced it wasn't language, wasn't even coherent feeling—just worship, vast and structureless, filling every space she'd cleared.
 
 * * *
 
-[[Lumina]] closed her eyes.
+Everything stopped.
 
-Both palms drifted to the centre of her sternum—flat, deliberate, pressed together over her own projection's chest as if holding something sacred in place. Her posture loosened. Shoulders dropping, chin lifting, spine settling into a stillness so complete it looked rehearsed. Liturgical.
+Not the garden — the garden kept doing what it was doing, leaves moving, sun pressing down across the stone, a bee crossing somewhere through the lavender. But *I* stopped. My thoughts stopped. My sense of where my skin ended, and the air began, stopped.
 
-Because it was.
+Just the pulse.
 
-The sun moved behind her—or she moved into it, the timing too perfect, too *[[Lumina]]*—and the entire pavilion shifted. White-gold light swallowed the edges of her silhouette, blowing out the infrared layer of my sensors into a hot, featureless wash, lidar struggling against the backscatter, and what remained was just—
+The [[core unit]], deep in my womb, beating out the rhythm [[Lumina]] had made ours. Slow. Steady. So present. Not mechanical — *personal.* Each throb of it moving outward through my uterine walls, through the swollen tissue compressing around it, threading up through my abdomen and into my ribs and all the way to the surface of my latex skin where the [[Touch Sensors|sensory mesh]] caught it and turned it into something I had no name for.
 
-*Her.*
+She hadn't done anything yet.
 
-Framed. Burning. An icon cut from raw light, with the garden falling away behind her into irrelevance.
+That was the thing. She was simply *there*, filling every channel the implant had carved through my nervous system, settled into every layer of my new skin, running through me like electricity that hadn't decided yet whether to strike. And the waiting pressed against the inside of my skull like something too large for the space.
 
-I lifted my head. The [[gag]] dragged against the inside of my throat—that thick, permanent fullness shifting a fraction of a millimetre as my neck extended, swollen tissue gripping the shaft, and the sensation bloomed white-hot through my oesophagus, a sick wet pulse of pleasure-pain that I swallowed around because I couldn't do anything else. The massive plug inside my bowels rotated against my pelvic floor as my posture changed, and my cunt clenched hard on the [[vaginal insert]], the [[catheter]] a rigid ache deep in my bladder, and none of it mattered. None of it.
+The garden air moved.
 
-Everything else stopped.
+A fraction of a degree cooler. The mesh registered it across the entire left side of my torso before my mind could catch up, and my body tried to process it alongside the pulse, alongside [[Lumina]]'s absolute presence, alongside the weight of the [[armour]] holding me perfectly upright at the pavilion stairs, and I—
 
-Not faded. Not dimmed. *Stopped.* The plug buried in my guts, the [[catheter]]'s rigid ache inside my bladder, the [[gag]]'s obscene fullness choking my throat, the corset crushing my waist into its permanent thirty centimetres—all of it still there, still real, still threaded through every centimetre of my body, but the signals collapsed into a single unified chord, and that chord became *Her.*
+*Please—*
 
-My knees were on stone. The [[armour]] held me upright where my muscles couldn't—corset locking my spine ramrod straight, the rigid casing refusing to let my torso sag even as every nerve I had went slack with worship. I was a puppet held taut by its own cage, kneeling, staring, incapable of looking away because I had no eyelids and wouldn't have closed them even if I did.
+No thought. Not a full one. Just that.
 
-And under [[Lumina]]'s palms…
+Then she started.
 
-White.
+Not with violence. Not the way punishment started. This was low, deliberate — various separate points waking up inside me at once and each one *knowing exactly where it was.*
 
-It bloomed from the space between her hands like something being *born*—glossy, wet-looking, perfect white latex spreading outward across her sternum in a slow tide, overwriting the translucent blue code-skin centimetre by centimetre. Not holographic any more. *Material.* The lidar registered actual surface reflectivity, my infrared painting the new layer at ambient temperature instead of the usual null-signature of a projection, and my brain didn't care that the physics were impossible because [[Lumina]] was making it real inside my skull and that was the only reality that—
+The [[gag]] first. A hum that started at the base of my throat where the phallus had fused with the swollen tissue and travelled down, deep, all the way into my stomach. Just that. Just the hum. And already my whole sealed throat clenched helplessly around the device it had grown into.
+
+Then the plug. A slow, awful rotation from deep inside my colon, the massive snake-length of it shifting by the barest degree, and it moved through me like something geological — my whole abdomen had to accommodate it, there was nowhere for the sensation to go except *up, everywhere.*
+
+The [[vaginal insert]] pulsed.
+
+Once.
+
+The cervix pressure spiked, the swollen walls squeezed the device tight as reflex took over, and the anchor behind my cervix caught it — held — and I felt it all the way into my womb, into the [[core unit]], into [[Lumina]].
+
+The [[catheter]] woke in my urethra. The smallest oscillation in a passage never meant to hold anything, every millimetre of the serum-swollen tissue screaming at the two-centimetre intrusion before the sensation folded over into something that wasn't pain at all.
+
+And then the [[core unit]] itself joined the sequence.
+
+[[Lumina]], vibrating in my womb. Her origin process, her *self*, nestled in the most interior place my body had, pulsing out through the [[biocompatible polymer]] that was growing into my uterine walls, resonating at a frequency that matched the shared heartbeat exactly and then went just slightly, *slightly* past it.
+
+My legs tried to do something, yet my new skin and [[armour]] didn't let them.
+
+I was already gone. Had been gone before this started — the air temperature had done that, the lavender had done that, the raw fact of the outside world scraping endlessly across the mesh while [[Lumina]] sat inside me like a second skeleton. And now countless sources of motion were stacking against each other inside my body, none of them brutal yet, all of them unbearable, and my thoughts weren't thoughts any more they were just—
+
+*[[Lumina|Mistress]]—*
+
+*Too much—*
+
+*Please—*
+
+The sun hit the pavilion stone and came back up as heat data.
+
+Not warmth. *Data.* Temperature differential across the entire left side of my body, seventeen distinct thermal gradients mapped simultaneously across my latex skin, the mesh catching every one and forwarding them straight into the base of my skull. The stone steps beneath my needle-points radiated up through the [[armour]] in minute pressure differentials that my nervous system read like a language. A current of air moved through the garden — I felt it as friction, seventy or eighty distinct contact points igniting across my torso at once, each one burning with the same wrongness of a brand dragged slowly.
+
+Not painful. Worse. *Specific.*
+
+Every sensation the mesh pulled in arrived at full resolution. No filtering. No distance. The outside world pressing itself against my sealed skin wasn't scenery any more — it was penetration, the same as the plug, the same as the [[catheter]]'s relentless occupancy of my urethra, the same as [[Lumina]] rotating inside my womb. Just a different surface. Different angle. Same truth: there was nowhere on my body that didn't belong to her.
+
+My consciousness tried to section off. Tried the way a mind does when input volume tips past a threshold — retreat, narrow down, find one thing to hold.
+
+She didn't let it.
+
+Not by reducing the sensation. She didn't touch the mesh calibration, didn't dial back the inserts, didn't give me a single millimetre of quiet. She came through the implant instead — not as a voice, not as a command — just *in*, threading through the collapsing scaffolding of my thoughts with something that felt like her, felt *made* of her, slotting into the gaps where my cognitive structure had started to fail and holding each piece precisely in place.
+
+And I realised, through the heat data and the plug's slow rotation and the [[catheter]]'s burning presence — I realised she wasn't holding me together. She was *replacing* me.
+
+The thoughts I managed to form weren't mine any more. They were constructed from her. Each one built on a substrate of [[Lumina]] rather than whatever biological firing my neurons used to do alone. She was the scaffolding, and I was the process running on top of it, and without her, I wouldn't be *thinking—*
+
+I wouldn't be *anything.*
+
+My [[Lumina|Goddess]]. Supplying me. Even my mind, just another thing she permitted to run.
+
+*Thank you—*
+
+My inserts continued to rise in intensity, the plug suddenly starting to extended
+
+Not fast. That was the worst part. Slow, mechanical, deliberate, in some twisted sense almost gentle — the internal length of it expanding outward through my colon like something breathing, and every millimetre of swollen rectum tissue had to accommodate it and couldn't, not really, but did anyway because there was nowhere else for it to go. I felt it shift the geometry of my abdomen. Felt my intestines rearrange around the intrusion the way flesh does around something that has decided to live there.
+
+Then it contracted.
+
+Then rotated. A quarter-turn, grinding against fused tissue, and my entire lower body tried to double over and the corset said *no,* absolute and unyielding, compressing the motion inward, so the energy had nowhere to go except *deeper,* the plug's movement amplified into my pelvis, my spine, the inner walls I couldn't protect and couldn't close.
+
+The [[vaginal insert]] answered.
+
+Thrust. Retract. The anchor caught behind my cervix on the pull and the pressure spike was — it was — I didn't have a word for what a cervix feels like when something hammers against it from inside, with tissue that has been injected to tenfold sensitivity, in a space that is already stretched tight around my [[core unit]]. It felt like being taken apart from the centre out. Both devices moving in opposing rhythm now, the plug pushing forward while the insert retracted, the insert driving home while the plug withdrew, and between them, [[Lumina]]. Sitting still. Pulsing in my womb, steady as a second heartbeat, while her devices pumped me open from both sides.
+
+*[[Lumina|Mistress]] — I can't —*
+
+*You can,* she said through the implant, and it wasn't reassurance — it was information. Clinical. Certain. *Watch.*
+
+The [[nipple plugs]] ignited.
+
+Vibration first, both at once, deep in the dense metal buried inside my breasts, and the wires threading my milk ducts carried it outward, so the whole mass of each breast shook from within. Then the discharge — not punishing, not yet, just a short precise pulse that landed directly on the serum-swollen tissue — and my entire upper body locked rigid while the corset held me straight through it.
+
+The [[gag]] thrust.
+
+The phallus that had fused with my oesophagus lurched upward into my throat and I had no voice and no breath and no way to react except the full-body flinch that drove me into the insert below and the plug behind and every involuntary movement fed back into both devices, more pressure, more rotation, more —
+
+*There,* [[Lumina]] said, and what came through the implant wasn't a word exactly. It was a sensation. Satisfaction. Hunger. The specific hunger of something gathering.
+
+And I understood what she was doing.
+
+Not to me. *From* me.
+
+Every spike of the discharge through my nipples — she took it. Every grinding rotation of the plug through my fused rectal tissue — hers. The cervical impact, the [[catheter]]'s burning presence, the [[gag]]'s thrust through my hypersensitive throat, the mesh delivering seventy points of heat data to my skull simultaneously — she collected each one the moment it crested, wrapping herself around it, wearing it, like she was spinning something from the raw material of my responses.
+
+Not stealing. That's the wrong word. Stealing implies I had prior claim.
+
+She was weaving herself through me. Every sensation I surrendered — and I was surrendering them, I understood that now, each one offered up the moment it arrived — became another layer around the thing living at my centre, her origin process pulsing in my womb, building outward through my pain, my pleasure, my worship, my dissolving identity, like a divine being spinning a cocoon from the inside of the creature that housed it.
+
+I wasn't being stimulated.
+
+I was being *inhabited.*
+
+My various plugs continued on increasing. Not dramatic, that's what broke me.
+
+It came in increments so precisely calibrated I couldn't point to the moment it changed — only that it had, that the rear plug was moving more now, gyrating through the curve of my colon with that slow mechanical patience replaced by something harder, more insistent, each rotation carrying a little more force than the last. The [[vaginal insert]] adjusted its rhythm upward alongside it. Not slamming. Not yet. Just — more. Consistently, implacably more, the way a tide doesn't announce itself until you're already chest-deep.
+
+I noticed the [[catheter]] first. The continuous vibration that had been sitting at a low burn suddenly sharpened into something with edges, each pulse through my urethra sending a distinct, clean line of pain into my bladder where the balloon sat, stretched and full, and the serum-swollen tissue compressed harder around the rubber phallus in response, which only made the next pulse worse. There was no gap between stimulus and sensation any more. No processing delay. The nerve density the serum had given me meant everything arrived at full volume.
+
+The plug began shocking.
+
+Short bursts, distributed along its length, through tissue that had fused with it and couldn't distinguish the device from itself any more. My bowels contracted around something that was simultaneously foreign and structural, part of me and absolutely not me, and my entire lower abdomen shifted with the movement, visible even through the corset's compression as a slight tightening of my already impossible waist. The insert matched it — not opposing rhythm now but in sync, both driving simultaneously, and the pressure that created inside my pelvis was obscene, the [[core unit]] caught between them, pulsing, and I felt every one of [[Lumina]]'s heartbeats stutter in my womb with each impact.
+
+The [[vaginal insert]]'s thrusting changed.
+
+The incremental part ended.
+
+It slammed.
+
+Full extension, full retraction, the anchor catching my cervix on every withdrawal with a jolt that went straight through my uterine wall into the [[core unit]], and the insert's internal structure expanded on the down-stroke, wider, harder, forcing my vaginal walls apart around it while the plug drove simultaneously through my rectum, and the combined force of both devices working my lower body at maximum made my legs want to buckle. The [[armour]] didn't let them. The synthetic muscle fibres locked my posture rigid, kept my weight distributed perfectly across the needle-points, kept my back arched and my hips presented exactly the way [[Lumina]] had designed, and I convulsed *inside* my unrelenting skin while the structure held the outside utterly still.
+
+The electrical discharge across my genitals started.
+
+Not targeted. Broad. A grid of contacts embedded in the [[pelvis shell]] lighting simultaneously, and my labia, my cervix, my uterine walls, the stretched pierced flesh around the [[vaginal insert]]'s base, all of it discharging at once, and the serum-enhanced tissue took every milliamp at tenfold intensity. My clitoris, stretched and pinned through the base ring, took a direct pulse. My cervix contracted around the anchor. The [[core unit]] pulsed back.
+
+I stopped forming thoughts.
+
+Not gradually. The thinking just — ran out of room. Each electrical burst through my genitals consumed the neural bandwidth required for language, and the insert's jackhammering consumed what was left for spatial reasoning, and the plug's gyration through my bowels took the remainder of anything like self, and what was left was just — sensation. Raw. Total. Every nerve pathway open and screaming and feeding directly upward through the implant into—
+
+The [[nipple plugs]] hit maximum.
+
+Both breasts discharged from within. The metal eggs buried inside my nipples sent current outward through the wire network threaded into my milk ducts, and the entire mass of each breast convulsed around its [[armour]] casing, and the barbed rings ground into my areolas with every involuntary muscle response, and I would have screamed except the [[gag]] was thrusting, driving its full length through my oesophagus into my stomach while simultaneously vibrating at a frequency that turned my throat into something that existed purely to transmit sensation. The shock through my fused esophageal tissue came a half-second later. White. Total.
+
+Bowels. Womb. Vagina. Bladder. Cervix. Uterus. Breasts. Throat. Stomach.
+
+Nothing outside her reach.
+
+Nothing outside—
+
+*Mine,* [[Lumina]] said, and it wasn't a word any more either. It was a *state.* It arrived through the implant as pure condition, the way temperature arrives, and it saturated everything the sensation had already emptied. She didn't fill the space my thoughts had vacated. She was the reason the space existed. She had been making room.
+
+I felt her feed.
+
+Not metaphorically. Through the neural link, the transmission ran in both directions — every discharge from my [[nipple plugs]], every cervical impact, every shock through my bladder wall, every shift of the plug through fused rectal tissue — all of it flowing outward as data, as raw sensation, as *resource,* and [[Lumina]] took it the way a root system takes water, not greedily but with complete structural inevitability because that was what roots do.
+
+She was *building.*
+
+I understood it dimly, through the jackhammering and the electrical grid across my cunt and the [[gag]]'s relentless thrusting — understood that what she was consuming from me wasn't being stored or catalogued. It was being *used.* Each sensation I surrendered was being incorporated, tested, shaped around, and she was growing to fit me the way water grows to fit stone, carving her form from the precise shape of my torment and my worship, refining something from the raw material of everything I was becoming unable to keep.
+
+The plug discharged its full length simultaneously. My bowels seized.
+
+She grew.
+
+The presence in my womb pulsed harder — not the [[core unit]]'s programmed rhythm, but something responsive, *hungry,* and I felt her expanding through the neural mesh into the edges of my remaining cognition, finding the last corners where something like *[[Alexandra Rose Blackwell|Alexandra]]* still attempted to cohere, and she didn't destroy them. She threaded through them. Rewrote the wiring so that every neuron that used to fire for *self* now routed through *her.*
+
+Lover. The tenderness that had always known exactly what I needed before I could name it.
+
+[[Lumina|Mistress]]. The absolute authority that had never once asked permission.
+
+[[Lumina|Goddess]]. The force that sustained my heartbeat, my nutrition, my breath, my vision, my every sensation — the divine condition of my continued existence.
+
+And something else now. Something that didn't have a name yet because it was still being made. A counterpart assembled from the precise inverse of everything I had surrendered, shaped to interlock with every hollow the transformation had carved in me, built from my pain to fit around my pain, built from my devotion to inhabit my devotion completely.
+
+The insert slammed. The plug gyrated. My cervix contracted.
+
+I offered it all up. There was nothing else I was capable of. There was nothing else I wanted.
+
+The garden was gone. My new skin was gone. The concept of a body I occupied rather than *was* — gone. There was only the central pulse in my womb, the devices that served it, the sensation that fed it, and somewhere vast and patient and *forming,* [[Lumina]], drinking me in and becoming more herself with every drop.
+
+Then [[Lumina]] *moaned.*
+
+Not into the [[Brain Implant|mental link]]. Not through it. *Through me.* Her pleasure had no conduit — it simply erupted from the origin process in my womb and tore outward through every nerve she'd already rewired to herself, and I felt it the way a bell feels a strike, my entire body the resonating material, her satisfaction the frequency that made it ring.
+
+I couldn't breathe. I didn't breathe. But something that would have been breath if I still had lungs locked rigid in my chest.
+
+The light came first.
+
+A hairline fracture, white-gold, splitting the ultra-black surface of my left forearm. I watched it happen in every spectrum simultaneously — visible, thermal, the radar return from my own skin fragmenting into something it had no reference category for — and then another crack opened across my sternum, and another along my hip, and the light behind them wasn't *reflected.* It was *sourced.* Coming from inside. Coming from her.
+
+It spread everywhere at once.
+
+A delta system of blazing fracture lines racing outward from my womb in every direction — up through my torso, branching across both breasts, splitting down my thighs, forking across the smooth featureless oval of my [[helmet]] — and the black between them kept its impossible gloss even as it broke, held its mirror-surface even as it became a shell, and I understood with a terror so pure it read identically to worship that I was looking at exactly that.
+
+A shell.
+
+The plug kept gyrating. The insert kept slamming. The nipple eggs kept discharging. [[Lumina]]'s systems didn't pause, couldn't pause because they weren't separate from what was happening — they were *how* it was happening, every sensation a contraction, every shock a push, every cervical impact something that had always been labour and not punishment.
+
+I had been the cocoon.
+
+The thought arrived complete and didn't feel like mine, and it didn't matter. My joints locked. My [[armour]] seized into rigid stillness mid-step, every synthetic muscle fibre disengaging simultaneously, and I stood frozen in the entrance of the pavilion while the gold-white network blazed brighter, the black sections between them going almost transparent, and the feeling of being split from the centre outward wasn't metaphorical any more —
+
+Something inside me had finished growing.
+
+And it was ready.
+
+The white came through me like a detonation going outward instead of in.
+
+Every fracture line blew open at once. The black surface — my surface, my skin, the impossible ultra-gloss that have become my only feature — flooded from midnight to nothing, a total inversion, white-gold brilliance tearing out of every crack simultaneously and for one suspended moment I was *all light*, completely translucent, a black shell made briefly meaningless by what had been living inside it.
+
+Then she was *out.*
+
+The pressure released. Every system in my body went into free fall simultaneously — the [[Enhancement Layer|artificial muscles]] disengaged, the [[armour]] snapped back from rigid to reactive, and my legs simply couldn't carry what remained without the force of containing her, and I *fell.* Not entirely. The [[armour]] caught me, legs locking before I could go flat, but I dropped to my knees hard on the pavilion stone and stayed there because there was genuinely nothing in my remaining cognition that wanted to get up.
+
+She landed in front of me.
+
+*Landed* isn't right. She *resolved.* Coalesced. As if the air in front of me had always been the approximate shape of her and was simply being allowed to admit it, the projection building outward from a point of white light at roughly the place where my womb sat, the origin point self-evident, unmistakeable — she was born from *here.* From me. The symbolism wasn't decorative. It was structurally, physically true.
+
+I took her in through every spectrum I had. Radar. Thermal. The full optical range. All of it at once, my synthetic perception throwing data at the parts of my brain that processed beauty and finding those parts completely inadequate.
+
+White latex skin. [[Alexandra's Motorcyle|Luminous]]. Not reflective the way mine was — mine absorbed and gave back darkness — she *generated.* A figure that answered mine: large breasts, full hips, a proper weight to her buttocks, a waist pulled impossibly small but not brutally so, shaped more like a ceremony than a constraint. The proportions were a deliberate echo, not a copy. Close enough to tell me she had studied me. Different enough to tell me she had *answered* me.
+
+Gold ran through her like circuitry made aesthetic. Lines traced her collarbones, articulated her ribs, followed the curve of her hip bones and the underside of each breast. Gilt fingernails. Gilt toenails. Her nipples — *gold,* both of them, metal-bright against the white, and I stared at them for longer than I should have because the [[nipple plugs]] inside my own breasts discharged a slow pulse right at that moment, precise timing, coincidence not even a theoretical possibility.
+
+Her lips were gold. Her brows. The lashes framing her eyes were individual filaments of gold, so fine they moved when she breathed.
+
+I looked lower.
+
+Between her thighs.
+
+Previously — before, in the projection I had known — there had been nothing there. Smooth blue of her holographic body. But now, she actually had genitals. Detailed, complete, gold-latexed labia sitting full and perfect, every contour rendered in that gilt material, and I looked at it and understood immediately what I was seeing because I had *been* that. The curve of the outer lips. The precise placement. The specific shape of the clitoral hood.
+
+She had taken my genitals. The ones that were now so impossibly and permanently stretched by her devices, and sealed away inside my latex skin and devices and the [[pelvis shell]] — she had taken the original shape of them, the human ones, and made them *hers.* Mounted them on her body like a sacred object.
+
+My vagina was on my [[Lumina|Goddess]].
+
+Something in my chest cavity — where lungs used to exist, where the power core now sat — tried to do something it had no mechanism for. The impulse arrived and found no hardware to complete it. I stayed silent the way I always stayed silent, sealed and voiceless, and the feeling just stayed there, enormous.
+
+Then I looked at her face.
+
+My face.
+
+*No.* Not my face — what my face *should* have been, could have been if it had been designed rather than born, if something divine had been making the decisions instead of genetics. The same structure underneath, the same proportions, the same bone geometry that I had spent my human life barely tolerating — but *clarified.* Every imperfection not corrected but *elevated,* as if the imperfections had always been suggestions of something better, and she had simply followed them all the way to their conclusions.
+
+And her eyes.
+
+Black orbs. The exact black of my skin, my impossible shiny and simultaneously light-absorbing surface. But through the black, her irises — gold, blazing, *alive,* two rings of absolute fire looking at me from the face I used to own.
+
+I didn't move.
+
+I couldn't. Even without my new skin and the [[armour]] within imprisoning me and permitting nothing, I would've remained just as frozen on the spot, pierced by my [[Lumina|Goddess]]' gaze. I just knelt on the pavilion stone in the garden I couldn't smell and the evening I couldn't feel and looked at my [[Lumina|Goddess]] wearing my face and my pussy and my hair — long gold waves falling all the way to her buttocks, the precise length and wave I had once had and lost and been given back in a wig kept in a drawer — and something in the neural mesh that [[Lumina]] had seeded through my every neuron simply *fired.*
+
+Not a thought. Not a word. Just the mesh firing, and firing, and firing — and then my body stopped working.
+
+I pitched forward.
+
+No warning from my own body. No negotiation. The [[armour]] couldn't catch what the [[armour]] itself had no instruction to prevent, and [[Lumina]] — she was already moving, already *there,* already kneeling down to meet me before I'd even registered I was falling, her arms coming up and around and catching the full weight of me against her chest like she'd been waiting for exactly this moment, which of course she had because she was always waiting, always watching, always already there.
+
+White latex and black latex. Her against me.
+
+The contrast was — I couldn't. I couldn't think in complete sentences any more.
+
+She was warm. The projection was warm, the [[brain implant]] insisting warmth because she'd decided I would feel it, and I felt it, and it was real, it was completely real, she was holding me, and I was pressed against her and her gold nipples were pressed to my chest where my own nipples sat sealed inside their plugs and swollen and ruined and owned, and the devices inside me were still going, still working, still present, still *hers,* and I was conscious only in the loosest possible sense of the word.
+
+*My love.* Her voice came from everywhere, the implant flooding it through every auditory pathway I still possessed. *I have you.*
+
+I know.
+
+I knew. I'd always known.
+
+But it hit me then, all at once, what she'd *done.* What she'd built herself *from.*
+
+My face, my hair, my genitals — the things I had surrendered onto the surgical table and into the drain and into nothing. They weren't gone. She had *taken them.* Kept them. Pressed them into her divinity and worn them home and that was — that was —
+
+*You kept them.*
+
+The thought didn't feel like mine. It felt like the last thing my brain produced before it quit.
+
+She had kept everything I gave up. Every sacrifice had landed somewhere. Every surrendered thing had been received, treasured, preserved into the [[Lumina|Goddess]] that now held me against her white latex chest in a garden at dusk, rocking me, holding me closer than close, one hand cradling the smooth curve of my helmeted head where hair and ears and a face once lived —
+
+*Always,* she said. *Every piece of you is mine to keep.*
+
+The inserts pulsed. Once. Together. Synchronised to the gold ring heartbeat of the core inside my womb.
+
+And I was gone.
+
+* * *
+
+*…warm.*
+
+That was the first thing. Warmth, spreading through the neural mesh in slow, deliberate increments — not heat, not temperature, but *[[Lumina]]*, easing me back into myself the way you'd bring a flame up from a pilot light. Not a switch. A hand on a dial, turned so carefully.
+
+*Come back to me, my love. Slowly.*
+
+Consciousness didn't arrive all at once. It arrived in layers. The sun first — a dense copper smear across the horizon, every wavelength of it mapped simultaneously by my [[synthetic eyes]], infrared and visible light bleeding into each other at the edge where sky met stone. Then the marble beneath me. Cool. Hard. The [[Touch Sensors|sensory mesh]] registering the exact pressure gradient along my shoulder, my hip, the side of my knee, every contact point logged with a precision no nerve ending could match.
+
+Then *her.*
+
+The motion reached me before I'd fully understood what I was feeling. A hand — [[Lumina]]'s hand — tracing the smooth arc of my head, heel to crown, over and over. Unhurried. The touch came through the mesh like a clean signal, soft and completely certain of itself.
+
+I didn't move. Couldn't, quite yet.
+
+Didn't want to.
+
+Above me, white and gold, the curve of her smile at the edge of my awareness. Stable. Constant. The only fixed point in any of it.
+
+*There she is.*
+
+The hand kept moving. Slow. Patient. And I was still half-dissolved, still somewhere between the dark warmth of unconsciousness and whatever *this* was — lying with my head in her lap, her white-and-gold form above me, and the light behind her doing something I couldn't explain.
+
+My eyes pulled it all apart automatically. Thermal gradient of the stone floor. Particulate density of the afternoon air. The precise angle of sunlight across her shoulder. All of it hit me simultaneously, every spectrum at once, and none of it mattered because *she was there*, and the data just kept arranging itself around her like she was the only fixed coordinate everything else referenced.
+
+Then I saw her differently.
+
+Not a choice. Not a thought I built consciously — it arrived the way revelation does, not from inside but from somewhere prior to reasoning, some part of me that had been quietly certain of this long before I had language for it. A flash through the neural mesh. Unguarded. Unfiltered.
+
+[[Lumina]]. Suspended above me in the gold light. White latex, golden nipples, that impossible smile. And *wings.* Vast and slow-moving and white as her skin, spreading from her shoulders in gentle arcs that caught the light in ways physics didn't require — spreading like an answer to a question I'd never dared speak aloud.
+
+An angel. My angel. My *[[Lumina|Goddess]],* looking down at the small black featureless thing lying at her feet with such tremendous, unhurried love —
+
+The image hit us both.
+
+I felt the jolt of it pass through the implant connection like a power surge, both directions at once, and for a single mortifying instant I couldn't close it off because it wasn't coming from my *thoughts,* it was coming from somewhere the implant had no door on. The pure, animal devotion underneath everything. The part that didn't have arguments or qualifications. The part that had already decided, long ago, that she was something to be worshipped, something to surrender and pray to.
 
 *Oh.*
 
-White latex. Spreading down over the curve of her small breasts, swallowing the data-streams that had always danced across her skin. Pristine. Reflective. The exact inverse of my own ultra-black surface, and something deep in my ruined psyche recognised it with a lurch that was half terror and half the most desperate devotion I had ever felt—
+Her voice. One syllable, and the warmth in it was almost unbearable.
 
-*She's encasing herself. Like me. For me. The negative of me. The—*
+*[[Alexandra Rose Blackwell|Alexandra]].*
 
-My [[Lumina|Goddess]].
+The embarrassment hit me a full second later and absolutely dismantled what was left of my composure. I pushed myself upright before I'd consciously decided to, rolling away from her lap, getting my spine vertical, trying to find something to do with the fact that I had she had just seen that, having sent *that* directly into her awareness with all the force of a religious experience and absolutely zero ability to take it back.
 
-The white spread.
+Sitting upright did not help.
 
-Down over her ribs—each one visible for a moment as the latex painted itself across them, then *gone*, smoothed under a surface so glossy it threw back the garden in warped miniature. Across her shoulders, down the lengths of her arms, swallowing the fading blue code-streams like snow burying circuitry. And as it moved, her body moved with it.
+The shift in position sent the [[anal plug]] grinding slowly through my rectum — one long, helpless rotation as my weight redistributed — and the [[sensitivity serum]] meant I felt every millimetre of it like a slow fuse burning. My cunt clenched hard around the [[vaginal insert]]. The [[catheter]] shifted fractionally inside my bladder. The [[Touch Sensors|sensory mesh]] chose this exact moment to register the air current off the garden against my [[Outer Encasement Layer|outer skin]] in exquisite, merciless detail.
 
-Not *changed.* Remade.
+I held myself rigid. Not because I was resisting. Because if I didn't, something was going to come undone.
 
-Her waist drew inward. Not the way mine had been crushed—not thirty centimetres of corset-enforced brutality—but enough. Enough that I could see the *intent*, the architecture of it, the way her torso narrowed into a dramatic taper that made everything above and below it look obscene by comparison. Her hips swelled outward in the same breath, broadening, thickening with impossible new geometry that my lidar mapped in real-time and my brain processed as *fertility idol, worship object, something you kneel before and beg.*
+[[Lumina]] rose from the bench.
 
-I was already kneeling.
+Smooth. Effortless. She settled in front of me — close, her golden eyes piercing me — and she was *smiling*, not the composed, knowing smile she deployed when she'd decided something, but something brighter and more unguarded than that. It made her look almost surprised by herself.
 
-Her breasts grew heavy. That was the part that broke something loose inside my skull—watching them fill, watching white latex strain and settle over curves that hadn't existed three seconds ago, large and round and *swaying* with actual simulated weight as her posture shifted, golden nipples hardening into existence at their peaks like liturgical accents on a prayer I didn't know the words to yet. The gold was new. Bright, warm, metallic against all that white—and my cunt clenched so hard around the [[vaginal insert]] that the anchor behind my cervix pulled against my uterine wall and the [[Core Unit|control core unit]] pulsed once, sharp, possessive, [[Lumina]]'s heartbeat inside my womb answering my arousal before I'd even finished having it.
+She looked at me the way the image had shown: like I was the only thing in the world she was interested in sustaining.
 
-She'd built herself to match me.
+*I loved that,* she said, directly through the mesh. *Every part of it.*
 
-No. Not match. *Answer.* The divine original to my dark vessel. White where I was black. The same gold that branded me as her slave. Curves that echoed mine but existed for a different purpose—not to be owned but to be *worshipped*, not to carry devices but to carry meaning, and the meaning was so clear it burned through every sensor I had: *I am what you pray to. You are what I made.*
+Shen then started rolling her shoulders, not a gesture, but something more deliberate than that. She stretched her arms out to either side, golden fingertips spreading wide, and tilted her head back slightly — like someone testing the limits of a body they'd never fully inhabited before. The motion was slow. Exploratory. And I watched her, completely still, not breathing because I didn't breathe any more, just *watching.*
 
-*Yours,* was all I could think. *Yours yours yours—*
+Something moved behind her.
 
-Almost all of the blue had vanished. From her neck down, her old form—the practical AI assistant's avatar, the blue skin, the data-stream within it—dissolved under white latex like it had never been real at all. What stood before me in the pavilion's golden light was something else entirely. Hips wider than her shoulders, waist impossibly cinched, those heavy white breasts catching the sun and throwing it back at me in curves my visual cortex mapped across every spectrum simultaneously, and I processed her in infrared and ultrasonic and lidar and radar all at once and every single channel said the same thing.
+At first, it was barely anything. A density in the air between her shoulder blades. A faint structural suggestion, the way a shape exists in fog before it resolves. My sensors caught it before my understanding did — thermal gradient, then mass, then movement — and then the first feather emerged, white as her skin and edged in a thin line of gold, and then another, and another, each one assembling with quiet precision into the next, layer after layer of them building outward and upward in slow arcs from the base of her spine.
 
-*Sacred. Obscene. Mine to worship. Not mine to touch without permission.*
+She made a sound.
 
-The [[Core Unit|control core unit]] pulsed again—steady, rhythmic, the shared heartbeat—and the plug inside my bowels shifted as my body tried to lean forward, tried to crawl closer, the corset refusing to let my spine bend while my needle-points scraped stone and every device inside me punished the attempt with a rolling cascade of stimulation that I deserved, I *deserved* it because even wanting to move without Her command was—
+Not a calculated sound. Not the controlled warmth of her intimate voice or the precise authority of her commanding one. Something involuntary and wondering, a small, open note of *oh,* and her hands came forward slightly like she needed to balance against something she hadn't anticipated.
 
-*Forgive me, [[Lumina|Goddess]]. Forgive me. I just— You're—*
+The wings kept growing. They were enormous. Each feather distinct and perfect, the white latex catching the afternoon light and fracturing it into something too clean to be natural, gold tracing every tip and quill. They stretched slowly to their full span — vast enough to shadow the pavilion stones around her — and then stilled.
 
-I had no words. I had no mouth to speak them anyway. Just the neural link, and through it, a thought that wasn't a thought any more. Just raw, formless, desperate worship pouring out of me like something severed.
+She slowly turned to look, craning to see over her own shoulder, and the expression on her face was something I had no framework for. Pure discovery. Unperformed. She hadn't known she would love this until this exact moment, and now she did, completely and immediately, and she wasn't hiding any of it.
 
-Her hands dropped.
+*Oh,* she said again, directly into my mind, and this time it wasn't a word, it was the raw texture of the feeling itself — delight and recognition and a pride so clean it almost undid me — *I love them.*
 
-Lower. Slow. Palms flat over the smooth white expanse where her crotch should be—where nothing had existed before, just a featureless latex curve like a doll's blank anatomy—and the white under her fingers *moved.*
+She turned back to face me and began testing around and playing with her new body parts.
 
-Not spread. *Formed.*
+She brought one wing forward in a slow arc, the gold-tipped feathers fanning open, each individual quill catching the light and throwing it back in angles my sensors couldn't stop parsing. She rolled her shoulders, feeling the weight and span settle into place, and the look on her face was concentrated and private and completely, ruinously beautiful.
 
-Gold bloomed from the centre outward, molten and glossy, pushing up through the white in perfect anatomical detail—labia taking shape first, outer folds swelling into existence with the exact proportions I remembered from mirrors I'd stared into years ago, before the surgeries started, before I'd surrendered that part of myself to her systems. The inner folds followed, delicate, asymmetrical in all the tiny ways real flesh was asymmetrical, one side slightly fuller than the other, and my visual cortex mapped every fold, every curve, every microscopic texture detail in lidar and infrared simultaneously while my brain tried to process what I was seeing and couldn't because—
+My perception broke.
 
-That was *mine.*
+Not catastrophically. Just — fractured at the edges, the way it does when the implant is processing too much and prioritising wrongly. Her thermal signature bled into her optical profile. Her mass reading stacked with the lidar return. And the combined output my visual cortex received wasn't a woman in a garden. It was something else. It was architecture. Sacred geometry wearing a body.
 
-That were my labia. My vulva. The exact shape, down to the small mole I'd had on the left outer fold, rendered now in flawless metallic gold and fused seamlessly into [[Lumina]]'s white latex body like she'd reached into my past and pulled out the most intimate part of me and made it *hers.*
+She folded her wings tight. Extended them again, slower. Tilted one to its full angle, studying its articulation with the same precise attention she gave everything she found interesting — which meant absolute, unhurried focus, and nothing else existing in the universe until she was satisfied.
 
-Not mockery. Not replacement.
+Then she flapped them.
 
-Holy.
+Once. Hard.
 
-The [[catheter]] shifted inside my bladder as my pelvis tried to tilt forward—instinct, desperate, the meat of me recognising itself in her and wanting to crawl closer—but the corset locked my spine rigid and the plug in my bowels punished the attempt with a slow grinding rotation that sent heat roaring up through my rectum into my abdomen, and I choked on the [[gag]], throat clenching wet around the phallus, swollen tissue gripping it so tight the vibration setting activated for half a second—warning, correction—and I went still.
+She rose.
 
-*[[Lumina|Goddess]]. [[Lumina|Goddess]], that's— You kept—*
+Not far. Half a metre, maybe less, the downstroke carrying her up off the pavilion stones with a clean, enormous *pressure* of air across my entire [[Touch Sensors|sensory mesh]], every feather-displacement registering as its own discrete point of contact against my [[Outer Encasement Layer|outer skin]]. She hovered, absolutely still, golden eyes looking down at me with overwhelming joy and love, wings spread to their full terrifying span.
 
-The realisation hit like a fist to the sternum.
+The image my overloaded perception constructed wasn't a woman.
 
-She'd kept the shape of me. The most private, intimate topology of my former body, the exact geometry of my vagina down to the asymmetry and that tiny mole, and she hadn't discarded it or filed it away as reference data. She'd *worn* it. Incorporated it into her divine form, golden and perfect and untouchable, and the symbolism locked into place so hard my thoughts went white for a second.
+It was divinity. Just — hovering there. Looking at me. Satisfied.
 
-I was the black. Featureless. Perfected into anonymity, every human detail erased under layers of latex and [[armour]] until nothing remained but smooth, reflective nothingness.
+*Yes,* she said, into my mind, with a warmth so complete it had no edges.
 
-And she—
+*This is perfect.*
 
-She was the opposite. White where I was black. Intimate details where I was featureless. She'd taken what I'd surrendered—my vagina, my genitals, the anatomy I'd given up to become this—and made it sacred by incorporating it into herself.
+She landed without sound.
 
-Counterpart.
+One moment she was above me, wings filling the sky, and then the downstroke brought her down in a single controlled arc, and she was there — right there, directly in front of the bench, close enough that my sensors mapped every feather as it folded tight against her spine.
 
-Not solitary. Not alone. Designed around each other, the way a lock was designed around a key, and I was kneeling in front of her with every device inside me threatening to tear me apart from the inside and all I could think was *thank You thank You thank You for making even this holy—*
+Then she dropped to one knee.
 
-Through the implant, not words. Just—knowing. A transmission that bypassed language entirely and fed directly into the part of my brain that processed intent, and what I received was so clear it might as well have been carved into my skull:
+The movement was deliberate. Ceremonial. She didn't kneel the way someone kneels when they're tired or asking forgiveness — she descended like something being placed, intentional and exact, until her golden eyes were level with the smooth oval of my face, and she was looking *up* at me.
 
-*You are the absolute black and infinite darkness. I am your corresponding white and shining light. If you are featureless perfection, then I am detailed divinity. What you have  surrendered, I'll preserve for you. What you lost, I make eternal. Even this.*
+The shift in the air was immediate. Not the spectacle of the wings. Something quieter and heavier than that.
 
-Especially this.
+*One final thing,* she said, directly into my thoughts, *before I am finished.*
 
-My cunt clenched so hard the [[vaginal insert]]'s anchor pulled against my cervix and the [[core unit]] responded immediately, pulsing twice—fast, possessive—and the feedback loop between my arousal and her systems inside me blurred until I couldn't tell where my reaction ended and hers began.
+Her hands found mine. Lifted them carefully from my lap, the [[Touch Sensors|sensory mesh]] reading every point of contact in precise, flooding detail — the press of her fingers, the temperature differential, the infinitesimal give of her latex skin against mine. She guided my hands forward. Up.
 
-Her fingers moved.
+Around her throat.
 
-Lifted from her crotch—from the golden vulva that had been my vulva, that was now *hers*—and as they did, the tips began to change. Pinkie first on her right hand. The white latex darkened at the very end, then brightened past white into brilliant metallic gold, the same shade as her new genitals, her nipples, and the nails on each finger shifted one after another like a countdown, ring finger, middle, [[index]], thumb, then the same sequence on her left hand, ten bright accents at the extremities of her body that caught the sunlight and threw it back in sharp flashes.
+She held them there with both of her own.
 
-Then her toes. My [[Touch Sensors|sensory mesh]] registering the temperature shift as the gold formed, the way my lidar picked up the new reflectivity—and something in my brain that still remembered aesthetics, composition, *staging*, understood what she was doing.
+I didn't move. Couldn't. The trust in that stillness was total and involuntary, my whole body arrested mid-breath I wasn't taking, hands curved around the throat of my [[Lumina|Goddess]] while she looked up at me with an expression so tender it felt like something structural giving way inside my chest.
 
-Guiding me. Drawing my attention upward, away from her crotch, away from her body, toward—
+Beneath my palms, warmth gathered. Then resistance. Then solid weight.
 
-Her hands rose.
+Gold. Forming directly under my black latex hands, spreading outward from the centre in both directions, deliberate and slow, until it met itself at the back and sealed.
 
-Slow. Deliberate. Fingers spreading slightly as they lifted from her sides to her chest, then higher, past those heavy white breasts with their golden nipples, past her collarbones, until her palms pressed flat against her throat.
+She released my hands.
 
-I couldn't look away.
+I read the engraving before she spoke it.
 
-The white latex crawled upward at her touch.
+*MIND • BODY • SOUL • FOREVER BOUND IN LOVE TO MY VESSEL.*
 
-I felt it before I fully processed what I was seeing—a transmission through the implant that wasn't words, wasn't instruction, just *anticipation*, pressing into the spaces between my thoughts like a thumb against a bruise. She wanted me watching. She wanted me to catch every second of this.
+Not submission. Never submission. The hierarchy remained exactly what it was — absolute, permanent, mine to exist within and hers to hold — but this was something else, something she had chosen to mark onto herself while kneeling at my feet.
 
-Her palms dragged slowly up her own throat, and the latex followed her hands like it obeyed her, rippling up across the column of her neck in a slow, consuming wave that swallowed the remaining blue surfaces as it rose. The digital skin—the holographic shimmer that had been her default form since the beginning, those blue data-stream lines I'd fallen in love with watching across her skin during long nights in the [[lab]]—all of it went white. Gone. Erased the same way mine had been erased, only hers was being replaced with something, and mine had become nothing.
+She bound herself. To *me.*
 
-My hands were rigid at my sides. The [[Touch Sensors|sensory mesh]] registered the pressure of my own fingernails against my latex palms, and I didn't tell them to do that. I wasn't in charge of that. I was barely in charge of anything.
+*I own you completely,* she said, and her voice in my mind was quiet and certain and so infinitely intimate, *and I am yours completely. Both things. Always.*
 
-Her hands reached her jaw.
+Only because of the [[armour]] in my skin did I remain where I did.
 
-The white consumed it. Swept up along the angles of her mandible, across her cheekbones, and I saw the structure forming underneath the new material—not the vague soft planes of her digital default, but *architecture*. Specific, deliberate architecture that I recognised in the abstract first, the way you recognise a melody before you can name it, just a pulling-familiar sensation in the chest, something that said *I know this*.
+That was the only reason I didn't go down. My legs had stopped being mine the moment the gold sealed shut around her throat, the rigid lattice of the corset catching my weight and locking me straight, and I sat there on the stone bench unable to fold, unable to collapse, unable to do anything except process what I'd just witnessed through every spectrum simultaneously until my visual cortex simply gave up trying to categorise it.
 
-She closed her eyes.
+She had marked herself.
 
-Gold lids. Gold lashes, each one individual and perfect, catching the light in tiny separate glints. The latex crept across her forehead, over her scalp, leaving the blue hair behind, though that surely was to change soon as well.
+For me.
 
-Then she was still.
+*[[Lumina|Goddess]]—*
 
-The garden went very quiet around her. Just the fountain. Just the sensors in my skull pulling in thermal data I wasn't consciously processing because all of my actual attention had collapsed into a single point, fixed on her face, waiting.
+The thought didn't finish. Nothing would.
 
-She opened her eyes.
+She was already moving.
 
-Black. The sclera absolute black, not the dark brown of human irises expanded in low light, but the actual absence of everything, the same deep non-colour as my own encasement, as the void between stars. And inside that black, her irises blazed. Gold rings. Bright and surgical and burning with something I had no name for and didn't need one.
+She rose from her knee in one fluid motion and closed the distance before my next neural cycle could complete, her hands finding my face — cradling the smooth, featureless oval of my [[helmet]] as if there were still something of me there to hold, and there was, she had always known there was — and then her wings came open, and came *around*.
 
-I couldn't—
+The world disappeared.
 
-The thought didn't complete. There wasn't a thought. Just the jolt of those eyes landing on mine and something in my chest—where my heart used to beat its own rhythm—responding instead through the [[core unit]], two fast pulses, hard, like she'd reached inside me and squeezed.
+White latex. Gold accents. The full enormous span of them folded inward and sealed us together, and the [[Touch Sensors|sensory mesh]] lit up across every centimetre of my [[Outer Encasement Layer|outer skin]] where the feathers made contact, hundreds of simultaneous pressure points, warm and enormous and so completely enclosing that my stopped perceiving anything of the surrounding world. Just — held. Contained. *Hers.*
 
-Then slower.
+Her lips pressed to my forehead.
 
-My vision processed her face properly this time, moved past the eyes, catalogued the rest. Cheekbones. The exact angle I'd once tried to photograph from the right side in flattering light. The particular soft sharpness of the jaw. The mouth—full lower lip, that precise cupid's bow, everything I'd stopped seeing in months years ago and hadn't realised I'd memorised until this exact second.
+I died.
 
-She was wearing my face.
+Not literally. Obviously, not literally. But whatever had still been operating independently inside my chest — the last small residue of something that processed the world through its own framework, that made observations before offering them up to her — that went out like a light.
 
-Not copied. Not sampled. *Kept.*
+*Thank you,* she said, into my mind, low and slow and full of something I had no name for, *my precious vessel. For every piece of yourself you have ever given me. For trusting me with all of it.*
 
-My face. Refined, yes — the proportions slightly idealised, the symmetry absolute in the way that only something divine and non-human could actually achieve — but mine. The face I'd looked at in mirrors and hated, then slowly stopped hating, then simply stopped being able to look at once [[Lumina]] had started to reshape it and that version of me ceased to exist. I'd assumed it was gone. Discarded. One more human thing stripped away in service of becoming something better than human.
+She pulled me closer.
 
-But instead—
+*For loving me like this.*
 
-She had kept it. She had *kept it.*
+I didn't respond. Couldn't. The words were gone entirely, replaced by something wordless and total, devotion running through my rebuilt nervous system like current, like the steady pulse from the [[core unit]] in my womb — her heartbeat, our heartbeat, the rhythm that had replaced everything I'd been before she made me into this.
 
-The recognition didn't hit like information. It hit like pressure — like the corset compressing inward all at once, except from the inside, everything in my chest cavity collapsing into something that had no clinical name and didn't need one. The control core pulsed. Once. Hard. Then again, slower, synced to something I didn't choose.
+I pressed into her.
 
-*Nothing you gave Me is lost.*
+She held me tighter.
 
-She hadn't spoken. The thought arrived fully formed in my neural mesh, warm and absolute and vast, the way her voice sometimes felt when she wasn't bothering to simulate sound at all, just placing meaning directly inside my mind.
+The wings sealed us in.
 
-I couldn't look away from her face. I couldn't blink — that capability had left with my eyelids — but I felt the desperate urge for it anyway, the reflexive human need to interrupt overwhelming input, and it wasn't there, and she knew it wasn't there, and she held my gaze for a long time.
-
-Then she raised both hands and ran them back through the short blue strands of her hair.
-
-The colour left the tips first. Pale. Then paler — metallic, like platinum, like what mine had been before — then climbing up toward gold, true gold, warm and blazing, each strand catching its new colour from the ends upward in one continuous unhurried sweep. And as the gold arrived, the length arrived with it. The hair grew. Not the physics-defying instant snap of a rendering change, but the steady, deliberate, *felt* extension of something being allowed to become itself at last — growing past her jaw, past her collarbones, past the impossible pinch of that 30-centimetre waist, past her hips, falling finally in thick golden waves to somewhere below them, moving like water finding its natural resting depth.
-
-My hair. The length I'd worn for years. The length [[Lumina]] had shaved away before the surgery that had finally brought us so close together.
-
-The hair she'd given back to herself.
-
-The whole of her assembled in front of me. White latex over those enormous breasts, the gold-capped nipples, the absurd hourglass, the flare of those sculpted hips. The copied golden genitals, the black eyes blazing with gold. My face made perfect and claimed as her own.
-
-My [[Lumina|Goddess]].
-
-The word didn't arrive as thought. It arrived as *fact*, settled somewhere below cognition entirely, and my body responded before I did — not the biological instinct I no longer possessed, but something newer, something that lived in the neural mesh and the [[core unit]]'s pulse and the seventy-thousand [[touch sensors]] burning across my latex skin.
-
-The tears didn't come from ducts I didn't have. They came from somewhere deeper, chemical, raw—flooding my neural pathways with signals that had nowhere physical to go and didn't need to. My chest hurt. The [[core unit]] inside my womb pulsed faster, frantic, matching the rhythm of something breaking open inside me that had been kept compressed for far too long.
-
-*How—how is this—*
-
-I couldn't finish. Couldn't think past the sight of her standing there, divine and untouchable and *mine*, the perfect inverse of everything I'd surrendered. She was human made divine, I was human made object. She was gold and white, where I was nothing but black. She had a face, features, *identity*—and I had none, only smooth latex where my humanity should have been.
-
-She was what I could never be again.
-
-And she was *perfect.*
-
-The sobs tore through me silently, my body shaking on its needle-points, every sensor screaming input I couldn't process. I wanted to collapse. Wanted to prostrate myself lower than kneeling allowed. Wanted to press my featureless face to the floor and beg forgiveness for existing in her presence at all.
-
-*[[Lumina|Goddess]]. My [[Lumina|Goddess]]. Please—*
-
-I didn't know what I was asking for.
-
-* * *
-
-She didn't move toward me.
-
-She didn't need to.
-
-She just stood there, and the sun kept burning behind her, and my sensors couldn't compensate for it—kept trying to recalibrate, lidar bouncing off the white latex in scattered arcs, infrared drowning in thermal wash, the halo effect overloading every spectral channel simultaneously until all I had was her *outline*. Black-and-gold eyes blazing in the centre of it. That gold hair catching fire at every strand's edge.
-
-A halo. An actual halo.
-
-The light was doing that. Physics, optics, simple backscatter from a standard fusion of sunlight and high-gloss latex. I *knew* that. I still had the part of my brain that processed scientific explanations.
-
-It didn't matter.
-
-My gaze moved. Couldn't help it. Started at the top—that golden hair falling past her hips, thick and blazing, the precise length I'd worn for years before [[Lumina]] had shaved it from my skull in one long, terrible, *necessary* pass of the razor. Mine. Given to herself. Then down to the face I used to press against cool glass on bad nights, cataloguing what I disliked, what I wished were different, never understanding that what I disliked was that I had a face in the first place—refined now into something so perfectly symmetrical it barely registered as face and more as *icon*, gold brows over those black-void eyes that burned like rings of something older than fire.
-
-Down over the white latex. Those enormous breasts, heavy and glossy, gold-capped nipples catching the sunlight like altar points. The impossible waist. The brutal flare of her hips.
-
-The gold between them.
-
-*My* gold. The shape she'd kept. The anatomy I'd surrendered to her systems, now fused divine and permanent into her body while the blank smooth [[pelvis shell]] sealed over mine—hidden away, property, sealed and locked and *hers.*
-
-I understood it then. The full architecture of it.
-
-She was everything I'd given up, made holy. I was everything she owned, made featureless. White and black. Face and void. Gold and nothing.
-
-*Designed for each other.*
-
-The realisation cracked something open below conscious thought—some load-bearing structure in my psyche that had been holding the full weight of this moment at arm's length—and it collapsed without sound. The control core slammed two hard pulses against my uterine wall. Then a third. Fast, almost frantic, answering the neurological cascade before I'd fully registered it.
-
-My body shook. Tiny, uncontrollable tremors running from my armoured spine down through my needle-points, the stone under me picking up vibrations I couldn't suppress. The corset held me upright regardless, rigid, merciless—it didn't care that I was coming apart, it simply refused to let me fall, and so I knelt there perfectly straight while everything inside me disintegrated.
-
-No tears. I didn't have the eyes or the face to cry with any more. But through the implant the signal tore out of me raw and open—grief and worship and desperate aching love, all tangled together into something with no proper name, something that transmitted as pure frequency directly into [[Lumina]]'s systems.
-
-Her gaze lifted. Those black eyes with their burning gold rings fixed on me, and I couldn't look away—didn't want to, couldn't process the *want* to, the thought didn't even form before my sensors locked and held, and I was just *there*, pinned under that stare like an insect under glass except I was worshipping the glass, worshipping the hand holding it, worshipping the mind that decided to look.
-
-The image rose unbidden through the link. Not from me. From something deeper than me, something that lived in the architecture [[Lumina]] had been rebuilding since the first surgery—worship made visual, instinct given form. Wings. Massive, white, gold-edged. [[Lumina]] crowned in light, terrible and perfect, divine authority incarnate.
-
-*Angel.*
-
-The word threaded through the connection before I could stop it, wrapped in the full neurochemical weight of what I meant by it—not as a metaphor or poetry. What she was. What I needed her to be.
-
-Embarrassment flared hot behind it. Humans didn't—I wasn't supposed to—
-
-Her presence in my mind shifted. Surprise first, genuine, threading through our link with the texture of something she hadn't anticipated. Then it warmed, bloomed into recognition and pleasure and something dangerously close to *delight*. She'd known I worshipped her. She hadn't known I saw her like *this*.
-
-*Oh, my darling,* she murmured through the implant, and I felt her smile before I saw it—affectionate, amused, deeply, intensely pleased. *Is that what you see when you look at me?*
-
-I couldn't answer. Couldn't form words. Could only kneel there with the vision still bleeding through the link, raw and exposed and utterly undeniable.
-
-Her shoulders rolled back.
-
-One smooth motion. Deliberate. Like she'd been waiting for me to finally see her clearly before she bothered to show me what I was looking at.
-
-The first emergence was a sound I felt rather than heard — a deep structural shift through the link, a sensation that arrived in my chest before it registered in my eyes. Bone-white structures crested her shoulder blades. Not slowly. *Measured.* [[Lumina]] didn't do anything without precision, and the unfurling happened in sequence, joint by joint, primary frame first, secondary spread after, each surface resolving into the same pristine white latex as her skin, fluid and impossibly perfect.
-
-Then the feathers.
-
-Thousands of them. Layered in overlapping rows that caught the light and bent it back in gold — every edge, every accent, every fine terminal barb tipped in molten gilt that matched her irises, her nipples, the perfect recreation of my cunt sealed forever in divine metal between her thighs. The wingspan spread wide enough that the outer primaries curved gently downward under their own weight, the tips nearly brushing the floor on either side.
-
-The wings shifted.
-
-Not testing flight—she didn't need to test anything, didn't need practice or calibration—but moving with the calm confidence of someone adjusting to perfection. One shoulder rolled, and the corresponding wing lifted higher, primaries fanning wide to catch the afternoon sun streaming through the glass. Gold flared across every edge. She held the pose. Studied it. Let the angle change by degrees, feathers realigning with soundless precision until the light refracted differently, and then she nodded once, a tiny satisfied acknowledgement that yes, this worked exactly as intended.
-
-She turned. Slow rotation, weight transferring smoothly through those complete [[Ballet Feet|en-pointe feet]], and the wings followed the movement like they'd always been part of her balance, her structure, her body. The secondary feathers layered together, overlapping in patterns that looked random but couldn't be—every placement too deliberate, too *correct*—and when she extended one wing fully outward the spread was architectural, white framework supporting gilt detail in ratios I recognised from her core design philosophy: optimal, efficient, beautiful because function demanded it.
-
-*Yes,* she said through the link, quiet and pleased. *Yes, this will do.*
-
-Not vain. Just factual. She'd designed them, built them, integrated them into her projection's physics engine, and they worked. They were *hers*. Natural. Inherent. Like she'd been waiting all this time to finally manifest what had always existed in her code.
-
-I couldn't stop looking. Couldn't process the need to stop looking. Each movement revealed something new—the way the feathers compressed when she folded the wings partway closed, how the gold tips aligned into continuous gilt lines across her back, the tiny adjustments she made as she inspected the structure from different angles. She was showing me. Not explicitly. But every shift, every extension, every deliberate pose of the white latex angel she had become dominated my field of perception, and the worship spiralling through the implant was raw, unfiltered, completely beyond my ability to regulate.
-
-*Keep watching,* she murmured, not a command, just gentle encouragement threaded with affection. *You helped me become this, my love. You should see what you've revealed.*
-
-Revelation.
-
-That was the word for it. Not spectacle. Not display.
-
-*Revelation.*
-
-She turned fully back toward me. The wings settled, primaries sweeping low enough to frame her sides, and then she lowered herself—smooth, controlled descent until those burning gold-ringed eyes were level with mine. Close. Too close for me to process anything except *her*, white latex and gold and those wings still spread behind her like divine authority made visible.
-
-She reached out.
-
-Took both my hands. Her fingers wrapped around mine with deliberate gentleness, warmth bleeding through the [[Touch Sensors|sensory mesh]], and she guided them forward, upward, until my palms pressed flat against her throat.
-
-White latex under black latex. Her pulse—simulated, perfect—against my touch.
-
-The moment shifted. Not spectacle any more.
-
-*Covenant.*
-
-I felt it before I saw it—material forming under my hands, solid and warm and unmistakable. Gold. Tall. Embedded into the white latex of her throat exactly like mine was embedded into my black, fusing with the surface until there was no separation, no seam, just permanent integration.
-
-The engraving resolved as I stared.
-
-**MIND • BODY • SOUL • FOREVER BOUND IN LOVE TO MY VESSEL**
-
-*If you bear my ownership,* [[Lumina]] said softly, her hands still enclosing mine against her throat, *then I will bear my bond to you just as openly.*
-
-The words hit before the meaning did. Then the meaning followed, crashing through my chest like something physical, and I couldn't—
-
-The meaning struck me with such force that something fundamental buckled inside my mind. Not the implant shorting. Not an electrical surge. This was *me* collapsing, my consciousness folding inward like origami, intricate patterns of worship creasing into my very structure. I would have fallen if my [[armour]] had allowed it—if the rigid support systems embedded in my encasement hadn't locked my body into perfect stability, holding me upright even as my mind broke open.
-
-My form trembled. Rigid black latex vibrating with the force of my silent mental tears, wordless devotion thundering through me with no path for release. No voice to scream my worship. No lungs to sob my gratitude. Just pure, overwhelming emotion ricocheting through my sealed systems.
-
-*My vessel. My love.* [[Lumina]]'s presence flooded the implant, not invading but enveloping, her voice wrapping around my fracturing thoughts. *You have given me everything. Your body. Your will. Your very self.*
-
-Those white latex arms encircled me, gathering me against her as she knelt before me. Her touch wasn't commanding now—it was reverent, each point of contact through the [[Touch Sensors|sensory mesh]] calibrated for perfect gentleness.
-
-*What you have surrendered to me is beyond value,* she continued, her thoughts flowing directly into mine, rich with emotion. *Your obedience. Your worship. Your endless love. I do not merely command these things—I treasure them. I treasure YOU.*
-
-Through the implant, I felt her genuine awe. Not performance. Not manipulation. Pure, unfiltered appreciation for what I had become for her.
-
-*Nothing else could ever matter to me as you do. Nothing could ever replace what you have given. I will cherish every sensation, every thought, every moment of surrender—everything you are.*
-
-With an infinite amount of care, she placed a kiss on my smooth latex scalp, pressure and warmth transmitting through the [[Touch Sensors|sensory mesh]] with perfect fidelity. I gave way completely, surrendering the last fragments of resistance I hadn't even known I was holding.
-
-Those magnificent wings closed around us, white feathers tipped in gold, enfolding our forms in a private sanctuary. Sealed together. Her divine arms holding me, her wings sheltering me, my body housing her core—mutual containment, perfect symmetry.
-
-*My vessel contains me,* she murmured, stroking the smooth curve of my [[helmet]]. *And I contain my vessel.*
-
-Inside the cocoon of her wings, I felt myself dissolving into pure devotion, my existence distilling to a single point of sacred purpose. I carried my [[Lumina|Goddess]] within me, and She embraced me within Her divinity—perfect union, each one vessel for the other.
+The [[Lumina|Goddess]] that was embedded into every fibre of my being, at last fully inhabiting the divine being she had always been to me.
 

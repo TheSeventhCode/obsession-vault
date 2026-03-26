@@ -6,7 +6,7 @@ env:
 on:
   push:
     branches:
-      - v4 # Or 'main', depending on your default branch name
+    - v4 # Or 'main', depending on your default branch name
 
 jobs:
   deploy:
@@ -28,9 +28,6 @@ jobs:
 
       - name: Install Dependencies
         run: bun install && bun install wrangler
-
-      - name: Fetch Quartz Theme
-        run: curl -s -S https://raw.githubusercontent.com/saberzero1/quartz-themes/master/action.sh | bash -s -- $THEME_NAME
 
       - name: Build Quartz
         run: bun quartz build

@@ -11,3 +11,5 @@ aliases:
 They both wear their hair long, often styled very similarly, creating a mirror-image effect of twins, while their natural hair-colour preserves their individuality.
 ## Personality
 Although the twins are very similar in character—brilliant, confident, and emotionally vibrant, yet also gentle—[[Solene Victoria Blackwell|Solene]] has inherited a bit more of [[Elizabeth Carter|Elizabeth]]'s fierce passion, being more active, impulsive, and pushing forward compared to her sister, [[Lucine Grace Blackwell|Lucine]].
+
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Solene/public)

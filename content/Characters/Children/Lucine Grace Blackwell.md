@@ -13,3 +13,5 @@ Contrary to [[Solene Victoria Blackwell|Solene]], [[Lucine Grace Blackwell|Lucin
 She wears it long, often styled very similarly to her sister, creating a mirror-image effect of twins, while their natural hair-colour preserves their individuality.
 ## Personality
 Although the twins are very similar in character—brilliant, confident, and emotionally vibrant, yet also gentle—[[Lucine Grace Blackwell|Lucine]] is a bit more reserved, turned inward than her sister, [[Solene Victoria Blackwell|Solene]], as well as slightly more analytical, occasionally being overly prepared, thinking of every possibility.
+
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Lucine/public)

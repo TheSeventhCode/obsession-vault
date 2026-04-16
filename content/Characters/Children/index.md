@@ -118,3 +118,5 @@ With [[Elizabeth Carter|Elizabeth]], the two are very affectionate, openly lovin
 ## In Public
 
 Being aware their family is very different even as young children, [[Solene Victoria Blackwell|Solene]] and [[Lucine Grace Blackwell|Lucine]] don't easily discuss their family with other people, apart from [[Elizabeth Carter|Elizabeth]] who they introduce as their _mother_. If the topic comes up with other people, they quickly get defensive, not wanting to reveal too much, not out of shame or embarrassment, but because they feel like they have to protect the intimate and comfortable life they have at home. They almost never bring home guests, only after enough preparation with their mothers. Because of the complete uniqueness of their family, they don't really trust anyone outside it _completely._
+
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/family/public)

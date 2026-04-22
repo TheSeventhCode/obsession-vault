@@ -47,6 +47,8 @@ The transformation leaves [[Alexandra Rose Blackwell|Alexandra]] in a state so f
 
 Eventually, [[Lumina]] even changes how [[Alexandra Rose Blackwell|Alexandra]]'s synthetic body works, restructuring [[Alexandra Rose Blackwell|Alexandra]]'s brain or other synthetic organs. [[Alexandra Rose Blackwell|Alexandra]]'s entire body will technically only need the [[power supply]] fused within her chest to work, every single cell and part of her body having been reworked and replaced by synthetic material that works with the energy from the fusion reactor. But instead of stopping with the routine maintenance cycles to resupply [[Alexandra Rose Blackwell|Alexandra]], they continue as a last ritual of recollection of [[Alexandra Rose Blackwell|Alexandra]]'s once human origins.
 
+In the end, [[Alexandra Rose Blackwell|Alexandra]]'s synthetic body is a mixture of the living latex-flesh and [[Lumina]]'s permanent systems, with over 60% of her body being purely [[Lumina]]'s [[nanobots]]—either fulfiling some role, or just converted into [[Alexandra Rose Blackwell|Alexandra]]'s latex flesh. These [[nanobots]] that make up a majority of [[Alexandra Rose Blackwell|Alexandra]]'s body can be re-activated at any time, essentially allowing [[Lumina]] to restructure [[Alexandra Rose Blackwell|Alexandra]]'s physical body at any time into anything.
+
 In quiet moments, when [[Alexandra Rose Blackwell|Alexandra]] accesses her remaining human memories, she sometimes marvels at how complete her transformation has become. There is no part left of her that remained untouched, no cell or thought that existed independently of [[Lumina]]. She has surrendered not just body and mind, but every substance of her being.
 
 ## Physical Appearance

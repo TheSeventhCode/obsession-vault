@@ -4,7 +4,7 @@ aliases:
   - Liz
   - Miss Carter
 ---
-[[Elizabeth Carter|Elizabeth]] is an old friend and former roommate of [[Alexandra Rose Blackwell|Alexandra]] from their college years. At that time, [[Elizabeth Carter|Elizabeth]] had a huge crush on [[Alexandra Rose Blackwell|Alexandra]] but never got the chance to express her feelings, and [[Alexandra Rose Blackwell|Alexandra]] never picked up on any of her signals.
+obs[[Elizabeth Carter|Elizabeth]] is an old friend and former roommate of [[Alexandra Rose Blackwell|Alexandra]] from their college years. At that time, [[Elizabeth Carter|Elizabeth]] had a huge crush on [[Alexandra Rose Blackwell|Alexandra]] but never got the chance to express her feelings, and [[Alexandra Rose Blackwell|Alexandra]] never picked up on any of her signals.
 ## Backstory
 After college, [[Elizabeth Carter|Elizabeth]] went into fashion, becoming a prominent designer, resulting in her having travelled over the world for the past eight years. But she has now come back to the same town [[Alexandra Rose Blackwell|Alexandra]]'s lives in, as she has opened her own boutique there. Having found out, that [[Alexandra Rose Blackwell|Alexandra]] was also living in that town, [[Elizabeth Carter|Elizabeth]] wants to reconnect with her old crush from college.
 

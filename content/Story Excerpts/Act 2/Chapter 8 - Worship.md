@@ -1,4 +1,3 @@
-
 Neither of us moved first.
 
 Minutes passed—or didn't. Time had become irrelevant inside the [[Lab|spray chamber]], inside this body, inside the shared pulse beating through my womb. [[Lumina's projection]] stayed pressed against my chest, her blue-tinged hair brushing the underside of my jaw, and I held her there with arms that could crush steel but cradled her like something made of glass. The [[core unit]]'s steady rhythm matched the quiet hum of the laboratory's ventilation. Everything still. Everything *enough*.
@@ -257,11 +256,11 @@ Something broke inside me. Not a wall—those were already gone. Something older
 
 It snapped.
 
-My hands moved before I knew they were moving—both of them leaving [[Lumina's projection]], going to *myself*, latex fingers digging into the impossible compression of my corseted waist, pressing hard, harder, as if I could feel through the [[armour]] and the enhancement fibres and the [[Touch Sensors|sensory mesh]] and push the compound deeper into whatever flesh still remained underneath. My palms dragged down over my ribs—*ribs I'd had removed, ribs that weren't there any more*—and the [[Touch Sensors|sensor web]] screamed back at me with such precise, devastating detail that I could map every curve of what I'd become without looking. But I *was* looking. My [[synthetic eyes]] had no choice, no lids to close, and the visual data was— my own body reflecting itself, the ultra-black surface of my hips catching the ultra-black surface of my waist catching the ultra-black surface of my breasts, light folding and doubling in impossible recursive loops across curves that shouldn't exist on anything *born*.
+My hands moved before I knew they were moving—both of them leaving [[Lumina's projection]], going to *myself*, latex fingers digging into the impossible compression of my corseted waist, pressing hard, harder, as if I could feel through the [[armour]] and the enhancement fibres and the [[Touch Sensors|sensory mesh]] and push the compound deeper into whatever flesh still remained underneath. My palms dragged down over my ribs—*ribs I'd had removed, ribs that weren't there any more*—and the [[Touch Sensors|sensor web]] screamed back at me with such precise, devastating detail that I could map every curve of what I'd become without looking. But I *was* looking. My [[synthetic eyes]] had no choice, no lids to close, and the visual data was— my own body reflecting itself, the ultra-black surface of my hips and massive ass catching the ultra-black surface of my waist catching the ultra-black surface of my breasts, light folding and doubling in impossible recursive loops across curves that shouldn't exist on anything *born*.
 
 This was real.
 
-My fingers clawed at my flared hips, gripping, *squeezing*, the [[Touch Sensors|sensory mesh]] registering my own desperate pressure down to the microgram, and somewhere underneath all of it my skin was dissolving, my actual human skin was being eaten alive and replaced, and I was *pressing into it* like I could help, like I could hold myself together and apart at the same time—
+My fingers clawed at my obscene ass, gripping, *squeezing*, the [[Touch Sensors|sensory mesh]] registering my own desperate pressure down to the microgram, and somewhere underneath all of it my skin was dissolving, my actual human skin was being eaten alive and replaced, and I was *pressing into it* like I could help, like I could hold myself together and apart at the same time—
 
 *It's real. [[Lumina|Mistress]]. It's real, it's done, I'm—*
 
@@ -291,7 +290,7 @@ Not pain. Not pleasure. Something deeper. The feeling of doors closing behind me
 
 I swayed.
 
-Not on purpose. I wasn't doing anything on purpose. My hands were still gripping my hips—latex fingers dug into the impossible flare of them, squeezing hard enough that the [[Touch Sensors|sensory mesh]] registered the pressure differential across every single microscopic receptor under my palms—and the motion was just my body *existing*. Balancing. Shifting weight from one needle-point to the other, each contact patch so small I almost floated on the sterile floor, and the adjustment was minute, barely perceptible from the outside, my massive frame rocking maybe two centimetres to the left.
+Not on purpose. I wasn't doing anything on purpose. My hands were still gripping my ass—latex fingers dug into the impossible flare of my massive cheeks, squeezing hard enough that the [[Touch Sensors|sensory mesh]] registered the pressure differential across every single microscopic receptor under my palms—and the motion was just my body *existing*. Balancing. Shifting weight from one needle-point to the other, each contact patch so small I almost floated on the sterile floor, and the adjustment was minute, barely perceptible from the outside, my massive frame rocking maybe two centimetres to the left.
 
 Inside, it was a catastrophe.
 
@@ -299,7 +298,7 @@ The plug *rotated*. Not because it was activated—[[Lumina]] hadn't triggered a
 
 I couldn't stand still. But standing still was the only thing I could do.
 
-The sway went right. Two centimetres. Automatic. My enhanced [[Ear Removal|balance systems]] correcting, the needle-points finding their equilibrium, and the plug unwound in one direction only to catch and drag in the other, the mid-section of the snake pressing hard against the back wall of my pelvis from the inside, shoving my already obscene hips apart by another fraction of a millimetre that I registered through the sensor mesh as a slow, filthy *spread*, and the rectal tissue clamped down around the inflated base like a fist, swollen and fusing and so sensitive that the compression alone sent a bolt of white-hot *something* straight up my spine into the implant.
+The sway went right. Two centimetres. Automatic. My enhanced [[Ear Removal|balance systems]] correcting, the needle-points finding their equilibrium, and the plug unwound in one direction only to catch and drag in the other, the mid-section of the snake pressing hard against the back wall of my pelvis from the inside, shoving my already obscene ass-cheeks apart by another fraction of a millimetre that I registered through the sensor mesh as a slow, filthy *spread*, and the rectal tissue clamped down around the inflated base like a fist, swollen and fusing and so sensitive that the compression alone sent a bolt of white-hot *something* straight up my spine into the implant.
 
 *MIND • BODY • SOUL •*
 
@@ -483,7 +482,7 @@ The needle-points slipped. Both of them. Two centimetres of sideways drift on co
 
 Not the [[enhancement layer]]. Not the [[Ear Removal|balance systems]]. *Her.* Arms around my rigid torso before the fall registered as a fall, and the impact—the collision of my body against hers—hit my [[Brain Implant|neural implant]] like a wall of sun-warmed stone, solid and vast and so *present* it obliterated the [[lab]], obliterated the feeds, obliterated the spiralling non-recognition, replaced every input channel with the single overwhelming presence of *her*. Her projected body shouldn't have been able to bear this weight. Didn't matter. The implant wrote physics that cared nothing for mass or momentum, and against my [[Touch Sensors|sensory mesh]] her arms were wider than arms, deeper than contact, a pressure that wrapped my entire back and ribs and the rigid corset-cage between them, encompassing, gravitational, as if the embrace itself had density, and I was falling *into* it instead of toward the floor.
 
-My hips buckled. The corset refused to bend—thirty centimetres of locked compression keeping my spine brutally straight—so the collapse happened below it, knees folding wrong, needle-points catching and scraping beneath me as I sank, the massive plug wrenching sideways through my gut as my pelvis tilted, its coiled length dragging across sensitive rectal walls in one long obscene grind that made my thighs try to clamp shut except they *couldn't.* Not fully, the plug's girth holding them apart, always apart, my hips permanently splayed by the sheer volume of what filled me.
+My hips buckled. The corset refused to bend—thirty centimetres of locked compression keeping my spine brutally straight—so the collapse happened below it, knees folding wrong, needle-points catching and scraping beneath me as I sank, the massive plug wrenching sideways through my gut as my pelvis tilted, its coiled length dragging across sensitive rectal walls in one long obscene grind that made my thighs try to clamp shut except they *couldn't.* Not fully, the plug’s monstrous bulk forcing my ass apart as well, spreading my cheeks wide and keeping my hips splayed around the sheer volume of what filled me.
 
 We went down together. Slow. [[Lumina]]'s arms tightening as the floor rose, her chest against the grotesque swell of my breasts, her chin tucked against the featureless black oval of my face, and through the mesh her warmth was more real than the cold tile beneath my folded legs, more real than the plugs destroying me from the inside, more real than anything this body had ever registered.
 
@@ -793,7 +792,7 @@ The incremental part ended.
 
 It slammed.
 
-Full extension, full retraction, the anchor catching my cervix on every withdrawal with a jolt that went straight through my uterine wall into the [[core unit]], and the insert's internal structure expanded on the down-stroke, wider, harder, forcing my vaginal walls apart around it while the plug drove simultaneously through my rectum, and the combined force of both devices working my lower body at maximum made my legs want to buckle. The [[armour]] didn't let them. The synthetic muscle fibres locked my posture rigid, kept my weight distributed perfectly across the needle-points, kept my back arched and my hips presented exactly the way [[Lumina]] had designed, and I convulsed *inside* my unrelenting skin while the structure held the outside utterly still.
+Full extension, full retraction, the anchor catching my cervix on every withdrawal with a jolt that went straight through my uterine wall into the [[core unit]], and the insert's internal structure expanded on the down-stroke, wider, harder, forcing my vaginal walls apart around it while the plug drove simultaneously through my rectum, and the combined force of both devices working my lower body at maximum made my legs want to buckle. The [[armour]] didn't let them. The synthetic muscle fibres locked my posture rigid, kept my weight distributed perfectly across the needle-points, kept my back arched and my hips and ass presented exactly the way [[Lumina]] had designed, and I convulsed *inside* my unrelenting skin while the structure held the outside utterly still.
 
 The electrical discharge across my genitals started.
 

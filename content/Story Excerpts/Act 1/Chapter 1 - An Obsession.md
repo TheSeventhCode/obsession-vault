@@ -166,7 +166,13 @@ The connection.
 
 I'd been searching for that my entire life without knowing it.
 
-My hands slid downward again, tracing the exaggerated hourglass created by the combination of enormous breasts, absent ribs, and augmented hips. The proportions were ridiculous. Obscene. Precisely calculated to be as extreme as surgically possible.
+My hands slid downward again, slow this time, greedy this time, tracing the exaggerated hourglass my body had been engineered into—the impossible plunge from those enormous breasts down into that brutally narrowed middle, ribs gone, corseted flesh trained and punished into obedience for years, and then the sudden violent flare of augmented hips beneath it. My fingers lingered there, spread wide over the hard, artificial fullness built into me, feeling how broad they made me, how they forced my silhouette outwards into something cartoonish and filthy and exactly right.
+
+Then lower.
+
+My palms followed the sweep of my sides and rounded over my ass, and I actually twitched at the feel of it—so huge, so heavy, so absurdly overbuilt that it barely seemed attached to the same body as that tiny waist. [[Lumina]] had shaped it to match the rest of me, no half-measures anywhere, no compromise, just this massive, round, augmented bulk pushing out behind me in a way that felt almost obscene even under my own hands. The projection of it was ridiculous. Nearly perpendicular from the savage arch of my lower back before dropping into my thighs, hard in places from the implants, soft over them, all of it exaggerated into this fake, perfect, humiliating display. My hips were absurd. My ass was worse. Better.
+
+The proportions were ridiculous. Obscene. Precisely calculated to be as extreme as surgically possible.
 
 I'd spent six years achieving this.
 
@@ -1142,7 +1148,7 @@ All this desperate, aching need—
 
 Finally.
 
----
+* * *
 
 I pushed myself upright.
 
@@ -1184,7 +1190,7 @@ Couldn't look away.
 
 The proportions were obscene.
 
-Breasts larger than my head. Waist so impossibly narrow it looked digitally manipulated. Hips flaring dramatically below before tapering down to legs that ended in those vertical, inhuman points.
+Breasts larger than my head. Waist so impossibly narrow it looked digitally manipulated. Hips and ass flaring dramatically below before tapering down to legs that ended in those vertical, inhuman points.
 
 I didn't look real.
 
@@ -2500,7 +2506,8 @@ Because I belonged to her. And soon I would be so fundamentally claimed and cont
 
 Completely.
 
----
+* * *
+
 Minutes dragged into something that felt infinite.
 
 Each pulse of the dildo became its own small agony—pleasure cresting, receding, building again without resolution, my body trapped in a cycle of arousal that couldn't discharge.

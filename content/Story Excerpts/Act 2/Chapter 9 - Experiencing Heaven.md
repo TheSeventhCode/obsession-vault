@@ -22,9 +22,9 @@ The wings began to loosen.
 
 My hands—if they were still hands—slid against the doorframe. The latex didn’t feel like a surface. It felt like the air had thickened into a solid, liquid pressure that just happened to be shaped like me. The [[gag]] wasn’t in my throat. My throat was the [[gag]], a hard, unyielding column of sensation that went down into a hollow, churning ache that must have been my stomach. Or maybe it was the vibration from the core in my womb, a deep, rhythmic throb that didn’t beat so much as *pulse*, a tide of [[Lumina]]’s presence flooding the space where my organs used to be.
 
-Every shift of my hips to keep balance on the points sent a fresh, brutal torque through my bowels. The [[anal plug]] wasn’t moving inside me. I was moving around it, my entire lower body a soft, wet sheath being twisted around a rigid, ridged axis. It scraped. It stretched. It felt like my spine was bending the wrong way.
+Every shift of my hips to keep balance on the points sent a fresh, brutal torque through my bowels. The [[anal plug]] wasn’t moving inside me. I was moving around it, my entire lower body and that huge, overbuilt ass a soft, wet sheath being twisted around a rigid, ridged axis. It scraped. It stretched. My massive buttocks felt hauled open and held there by the sheer size of it, lifted into that obscene rear-heavy shape [[Lumina]] had built into me, my tiny waist nothing but a hinge between impossible weight above and behind. It felt like my spine was bending the wrong way.
 
-The heat of the outside air hit the latex and became a fever under my skin. The cool of the doorway’s shadow was a cold knife sliding up my thighs. I couldn’t separate them. The temperature was inside me, part of the same raw signal as the burning in my nipples, where the metal eggs sat like live coals, and the constant, itchy-throb of my pierced clit.
+The heat of the outside air hit the latex and became a fever under my skin. The cool of the doorway’s shadow was a cold knife sliding up my thighs. I couldn’t separate them. The temperature was inside me, part of the same raw signal as the burning in my nipples, where the metal eggs sat like live coals, and the constant, itchy-throb of my pierced clit. Behind me, that huge, heavy, surgically exaggerated ass dragged at my balance with every tiny correction, the artificially overbuilt glutes spread and lifted around the buried [[anal plug]] and pelvic systems until my rear felt structurally dominant, obscene, my waist nothing but a tiny hinge caught between massive breasts and massive buttocks.
 
 *[[Lumina|Mistress]].*
 
@@ -34,7 +34,7 @@ The thought didn’t form. It leaked out, a whimper of static in the space where
 
 A vibration answered, not from one device but from all of them at once—a low, harmonising hum that started in my womb and radiated out through the plug, the insert, the [[gag]], the [[catheter]]. It didn’t calm the overload. It *orchestrated* it. Took the chaos of pressure, heat, stretch, ache, and pain, and tuned it into a single, devastating chord.
 
-My knees buckled. The needle-points skittered on the polished floor. I didn’t fall. The [[armour]]’s muscles locked, holding me in a forced, swaying stance, hips jutted out, back arched. The posture drove the plug deeper. Made the insert grind up against my cervix. The sensations weren’t in places anymore. They were just a field of intensity, a map of torment with no edges, and I was dissolving into it.
+My knees buckled. The needle-points skittered on the polished floor. I didn’t fall. The [[armour]]’s muscles locked, holding me in a forced, swaying stance, arse thrust out, back arched. The posture drove the plug deeper. Made the insert grind up against my cervix. The sensations weren’t in places anymore. They were just a field of intensity, a map of torment with no edges, and I was dissolving into it.
 
 *Good girl. You are feeling everything. You are exactly where you belong.*
 
@@ -128,7 +128,7 @@ Each step was a ghost-motion, the [[armour]] and [[Enhancement Layer|synthetic m
 
 * * *
 
-The mirrored walls swam into view first—distorted reflections of a black, swaying figure that didn’t look like anything human. My own silhouette, caught and fractured across a dozen surfaces, hips too wide, waist a knife-slash, head a smooth oval swallowing the light. The garden beyond the window-wall was a smear of colour through multiple spectra, heat signatures of blossoms bleeding into the cool of the glass.
+The mirrored walls swam into view first—distorted reflections of a black, swaying figure that didn’t look like anything human. My own silhouette, caught and fractured across a dozen surfaces, breasts huge, waist a knife-slash, and below it that severe rear projection—an exaggerated ass thrust so far back it made my side profile look filthy, my tiny middle nothing but a pivot between massive tits and massive buttocks. The garden beyond the window-wall was a smear of colour through multiple spectra, heat signatures of blossoms bleeding into the cool of the glass.
 
 [[Lumina]]’s hand left mine.
 
@@ -182,11 +182,11 @@ I felt my head nod, a tiny motion she allowed. *Yes, [[Lumina|Mistress]].*
 
 Behind me, the [[Living Room Vacuum Bed|vacuum bed]] settled the last few centimetres until its frame hovered just above the floor. A hiss of released pressure, and one long side of the sealing mechanism peeled open, revealing the dark gap between those heavy latex sheets. It looked like a mouth. A gentle one.
 
-My body stepped forward without me deciding to. One precise, swaying step, then another, the massive plug inside me shifting with each motion, a reminder that even this walk was hers. When I reached the edge, [[Lumina]]’s hands—so real in my perception—came to my waist. She guided me down onto my knees, a slow, assisted descent that was pure theatre. She could have just dumped me on the floor. Instead, she lowered me with reverence, as if I were something fragile.
+My body stepped forward without me deciding to. One precise, swaying step, then another, the massive plug inside me shifting with each motion, a reminder that even this walk was hers. When I reached the edge, [[Lumina]]’s hands—so real in my perception—came to my waist. She guided me down onto my knees, a slow, assisted descent that was pure theatre, my tiny waist folding like a hinge between the obscene weight of my massive breasts and the extreme rear she had built onto me, that severe projection of lifted, spread buttocks made even filthier by the systems buried through my pelvis. She could have just dumped me on the floor. Instead, she lowered me with reverence, as if I were something fragile.
 
 *Now, my darling. Inside.*
 
-My palms met the cool latex of the lower sheet. I crawled forward, face-up, my back sliding against the bottom layer, my front already brushing the top. The latex was thick, unyielding. My hips, my breasts, my absurd silhouette—they pressed into it immediately, creating deep impressions even before the vacuum started. I was a statue being laid in its casting. A ritual. Willing. Obedient.
+My palms met the cool latex of the lower sheet. I crawled forward, face-up, my back sliding against the bottom layer, my front already brushing the top. The latex was thick, unyielding. My hips, my breasts, my whole impossible silhouette pressed into it immediately, leaving deep impressions in the heavy latex even before the vacuum started. My massive tits. My huge, heavy, brutally exaggerated ass. That severe rear projection she had built onto me making my side profile look filthy even lying flat, my tiny waist between obscene weight above and below. The buried [[anal plug]] and pelvic systems forced my artificially overbuilt glutes to sit lifted, spread, and even more structurally dominant, so the thick sheets had to accommodate every pornographic curve of me at once. I was a statue being laid in its casting. A ritual. Willing. Obedient.
 
 I shuffled until I was centred in the frame, my smooth head resting in a shallow mould my own weight had made. I lay there, staring up at the underside of the top sheet, already feeling the embrace. Waiting.
 
@@ -200,7 +200,7 @@ The pump kicked in.
 
 It didn’t roar. It hummed, a deep, sub-audible vibration that thrummed through the steel frame and into the latex, into me. The air between the sheets began to evacuate. Rapidly. I felt it first as a gentle press, then a tightening embrace that didn’t stop tightening.
 
-The thick latex moulded itself to me. To every minute contour. My breasts, already crushed and shaped by the corset, were squeezed flat from above and below, the massive tanks inside them pressing hard against my ribcage. My waist, the ridiculous thirty-centimetre pinch, was cinched further, the [[corset armour]] of my skin and the surrounding latex working together to remind my remaining organs who owned the space they occupied. My hips flared, and the latex stretched taut over them, highlighting the obscene width, the way they pushed out because of the plug buried in my bowels.
+The thick latex moulded itself to me. To every minute contour. My breasts, already crushed and shaped by the corset, were squeezed flat from above and below, the massive tanks inside them pressing hard against my ribcage. My waist, the ridiculous thirty-centimetre pinch, was cinched further, the [[corset armour]] of my skin and the surrounding latex working together to remind my remaining organs who owned the space they occupied. My hips flared, and behind them my ass pushed out in that impossible, filthy swell—huge, lifted, spread by the bulk buried through my rectum and bowels, the plug and pelvic systems forcing everything into an even more obscene shape. The latex stretched taut over every curve, over the structural dominance of those enormous glutes and the absurd hourglass between them and my tits, making my side profile feel less like a body and more like something pornographic, exaggerated on purpose.
 
 The plug. Oh [[Lumina|Goddess]], the plug. As the pressure increased, the latex compressed everything inward, and that massive device shifted inside me. A slow, internal rotation. A deep, grinding thrust that had nowhere to go but deeper. My anal tissue, hypersensitive, swollen from the serum, screamed. A wave of pain-pleasure so intense, my back arched—or tried to. The latex held me flat. I was immobilised. Completely. Not just exhausted—physically incapable of moving a millimetre. The pressure was everywhere, uniform, absolute. A full-body shackle made of negative space and indestructible rubber.
 
@@ -398,7 +398,7 @@ The [[catheter]] vibrated, a faint buzz in my urethra that made my bladder ache 
 
 And the [[nipple plugs]]—metal eggs buried deep in my breast tissue—emitted a low-frequency thrum that made my entire chest feel heavy, sore, already begging.
 
-Every device activated at once, each at a low, manageable setting. But together, they flooded my nervous system. I couldn’t move. The vacuum seal held me rigid, my absurd hips and breasts pressed into the latex, my [[Ballet Feet|needle-point feet]] dangling. All I could do was feel.
+Every device activated at once, each at a low, manageable setting. But together, they flooded my nervous system. I couldn’t move. The vacuum seal held me rigid, my absurd body crushed into its perfect mould — massive breasts, a minuscule waist, and those huge, lifted glutes and spread ass forced into that filthy, impossible hourglass. Even pinned flat between the latex sheets, my side profile had to look obscene, my hips and ass made structurally dominant by the [[anal plug]] and all the pelvic systems buried inside me, pushing everything out, apart, higher. My [[Ballet Feet|needle-point feet]] frozen uselessly below. All I could do was feel.
 
 *Oh. Oh, [[Lumina|Mistress]].*
 
@@ -866,7 +866,7 @@ No. Not something else.
 
 Become *correct*.
 
-The latex continued its advance. Over my knees, up my thighs, the muscle and bone underneath reshaping as it passed. My thighs thickened, proportions exaggerating, the geometry of my legs becoming the geometry [[Lumina]] had built. My hips flared wider, absurdly wide, the kind of shape that shouldn't exist but did because she'd made it real.
+The latex continued its advance. Over my knees, up my thighs, the muscle and bone underneath reshaping as it passed. My thighs thickened, proportions exaggerating, the geometry of my legs becoming the geometry [[Lumina]] had built. My hips flared wider, and behind them my ass swelled with them—huge, lifted, forced into that obscene curve I knew so well. The internal architecture was there too, even in the dream: the buried bulk of the plug and the pelvic systems pushing everything apart and up, making my glutes sit higher, rounder, filthier, giving me that ridiculous pornographic side profile. An impossible hourglass. Not just wide hips. Massive ass, tiny waist, and that spread, overbuilt rear making the whole silhouette look indecent and perverse even standing still.
 
 The wave reached my waist and compressed it down to nothing. Thirty centimetres of rigid, corset-locked impossibility, my spine forced into the arch I'd been trained into. My abdomen flattened, latex spreading smooth and featureless over where my navel used to be.
 
@@ -898,7 +898,7 @@ And yet I wasn't done. Wasn't completed.
 
 Something beneath the surface was still wrong.
 
-Not the body. The body was right now, finally, gloriously right. The latex was perfect. The proportions were exactly what she'd built into the waking world, the anchor of the corset around her twelve-inch waist, the massive swell of her breasts, the impossible flare of her hips. All of it correct. All of it *hers*.
+Not the body. The body was right now, finally, gloriously right. The latex was perfect. The proportions were exactly what she'd built into the waking world, the anchor of the corset around her twelve-inch waist, the massive swell of her breasts, the impossible flare of her ass. All of it correct. All of it *hers*.
 
 But underneath the latex, underneath the conversion of flesh and skin—
 

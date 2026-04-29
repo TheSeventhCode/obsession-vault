@@ -8,7 +8,7 @@ The [[anal plug]] shifted deep within my bowels, the massive device grinding aga
 
 I took a breath I didn't need—old habit, meaningless comfort—and forced one leg forward.
 
-My extreme hourglass figure made normal walking impossible. The massive devices filling my abdomen forced my hips into wide, rolling motions just to avoid having the [[anal plug]]'s inflated end collide with my pelvic bones. Except that rolling motion thrust the device deeper, twisted it inside my rectum, made the [[supply connection]] threading through my intestines shift in ways that sent lightning through my core.
+My extreme hourglass figure made normal walking impossible. The massive devices filling my abdomen forced my hips and ass into wide, rolling motions just to avoid having the [[anal plug]]'s inflated end collide with my pelvic bones. Except that rolling motion thrust the device deeper, twisted it inside my rectum, made the [[supply connection]] threading through my intestines shift in ways that sent lightning through my core.
 
 The [[vaginal insert]] rotated with my swaying hips, grinding against hypersensitive walls whilst the anchor tugged at my cervix. My enlarged clitoris dragged across the device's base with each step. The [[catheter]] stretched my urethra. The [[nipple plugs]] shifted microscopically as my massive breasts swayed, sending electric jolts of pain through tissue compressed around metal eggs and their extending wires.
 
@@ -310,7 +310,11 @@ Her mental presence wrapped tighter around my consciousness—not constraining, 
 
 The darkness climbed higher.
 
-My obscene hips disappeared beneath flawless black. My impossibly compressed waist—that surgical miracle of removed ribs and brutal training—vanished into shadow. The massive tanks of my breasts became perfect spheres of liquid night, the solution flowing across their surface with mathematical precision.
+My obscene hips and massive ass disappeared beneath flawless black, the liquid darkness spreading over their artificial curves with the same patient certainty it had shown everywhere else, swallowing that ridiculous lower-body shape I'd built for myself and making it somehow even more extreme simply by rendering it perfect. The heavy roundness of my backside, the broad flare of my hips, all of it slowly vanished into one continuous black shine, until there was no skin left there at all—only that smooth, depthless surface claiming me.
+
+My impossibly compressed waist—that surgical miracle of removed ribs and brutal training, that tiny, fragile-looking hinge between all that exaggerated flesh—vanished into shadow next. It looked unreal even before this. Now it looked inevitable.
+
+Then my breasts. The massive tanks of them, larger than my head, obscene in their sheer volume, became perfect spheres of liquid night. I watched the solution flow over their curved surface with exact, pitiless precision, every contour erased and preserved at once as the black coating turned them from soft pale excess into something cleaner, sharper, more final.
 
 No fear touched me.
 
@@ -466,7 +470,7 @@ And now she witnessed the result.
 
 *Me.*
 
-I turned slowly, examining myself with wonder. The [[Ballet Feet|needle-point feet]] that ended my legs—completely encased now, the titanium tips vanished beneath perfect black. My obscene hips flaring outward in their surgically-enhanced curves, every centimetre coated. My impossibly compressed waist, creating that absurd hourglass silhouette. The massive spheres of my breasts—the tanks that sustained my life—rendered in flawless latex.
+I turned slowly, examining myself with wonder. The [[Ballet Feet|needle-point feet]] at the ends of my legs—completely encased now, the titanium tips vanished beneath perfect black. My wide, exaggerated hips and my giant ass, both thrust out in those obscene, surgically-built curves. My impossibly compressed waist making the whole silhouette even filthier, a tiny hinge between all that artificial excess. The massive spheres of my breasts—the tanks that sustained my life—rendered in flawless latex.
 
 My arms. My hands. My smooth, featureless face.
 
@@ -586,7 +590,7 @@ Of course, she could. [[Lumina]] experienced everything I did, drowning in the s
 
 The [[armour]] mesh consumed my thighs with patient inevitability, billions of microscopic pieces flowing upward like liquid darkness solidifying across my latex-coated flesh. The sensation was maddening—each component a discrete data point my rewired consciousness processed as continuous pressure, continuous *presence*, building into something that felt less like protection and more like ownership.
 
-My hips came next.
+My hips and butt came next.
 
 The mesh encountered the extreme flare of my surgically-enhanced pelvis and adjusted without hesitation, the interlocking pattern shifting to accommodate the obscene curvature. I felt it spread across the widest points, felt each individual piece lock into place around the massive [[Pelvis Shell|genital cover]] hiding [[Lumina]]'s devices threaded through my abdomen. The coverage was absolute—every millimetre sealed beneath impenetrable darkness.
 
@@ -720,7 +724,7 @@ Didn't waver.
 
 The [[armour]]'s force distribution system engaged with such perfection that I felt *anchored*, as if the laws of physics had been rewritten specifically for my transformed body. My synthetic [[Ear Removal|balance systems]] fed me constant streams of data—gravitational vectors, weight distribution percentages, micro-adjustments calculated thousands of times per second—whilst the billions of interlocking [[armour]] pieces transmitted forces throughout my entire structure with engineered precision.
 
-My giant breasts should have made me topple forward. My waist—compressed to just thirty centimetres—should have made core stability impossible. My hips—flared to obscene proportions—should have thrown my centre of gravity into chaos.
+My giant breasts should have made me topple forwards, all that grotesque weight hanging off my chest and dragging at me. My waist—compressed to just thirty centimetres—should have made any kind of core stability physically absurd, a ridiculous little connection too narrow to support anything. My hips—flared to obscene proportions—and my massive ass, heavy and overbuilt behind me, should have thrown my centre of gravity into complete chaos, too much flesh and too much shape piled onto a frame that had no right staying upright at all.
 
 Instead, I stood with supernatural grace.
 
@@ -880,7 +884,7 @@ My synthetic vision painted the laboratory in crystalline detail. The [[Lab|spra
 
 Everywhere I looked, I saw *her*.
 
-A smooth, black, anonymous creature with an oval head. Impossible proportions—waist crushed to thirteen inches, breasts massive and pushed out, hips flared obscenely wide. Utterly inhuman silhouette balanced impossibly on two needle-point contacts. No face. No features. No identity.
+A smooth, black, anonymous creature with an oval head. Impossible proportions—waist crushed to thirteen inches, breasts thrust out, hips flared obscenely wide, ass huge and round and forced back in a filthy curve. An utterly inhuman silhouette balanced on two needle-point contacts. No face. No features. No identity.
 
 Just perfect, featureless darkness.
 
@@ -950,7 +954,7 @@ The familiar scent of latex-glue solution flooded my olfactory simulation—swee
 
 The nozzles activated in perfect unison.
 
-Warm spray struck my armoured body from every direction simultaneously—coating my smooth oval head, flowing down my compressed torso, covering my flared hips, sealing my [[Ballet Feet|needle-point feet]]. The solution was warmer than before, almost hot against the carbon-Kevlar mesh, and I felt it spreading with liquid precision across every surface.
+Warm spray struck my armoured body from every direction at once—coating my smooth oval head, flowing down my compressed torso, pouring over my huge tits and ass, sealing my flared hips and [[Ballet Feet|needle-point feet]]. The solution was warmer than before, almost hot against the carbon-Kevlar mesh, and I felt it spreading with liquid precision across every surface.
 
 The billions of microscopic [[armour]] pieces disappeared beneath flowing black latex. The corset's complex engineering vanished under seamless coverage. The [[helmet]]'s perfect oval became even smoother as the solution filled the tiniest imperfections and began bonding with the structure beneath.
 
@@ -1040,7 +1044,7 @@ What I'd become.
 
 For her.
 
-My hands rose from the needle-point tips of my feet, travelling upward along calves that no longer had muscle definition beneath their flawless black coating, past knees that showed no hint of joint articulation, until they reached the dramatic flare of my hips. Then inward—*sharply* inward—to where my waist had been crushed into something that defied human anatomy.
+My hands rose from the needle-point tips of my feet, travelling upward along calves that no longer had muscle definition beneath their flawless black coating, past knees that showed no hint of joint articulation, until they reached the dramatic flare of my hips and absurd curve of my ass. Then inward—*sharply* inward—to where my waist had been crushed into something that defied human anatomy.
 
 Thirty centimetres.
 
@@ -1234,7 +1238,13 @@ The orgasm hovered at the breaking point, held back only by desperate determinat
 
 I needed to complete this exploration. Needed to confirm what I'd become before pleasure consumed me entirely.
 
-My hands moved upward with shaking urgency, abandoning my displayed genitals and travelling across my compressed torso. The [[corset armour]] piece held me absolutely rigid, my waist crushed to thirty centimetres of immovable perfection, whilst the massive devices inside my abdomen shifted with each trembling breath I didn't take. Over the dramatic flare of my hips. Across my belly. Up to the heavy swell of my breasts.
+My hands moved upward with shaking urgency, peeling themselves away from the displayed black latex cunt between my legs only because I forced them to, only because if I kept touching there for another second I was going to lose whatever remained of my mind and tip straight over the edge before I had finished seeing—*really* seeing—what [[Lumina]] had made of me. The slick opening still felt imprinted on my fingertips. So did the soft give of that fake inner flesh, the way it had clung to my finger as if my body had already decided any intrusion was welcome, desired, necessary. I had to stop. I had to keep going.
+
+So I dragged my hands higher across my compressed torso instead, each movement making fresh sensations jump inside me. The [[corset armour]] piece held me absolutely rigid, my waist crushed down to thirty centimetres of immovable perfection, a tiny, brutally cinched hinge caught between impossible curves. I could feel how little of me there was there now, how narrow, how fixed, how thoroughly forced into shape. Every shift of my shoulders, every tremor in my arms, transmitted inward and downward, making the massive devices buried through my abdomen answer at once—the [[vaginal insert]] nudging cruelly at my swollen passage and cervix, the [[catheter]] dragging through my oversensitised urethra, the huge [[anal plug]] twisting deep through my bowels with tiny, filthy internal motions that my body registered far too clearly.
+
+And above and below that crushed little middle—[[Lumina|Goddess]]—there was just *so much* of me.
+
+My hands passed over the dramatic flare of my hips, broad and artificial and obscene under the seamless black latex, then over my lower belly where every pulse from the core inside my womb seemed to spread through the whole structure of me. Higher. Over the stretched architecture of my torso. Up to the heavy swell of my breasts, huge and round and far too much, not just the tits I'd always wanted but the massive arse and hips to match, all of it making my waist feel even smaller, more ridiculous, more pornographic and obscene, as if my whole body had been engineered around exaggeration and ownership. Even before my palms touched them properly, I could feel their weight moving against my chest, soft and full under the latex skin, waiting for me.
 
 My palms pressed against the perfect curves, feeling them compress naturally despite the invisible carbon-Kevlar mesh protecting them, and when my latex-coated fingers brushed across the displayed, [[Nipple Plugs|pierced nipples]], electric shocks of pain mixed with the building pleasure until I couldn't distinguish between sensations any more.
 
@@ -1734,7 +1744,7 @@ The swarms reached my knees—or where knees had once articulated before the [[a
 
 Warmth pulsed through our [[Brain Implant|neural connection]]. [[Lumina]]'s presence wrapped around my consciousness like protective arms, blocking any motor impulse before it could even form. She held me. Kept me safe. Made the paralysis feel less like imprisonment and more like an embrace.
 
-The swarms flowed over my massive hips, navigating the obscene curves with adjusted flight patterns. More drones emerged from storage to maintain density as the surface area expanded. They avoided the tiny [[maintenance port]] with millimetre-perfect precision whilst covering everything else—the fake vaginal opening, the swollen latex clitoris, the smooth expanse of my glutes where the [[anal plug]]'s presence created subtle distension beneath the corset's compression.
+The swarms flowed over my massive hips and ass, navigating the obscene curves with adjusted flight patterns. More drones emerged from storage to maintain density as the surface area expanded. They avoided the tiny [[maintenance port]] with millimetre-perfect precision whilst covering everything else—the fake vaginal opening, the swollen latex clitoris, the smooth expanse of my glutes where the [[anal plug]]'s presence created subtle distension beneath the corset's compression.
 
 *You're doing wonderfully, my love. Halfway complete,* [[Lumina]] murmured.
 
@@ -1902,7 +1912,7 @@ I would become shiny, smooth, anonymous, perfection.
 
 I turned slightly—the devices inside me shifting with the movement, sending fresh cascades of pleasure-pain through my abdomen—and regarded my reflection one final time through [[synthetic eyes]] that saw across impossible spectra.
 
-The creature in the mirror stood impossible. Black latex coating already transforming humanity into something else. Massive breasts housing life-support systems rather than mammary tissue. A waist compressed to thirty centimetres of circumference. Hips flaring obscenely around the [[pelvis shell]] concealing the devices that had claimed my most intimate spaces. Legs tapering into elegant black rods ending in needle-points no larger than coins.
+The thing in the mirror was impossible. Black latex already turning my body into something other than human. Massive breasts now full of tanks instead of implants or flesh. A waist crushed down to thirty centimetres. Hips flaring wide around the [[pelvis shell]], and behind them my huge, obscene arse jutting out in a ridiculous, pornographic swell, split by the way the plug forced my cheeks apart. Then those long black legs, tapering into elegant rods and ending in needle-points barely larger than coins.
 
 And above it all, the smooth oval [[helmet]] that had erased my face entirely.
 
@@ -2006,7 +2016,9 @@ The [[Touch Sensors|sensory mesh]] screamed constant tingling whilst molecular b
 
 My fragmented thoughts couldn't form coherent response through our connection—only wordless waves of overwhelming emotion whilst I watched my body transform. The [[anal plug]] maintained its brutal thrusting rhythm inside my bowels. The [[vaginal insert]] ground against my cervix with relentless pressure. [[Nipple plugs]] sparked through sensitivity-swollen tissue. But the torment registered as distant background noise beneath my hypnotic absorption in this slow metamorphosis.
 
-The spray reached my hips—those massive, implant-enhanced curves that had become so obscenely wide. Nozzles adjusted angles, compensating for the [[Figure Enhancements|extreme proportions]] whilst maintaining even coverage across every centimetre of synthetic skin. My well-defined glutes and arse disappearing and being overtaken by the ultra-black encasement, the gloss so perfect that reflections appeared more vivid than reality itself.
+The spray reached my hips at last—those huge, implant-built curves, stupidly, gloriously wide, exaggerated beyond anything a human body had ever had any business carrying. Even before, they had dominated my silhouette. Now they seemed almost ceremonial, presented to the nozzles like an offering. Mechanical arms shifted around me in tiny, exact corrections, adjusting angle after angle to account for the absurd flare of my pelvis, the dramatic swell of my glutes, the heavy round breadth of my arse. Not one pass wasted. Not one millimetre missed. Every movement from [[Lumina]]'s system was patient, reverent, filthy in how thorough it was.
+
+I watched the coating take me there too, flowing over the synthetic curves and the obscene mass of my backside, replacing ordinary shine with something far deeper. My ass vanished by degrees beneath it, each glossy section swallowed into that impossible ultra-black until the exaggerated shelf of it looked less like flesh in latex and more like a perfectly sculpted object made for play, display, and use. The surface caught the light and broke it wrong—too clean, too bright, the reflections sharper and more beautiful than the room itself, as if reality had become the lesser thing and my new skin was the only version that mattered.
 
 *Posterior aspect approaching,* [[Lumina]]'s mental voice carried quiet intensity. *Your… magnificent ass, my darling. About to disappear beneath the final coating.*
 
@@ -2018,7 +2030,7 @@ The spray nozzles approached my waist with reverent slowness, mechanical arms sh
 
 *Waist section: initiating application,* [[Lumina]]'s mental voice filtered through our connection with barely restrained wonder. *Adjusting spray patterns to compensate for the extreme geometry. Flow rate reduced to point-two millilitres per second to prevent pooling in the compressed area.*
 
-The nozzles executed precision adjustments, directing specialized solution along the sharp curve whilst avoiding any accumulation in the deep hollow between my massive hips and enormous breasts. Warm liquid touched synthetic skin and immediately began its patient transformation—ordinary black vanishing beneath that impossible darkness.
+The nozzles executed precision adjustments, directing specialized solution along the sharp curve whilst avoiding any accumulation in the deep hollow between my massive ass cheeks and enormous breasts. Warm liquid touched synthetic skin and immediately began its patient transformation—ordinary black vanishing beneath that impossible darkness.
 
 I stopped breathing—remembering an instant later that I no longer needed to.
 
@@ -2086,9 +2098,9 @@ Could only *see*.
 
 I was complete.
 
-From the front: a creature of absolute darkness. My head a perfect oval, smooth and featureless, catching laboratory light in long sweeping arcs that travelled from crown to chin without interruption. No eyes. No nose. No mouth. No ears. Not even the faintest suggestion of where these things had once existed. Just unbroken, flawless black that seemed to drink the light touching it and return it transformed into something richer, deeper, more alive. Below that anonymous head, the dramatic flare of my shoulders gave way to my enormous breasts—perfect spheres of glossy void that reflected the room in warped miniature—then plunged inward to the brutal compression of my thirty-centimetre waist before erupting outward into hips so wide they seemed structurally impossible. My legs tapered into elegant rods ending in needle-points smaller than coins, my contact with the floor so minimal I appeared to hover.
+From the front: a creature of absolute darkness. My head a perfect oval, smooth and featureless, catching laboratory light in long sweeping arcs that travelled from crown to chin without interruption. No eyes. No nose. No mouth. No ears. Not even the faintest suggestion of where these things had once existed. Just unbroken, flawless black that seemed to drink the light touching it and return it transformed into something richer, deeper, more alive. Below that anonymous head, the dramatic flare of my shoulders gave way to my enormous breasts—perfect, massive spheres of glossy void that reflected the room in warped miniature—then plunged inward to the brutal compression of my thirty-centimetre waist before swelling out into hips so wide they seemed structurally impossible, my giant arse jutting behind them in a heavy, obscene counter-curve even from this angle. My legs tapered into elegant rods ending in needle-points smaller than coins, my contact with the floor so minimal I appeared to hover.
 
-From the back: the same flawless darkness, the dramatic curve of my spine forced into permanent arch by the corset, my massive arse and hips creating an obscene silhouette that no biological human could possess. Every surface caught and consumed light in equal measure, glossy-wet reflections flowing across my curves like oil on still water.
+From the back: the same flawless darkness, the dramatic curve of my spine forced into permanent arch by the corset, my massive arse and hips creating an obscene silhouette that no biological human could possess, the huge weight of my arse pushed apart into that shameless, pornographic valley between my cheeks. Every surface caught and consumed light in equal measure, glossy-wet reflections flowing across my curves like oil on still water.
 
 From the sides: the sheer impossibility of my proportions rendered in profile. Breasts projecting forward. Arse projecting backward. Waist barely wider than my own fist between them. Head, a smooth dark sphere, balanced atop all of it with inhuman grace.
 
@@ -2280,7 +2292,7 @@ Golden metal now existed as part of my skin—as permanent as the [[armour]] com
 
 Through every camera feed, I saw myself complete.
 
-The smooth oval head. The featureless darkness where a face had been. The impossible proportions—massive breasts, compressed waist, wide hips—rendered in obsidian black so deep it consumed light itself. The flowing, liquid-bright reflections sweeping across every curve. The [[Ballet Feet|needle-point feet]] barely touching the floor.
+The smooth oval head. The featureless darkness where a face had been. The impossible proportions—massive breasts, compressed waist, wide hips, giant ass—rendered in obsidian black so deep it consumed light itself. The flowing, liquid-bright reflections sweeping across every curve. The [[Ballet Feet|needle-point feet]] barely touching the floor.
 
 And the collar.
 

@@ -1,4 +1,3 @@
-
 I woke gradually—not suddenly, not with a jolt—but like consciousness seeping slowly through saturated fabric, each increment of awareness adding weight until I finally surfaced into something resembling thought.
 
 Soft sheets. Dim lighting. My bedroom, not the laboratory's harsh white glare.
@@ -429,7 +428,9 @@ Suddenly, my primary vision—the overwhelming multi-spectral data streaming fro
 
 I saw myself rise unsteadily from the bed.
 
-The figure reflected in those external feeds looked utterly inhuman, despite retaining recognisably female anatomy. My obscene hourglass proportions swayed dramatically as I took a tentative step forward—massive breasts rolling heavily with the motion, flaring hips undulating in exaggerated arcs, whilst my minuscule waist remained impossibly compressed between them like a biological impossibility made flesh.
+The figure reflected in those external feeds looked utterly inhuman, even if the underlying anatomy was still recognisably female in the crudest possible sense. A woman, technically. But stretched, engineered, corrected into something far more obscene than that. My proportions moved like a deliberate act of absurd pornography made real—every part of me exaggerated past reason, past anatomy, past anything a human body had any business carrying.
+
+I watched myself take one cautious step forward, and the whole shape of me swayed around that movement. My massive breasts rolled with heavy, artificial weight, dragging the line of my upper body into a slow, slutty shift. Beneath them, my hips flared out hard and wide, and my huge ass—round, overbuilt, ridiculous, far too much—swung in thick, exaggerated arcs behind me, each side moving with filthy emphasis as if my body had been designed around that motion alone. And in the middle of all of it, my waist stayed absurdly tiny, cinched down between those obscene burdens until it barely looked structurally possible, like some perverse engineering model that had somehow been forced into living flesh.
 
 Each movement caused the devices inside me to shift.
 
@@ -489,7 +490,7 @@ I gasped silently—mouth sealed, throat filled—whilst riding out the spike of
 
 Then lower still.
 
-My impossibly compressed waist curved inward between massive breasts and flaring hips. The camera angles captured my obscene proportions with clinical precision—showing exactly how extreme my hourglass figure had become.
+My impossibly compressed waist curved inward between massive breasts and flaring hips and ass. The camera angles captured my obscene proportions with clinical precision—showing exactly how extreme my hourglass figure had become.
 
 Finally, my hands settled on my abdomen.
 
@@ -547,11 +548,11 @@ The motion caused the massive [[anal plug]] and [[vaginal insert]] to shift viol
 
 *Too much—I can't—*
 
-[[Lumina's projection]] circled around me with predatory grace, studying my struggling form with clinical satisfaction evident in her bright eyes. Her gaze traced the visible bulges in my abdomen, the smooth sealed area where my mouth had been, the black orbs of my [[synthetic eyes]].
+[[Lumina's projection]] circled around me with predatory grace, studying my struggling form with clinical satisfaction evident in her [[Alexandra's Motorcyle|luminous]] eyes. Her gaze traced the visible bulges in my abdomen, the smooth sealed area where my mouth had been, the black orbs of my [[synthetic eyes]].
 
 *Beautiful,* she murmured through our connection, her mental voice thick with arousal and possession. *Watch yourself through my cameras, my vessel. See what I see.*
 
-My perspective shifted as she fed me additional camera angles, showing my body from positions I couldn't physically achieve—the extreme sway of my hips, the distension of my abdomen, the inhuman points my legs ended in.
+My perspective shifted as she fed me additional camera angles, showing my body from positions I couldn't physically achieve—the extreme sway of my ass, the distension of my abdomen, the inhuman points my legs ended in.
 
 [[Lumina's projection]] stepped closer, her spectral form radiating possessive hunger. Her hands—pure neural illusion fed directly into my consciousness—reached out to trace my grotesquely modified body.
 

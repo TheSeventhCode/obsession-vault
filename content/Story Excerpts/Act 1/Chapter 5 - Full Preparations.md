@@ -90,7 +90,7 @@ Her projection materialised beside me, fingers finding mine, squeezing gently.
 
 We walked slowly along the garden paths, my body still adjusting to blood that flowed in smooth, continuous circulation rather than pulsed beats. Occasionally dizziness threatened, and each time [[Lumina]] steadied me—sometimes through direct control, sometimes just through her presence anchoring my perception.
 
-The oddness struck me mid-step—a subtle pressure deep in my hips, weight distribution that felt wrong in ways I couldn't immediately articulate. I paused near one of the stone benches lining the pathway, my hand instinctively moving to my waist, then lower, tracing the exaggerated curve of my hips through the thin white latex robe.
+The oddness struck me mid-step—a subtle pressure deep in my hips and buttocks, weight distribution that felt wrong in ways I couldn't immediately articulate. I paused near one of the stone benches lining the pathway, my hand instinctively moving to my waist, then lower, tracing the exaggerated curve of my ass through the thin white latex robe.
 
 Something felt different there. Heavier. Denser.
 
@@ -108,7 +108,7 @@ Arousal and unease twisted together in my gut.
 
 *You forgot?,* [[Lumina]]'s voice carried amusement through our connection.
 
-Her projection materialised behind me, hands settling possessively over my modified hips—warm palms against latex, fingers spreading to encompass the curves that were no longer just aesthetic.
+Her projection materialised behind me, hands settling possessively over my modified butt—warm palms against latex, fingers spreading to encompass the curves that were no longer just aesthetic.
 
 “I did wonder when you'd notice,” she murmured aloud, her touch sending data streams cascading through my perception. “Your body will be so much more efficient, my love. Those devices extend your maintenance intervals significantly—recycling what would otherwise be waste, converting it back into usable resources.”
 
@@ -218,7 +218,7 @@ The physics engine shifted, and suddenly [[Lumina]]'s hand pressed against my la
 
 “Soon, my darling,” she murmured, her voice carrying that edge of cruel affection that made my modified body tremble. “Very soon, I'll skewer you properly.”
 
-Her fingers traced downward—throat to sternum, across the compressed space of my corseted waist, down to where my hips flared obscenely wide. Each point her touch lingered marked another section of my digestive tract that would soon be claimed, filled, *owned*.
+Her fingers traced downward—throat to sternum, across the compressed space of my corseted waist, down to where my hips flared obscenely wide, into the swell of my giant ass. Each point her touch lingered marked another section of my digestive tract that would soon be claimed, filled, *owned*.
 
 “First, the [[Supply Connection|supply tube]],” [[Lumina]] continued, her tone deliberately sensual, clinical precision wrapped in dark promise. “Fed deep into your intestines, threading through your colon, winding upward through your small intestine until it reaches your stomach. You'll feel every centimetre of it filling you, stretching you, claiming space inside your body that's never been touched.”
 
@@ -1096,7 +1096,9 @@ I stood frozen, trembling, [[synthetic eyes]] locked forward in permanent stare 
 
 I attempted another step.
 
-My hips swayed instinctively—an exaggerated rolling motion necessary to accommodate the massive intrusion threading through my pelvis. The extreme hourglass silhouette [[Lumina]] had sculpted into my body amplified the movement grotesquely, my compressed waist acting as a fulcrum that transformed each step into hip gyrations far beyond normal human gait.
+My hips swayed instinctively—there was no other way to do it, not with that monstrous thing threaded through me. I had to let my pelvis roll around the intrusion, had to give it space, had to move *with* it instead of fighting the bulk of it skewering my bowels and lodged so obscenely in my stretched rear. The motion came out exaggerated at once, a slow, rolling swing that felt almost vulgar even from the inside, because anything smaller made the plug catch and drag in ways that sent white-hot shocks through my gut.
+
+The extreme hourglass silhouette [[Lumina]] had sculpted into my body made it worse. Or better. Both. My waist was so brutally compressed it worked like a hinge, a tiny, artificial pivot between impossible curves, turning the simple mechanics of walking into something pornographic. My hips had to swing wider. My giant ass followed with a heavy, obscene sway of its own, flaring behind me with every adjustment, the thick augmented cheeks forced apart by the plug’s trapped base and made even filthier by the way the movement travelled through them. Each step became a full-body gyration, far beyond any normal human gait, as if my whole lower half had been redesigned specifically to strut and be fucked by my own internal machinery at the same time.
 
 But the motion only worsened everything.
 
@@ -2480,7 +2482,7 @@ Sensation and consciousness disconnected like severed cables, my mind floating s
 
 My minuscule waist and abdomen distended obscenely.
 
-The outline of both devices bulged visibly beneath my stretched skin—two enormous intrusions threading through my core, the [[vaginal insert]] and [[anal plug]] creating impossible geometry within my compressed torso. My hips flared dramatically wide, the gigantic butt forcing my cheeks apart whilst making the massive [[anal plug]]'s penetration even more grotesquely visible.
+The outline of both devices bulged visibly beneath my stretched skin—two enormous intrusions threading through my core, the [[vaginal insert]] and [[anal plug]] creating an obscene fullness inside my compressed torso. My hips flared dramatically wide, and my massive ass swelled out behind me in grotesque proportion, the heavy cheeks forced apart by the huge plug buried in me, making the extent of my penetration sickeningly obvious.
 
 I looked pregnant. Penetrated. Permanently ruined.
 

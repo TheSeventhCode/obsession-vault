@@ -16,3 +16,6 @@ All of those surgeries done to [[Alexandra Rose Blackwell|Alexandra]] have been 
 - In combination, her massive tits and giant ass, causes her miniscule waist to act almost like a hinge between the massive body parts.
 
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alexandra-figure_1/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alexandra-figure_2/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alexandra-figure_3/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alexandra-figure_4/public)

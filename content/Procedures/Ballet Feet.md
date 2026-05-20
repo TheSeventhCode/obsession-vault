@@ -20,3 +20,5 @@ She now balances entirely on these two pinpoint contacts. Her feet do not flex, 
 Once her Bane transformation is complete and the [[armour]] feet are fitted, the remaining biological structure is fully encased. The smooth black latex skin makes the transition from calf to needle-point utterly seamless. Her legs appear as elegant, tapering rods ending in impossibly sharp points. There is no hint of humanity left—no toes, no heels, no human foot shape whatsoever.
 
 She moves with eerie silence, each step precise and floating, as if she glides rather than walks. The sound-absorbing [[outer encasement layer]] ensures not even the faintest click of contact. Her gait is slow, deliberate, hypnotic—a continuous exercise in balance assisted by the [[armour]]'s force distribution, artificial muscle enhancements, and her new [[Ear Removal|balance systems]].
+
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alexandra-feet_1/public)

@@ -8,3 +8,6 @@ In combination with the [[Figure Enhancements|extreme proportions]] from the imp
 Very early on, since developing her obsession, she has been wearing corsets for nearly every single minute of the day, only removing them for surgeries or general medical-checkups. Eventually, she has reached 40 cm (ca. 16 inches), her body unable to go further. Wanting to still increase the reduction further, she has her lowest three pairs of ribs removed so that she can further compress down her waist.
 
 By the end, she has finally reached her desired size of just over 30 cm (ca. 12 inches) in circumference, so small, she can touch her fingers around her waist when stretching her hands.
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/waist-ribs/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alexandra-waist_2/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/waist-corset/public)

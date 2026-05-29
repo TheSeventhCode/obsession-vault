@@ -1,0 +1,16 @@
+---
+aliases:
+  - Alexandra's Bike
+  - Luminous
+---
+This is a custom, completely black, motorcycle [[Alexandra Rose Blackwell|Alexandra]] and [[Lumina]] have built at one point for fun, when [[Alexandra Rose Blackwell|Alexandra]] was in the mood for some to do some engineering. They've called this design the _Luminous_.
+## Physical Appearance
+- It is a custom super bike chassis, somewhat based on a Kawasaki Ninja H2.
+- Full carbon fibre bodywork, an extended swing-arm, as well as some unusual geometry to accommodate for [[Alexandra Rose Blackwell|Alexandra]]'s [[Figure Enhancements|extreme proportions]], leaving designated spaces for [[Alexandra Rose Blackwell|Alexandra]]'s absurd proportions to be pressed into. The carbon-fibre ripples like liquid black, only subtly reflecting light. It also features thin white and golden lines along the entire vehicle, which pulse in time with the [[core unit]] inside [[Alexandra Rose Blackwell|Alexandra]]'s womb.
+- The bike has an optional replacement for the seat, that extends it further in the back, allowing a passenger to ride it, sitting behind [[Alexandra Rose Blackwell|Alexandra]].
+
+## Function
+- The bike features a large variety of sensors and automated mechanisms that are under the full control of [[Lumina]], who then forwards these to [[Alexandra Rose Blackwell|Alexandra]]'s [[Brain Implant|neural implant]]. This allows [[Alexandra Rose Blackwell|Alexandra]] to have full haptic feedback and telemetry of the bike.
+    - Because of this, the bike can actually only be steered and controlled through these systems, having no actual functioning breaking actuators or other controls that affect the bike. The ones in the head panel are just for aesthetics so that it looks real. This means, [[Alexandra Rose Blackwell|Alexandra]] actually steers the bike more with her thoughts than actual arms or anything else.
+- The systems within the bike also integrate directly with the various devices inside [[Alexandra Rose Blackwell|Alexandra]]'s body and her [[armour]]. These ensure [[Alexandra Rose Blackwell|Alexandra]]'s body is always perfectly nestled against the bike's form. While driving, the combination of bike and [[armour]] perfectly put [[Alexandra Rose Blackwell|Alexandra]] into position for any turn or manoeuvre, like syncing up with the G-forces and other inputs. Furthermore, the feedback of these systems also connect to [[Alexandra Rose Blackwell|Alexandra]]'s [[vaginal insert]], [[anal plug]], [[nipple plugs]], and [[core unit]], making them vibrate, shock, pulse, or thrust depending on whatever situation the bike is in—making [[Alexandra Rose Blackwell|Alexandra]] not feel like she is riding her bike, but is integrated and almost built into it.
+- From the outside, the motorcycle looks like it has a regular racing engine, except that it actually has no engine at all. For the bike to work, it has a flexible connection point in the seat, that connects to the [[maintenance port]] between [[Alexandra Rose Blackwell|Alexandra]]'s legs. The miniature [[Power Supply|fusion core]] inside [[Alexandra Rose Blackwell|Alexandra]]'s lung cavity then powers the entire bike through this connection port, meaning only [[Alexandra Rose Blackwell|Alexandra]], or one of her proxy androids, can even use the vehicle.

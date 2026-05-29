@@ -30,7 +30,7 @@ I lay still for several minutes.
 
 Not moving, barely breathing, simply *existing* in this strange peaceful space between sleep and full consciousness, registering the significance of what loomed just hours ahead without resistance.
 
-The [[brain implant]] surgery was scheduled right after breakfast.
+The [[Brain Implant|brain implant]] surgery was scheduled right after breakfast.
 
 Irreversible.
 

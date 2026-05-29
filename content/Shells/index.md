@@ -1,6 +1,0 @@
----
-title: Shells - Disguises - Cosplay
----
-These are various shells, disguises, and cosplays for [[Alexandra Rose Blackwell|Alexandra]] to wear in public and interact with other people without revealing her actual Bane existence immediately. Of course, her extreme figure will still attract immense attention, but at least her entire latex, anonymous Bane identity can be hidden away.
-
-These shells fall into the category of either normal disguises, direct cosplays, or special clothing that allows her to perform specific tasks or accomplish something. Most of the cosplays also result in [[Lumina]] actually making some personality changes to [[Alexandra Rose Blackwell|Alexandra]]'s outward behaviour., so that the way she moves and acts in public better fits the cosplay or disguise. This often results in some very embarrassing situations for [[Alexandra Rose Blackwell|Alexandra]], as [[Lumina]] deliberately designed all these characters and personalities to maximize public interaction and embarrassment, as well as to tease [[Alexandra Rose Blackwell|Alexandra]] further. Every action is somehow directly linked to a device or system within her transformed body, secretly punishing or pleasuring her.

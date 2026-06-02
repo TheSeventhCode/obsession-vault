@@ -4,6 +4,7 @@ aliases:
   - maintenance cycle
   - cleaning cycle
   - maintenance session
+sidebarOrder: "1"
 ---
 The [[Maintenance Process|maintenance cycle]] is a process [[Alexandra Rose Blackwell|Alexandra]] and [[Lumina]] came up with to maintain and keep up [[Alexandra Rose Blackwell|Alexandra]]'s hygiene and general needs, once becoming a Bane.
 

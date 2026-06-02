@@ -1,6 +1,7 @@
 ---
 aliases:
   - pool cleaning station
+sidebarOrder: "7"
 ---
 The [[pool maintenance station]] is a fully functional [[maintenance station]], built into the floor of the indoor section of [[Alexandra Rose Blackwell|Alexandra]]'s [[pool]].
 

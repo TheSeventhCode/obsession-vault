@@ -2,6 +2,7 @@
 aliases:
   - brain restructure
   - artificial brain tissue
+sidebarOrder: "4"
 ---
 The final and most intimate transformation done by the [[nanobots]] target [[Alexandra Rose Blackwell|Alexandra]]'s brain and nervous system. Building upon the foundation of the [[Brain Implant]], the [[nanobots]] begin reconstructing her neural pathways one connection at a time.
 

@@ -3,6 +3,7 @@ aliases:
   - nipple inserts
   - pain plugs
   - pierced nipples
+sidebarOrder: "4"
 ---
 To provide even more ways of tormenting and pleasuring [[Alexandra Rose Blackwell|Alexandra]], two metal egg-shaped devices are inserted into [[Alexandra Rose Blackwell|Alexandra]]'s nipples and breasts, for more pleasure, stimulation, irritation, punishment, and even torture.
 

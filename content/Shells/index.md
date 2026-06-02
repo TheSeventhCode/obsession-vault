@@ -1,5 +1,6 @@
 ---
 title: Shells - Disguises - Cosplay
+sidebarOrder: "8"
 ---
 These are various shells, disguises, and cosplays for [[Alexandra Rose Blackwell|Alexandra]] to wear in public and interact with other people without revealing her actual Bane existence immediately. Of course, her extreme figure will still attract immense attention, but at least her entire latex, anonymous Bane identity can be hidden away.
 

@@ -5,6 +5,7 @@ aliases:
   - anal snake
   - buttplug
   - anal intruder
+sidebarOrder: "3"
 ---
 In order to provide [[Alexandra Rose Blackwell|Alexandra]] with the nutritions she needs and connections to the [[Food Supply|food tank]] and [[Alternative Air Supply|oxygen tank]] inside her breasts, a special phallus-like device is inserted into her anus and entire large intestine.
 

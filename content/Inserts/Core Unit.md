@@ -6,6 +6,7 @@ aliases:
   - womb insert
   - womb unit
   - womb core
+sidebarOrder: "1"
 ---
 With the countless systems, devices, and functions of [[Alexandra Rose Blackwell|Alexandra]]'s Bane transformation, there needs to be a local, central computer to control all of them. With [[Lumina]] being the control mechanism, she needs a direct and full connection to the entire system. Furthermore, due to [[Alexandra Rose Blackwell|Alexandra]]'s _unbirth_ fetish, [[Alexandra Rose Blackwell|Alexandra]] and [[Lumina]] have come up with this central [[Core Unit|control core unit]] that [[Lumina]] will use and actually also partially run on.
 

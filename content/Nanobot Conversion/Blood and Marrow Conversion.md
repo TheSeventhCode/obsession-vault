@@ -1,6 +1,7 @@
 ---
 aliases:
   - artificial blood
+sidebarOrder: "3"
 ---
 With the goal of the [[Nanobots|Nanobot conversion]] being in replacing any remaining human biology within [[Alexandra Rose Blackwell|Alexandra]], her blood and nutrient distribution has to be handled as well.
 

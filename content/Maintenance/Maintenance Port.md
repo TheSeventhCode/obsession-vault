@@ -3,6 +3,7 @@ aliases:
   - cover port
   - hygiene port
   - cleaning port
+sidebarOrder: "4"
 ---
 This is the outer connection port of the [[Pelvis Shell]] between [[Alexandra Rose Blackwell|Alexandra]]'s legs and is positioned right in the middle of her centre of gravity. The connection port is so flat and with its position, it's basically invisible once [[Alexandra Rose Blackwell|Alexandra]] has been fully transformed into a Bane, having received enough of the various sprayed on layers, that it's almost indistinguishable from the surrounding black latex skin.
 

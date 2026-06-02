@@ -2,6 +2,7 @@
 aliases:
   - feeding station
   - cleaning  station
+sidebarOrder: "5"
 ---
 Once [[Alexandra Rose Blackwell|Alexandra]]'s transformation into a Bane is complete, the process of supplying her with all the substances she needs is done with the use of maintenance stations. They all connect to the [[maintenance port]] between the legs of [[Alexandra Rose Blackwell|Alexandra]]'s system in some way and perform the necessary hygiene processes and supply nutritional solution and oxygen into her tanks, as well as water into her stomach.
 

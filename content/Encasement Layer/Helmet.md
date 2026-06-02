@@ -3,6 +3,7 @@ aliases:
   - Head Piece
   - Head Shell
   - Head Enclosure
+sidebarOrder: "2"
 ---
 The [[helmet]] piece of the [[armour]] is essential in giving [[Alexandra Rose Blackwell|Alexandra]] the signature _Bane_ look.
 

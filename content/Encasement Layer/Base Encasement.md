@@ -6,6 +6,7 @@ aliases:
   - First Encasement Layer
   - Base Encasement Layer
   - Skin Base
+sidebarOrder: "1"
 ---
 Once all the preparations, surgeries, implants, and devices are finished, the very [[Base Encasement|first encasement layer]] of the Bane Outfit is applied. It functions as the foundation of [[Alexandra Rose Blackwell|Alexandra]]'s Bane transformation.
 

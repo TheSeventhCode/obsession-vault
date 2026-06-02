@@ -1,5 +1,6 @@
 ---
 title: Surgical Procedures - Replacement Organs
+sidebarOrder: "2"
 ---
 These are various surgeries and other devices that are implanted into [[Alexandra Rose Blackwell|Alexandra]]'s body, often involving the removal of existing organs or senses. This process makes her entirely dependent on [[Lumina]] to operate these devices, grant her access to them, and translate their signals.
 

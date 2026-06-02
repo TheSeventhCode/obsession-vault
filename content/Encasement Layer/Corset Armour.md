@@ -1,6 +1,7 @@
 ---
 aliases:
   - Corset Piece
+sidebarOrder: "2"
 ---
 To stabilize, but simultaneously also heavily restrict [[Alexandra Rose Blackwell|Alexandra]], this extreme corset [[armour]] piece is integrated into the [[armour]] layer.
 

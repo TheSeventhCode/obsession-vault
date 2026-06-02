@@ -1,6 +1,7 @@
 ---
 aliases:
   - Throat Dildo
+sidebarOrder: "6"
 ---
 With [[Alexandra Rose Blackwell|Alexandra]] completely transformed into a Bane, sealed airtight, she has no need for her voice, throat, or mouth, which would all pose potential health complications.
 

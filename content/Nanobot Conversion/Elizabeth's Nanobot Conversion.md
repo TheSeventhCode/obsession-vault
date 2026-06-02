@@ -1,3 +1,6 @@
+---
+sidebarOrder: "6"
+---
 This is essentially the same _complete_ [[Nanobots|nanobot conversion]] as the one for [[Alexandra Rose Blackwell|Alexandra]], except that [[Elizabeth Carter|Elizabeth]] retains her human appearance. Her flesh and all organic matter is converted into the same living latex-flesh, her entire synthetic body overrun with [[Lumina]]'s [[nanobots]], but from outside, she still looks completely human, apart from a little artificial sheen her synthetic skin has developed.
 
 Apart from making [[Elizabeth Carter|Elizabeth]] just as immortal and synthetic as [[Alexandra Rose Blackwell|Alexandra]], [[Lumina]]'s [[nanobots]] also have regressed her age quite a bit, forever looking like she's 25.

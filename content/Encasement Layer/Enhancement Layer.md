@@ -5,6 +5,7 @@ aliases:
   - Artificial Muscle Fibres
   - Artificial Muscles
   - Synthetic Muscles
+sidebarOrder: "3"
 ---
 With [[Alexandra Rose Blackwell|Alexandra]]'s encasement and resulting restrictions, [[Lumina]] and her have come up with a way to give [[Alexandra Rose Blackwell|Alexandra]] her strength back, and going even far beyond that. To provide [[Alexandra Rose Blackwell|Alexandra]] with substantially more power and control once she's fully transformed into a Bane, a network of [[Enhancement Layer|artificial muscle fibres]] is placed over basically her entire body, on top of the [[Armour|armour layer]].
 ## Function

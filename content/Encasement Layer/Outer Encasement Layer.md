@@ -5,6 +5,7 @@ aliases:
   - Outer Skin
   - Fifth Layer
   - Final Layer
+sidebarOrder: "5"
 ---
 To finish [[Alexandra Rose Blackwell|Alexandra]]'s transformation into a perfect Bane, everything is finally encased in an ultra-shiny black latex solution.
 

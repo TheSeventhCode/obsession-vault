@@ -1,6 +1,7 @@
 ---
 aliases:
   - nanobot conversion
+sidebarOrder: "1"
 ---
 To fulfil [[Alexandra Rose Blackwell|Alexandra]]'s wish to be completely possessed and owned by her [[Lumina|Goddess]], [[Lumina]] develops these [[nanobots]] that gradually replace [[Alexandra Rose Blackwell|Alexandra]]'s remaining human biology, replacing it with synthetic systems under [[Lumina]]'s control.
 

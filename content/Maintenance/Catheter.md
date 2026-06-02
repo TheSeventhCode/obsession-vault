@@ -1,6 +1,7 @@
 ---
 aliases:
   - Urinary Catheter
+sidebarOrder: "2"
 ---
 Due to the Bane outfit having no openings, [[Alexandra Rose Blackwell|Alexandra]] being sealed airtight, except for the [[maintenance port]] between her legs, hygiene functions such as urine have to be handled differently. To manage this, a special [[Catheter|urinary catheter]] is inserted, designed for indefinite use.
 

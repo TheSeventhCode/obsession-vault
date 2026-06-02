@@ -13,6 +13,7 @@ export type ContentDetails = {
   slug: FullSlug
   filePath: FilePath
   title: string
+  sidebarOrder?: number
   links: SimpleSlug[]
   tags: string[]
   content: string
@@ -102,11 +103,19 @@ export const ContentIndex: QuartzEmitterPlugin<Partial<Options>> = (opts) => {
       for (const [tree, file] of content) {
         const slug = file.data.slug!
         const date = getDate(ctx.cfg.configuration, file.data) ?? new Date()
+        const rawSidebarOrder = file.data.frontmatter?.sidebarOrder
+        const sidebarOrder =
+          typeof rawSidebarOrder === "number"
+            ? rawSidebarOrder
+            : typeof rawSidebarOrder === "string"
+              ? Number(rawSidebarOrder)
+              : undefined
         if (opts?.includeEmptyFiles || (file.data.text && file.data.text !== "")) {
           linkIndex.set(slug, {
             slug,
             filePath: file.data.relativePath!,
             title: file.data.frontmatter?.title!,
+            sidebarOrder: Number.isFinite(sidebarOrder) ? sidebarOrder : undefined,
             links: file.data.links ?? [],
             tags: file.data.frontmatter?.tags ?? [],
             content: file.data.text ?? "",

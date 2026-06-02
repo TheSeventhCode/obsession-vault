@@ -3,6 +3,7 @@ aliases:
   - Armour Layer
   - Second Layer
   - Second Encasement Layer
+sidebarOrder: "2"
 ---
 Right after of the [[Base Encasement|base encasement layer]], this [[Armour|second layer]] serves as the ultimate protection and [[armour]] for [[Alexandra Rose Blackwell|Alexandra]]. It ensures she's incapable of getting hurt by any falls, collisions, or other forceful interactions, once she has completed her transformation into a Bane.
 

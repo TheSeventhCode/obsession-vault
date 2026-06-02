@@ -1,5 +1,6 @@
 ---
 title: Maintenance
+sidebarOrder: "5"
 ---
 Everything within this section relates to how [[Alexandra Rose Blackwell|Alexandra]] performs maintenance procedures, or, in general, the maintenance required once she is completely transformed into a Bane.
 

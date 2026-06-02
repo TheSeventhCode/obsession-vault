@@ -2,6 +2,7 @@
 aliases:
   - bone replacement
   - synthetic bones
+sidebarOrder: "2"
 ---
 The first target of the [[Nanobots|nanobot conversion]] within [[Alexandra Rose Blackwell|Alexandra]]'s body is her entire skeleton. The microscopic swarm attaches itself to bone tissue, gradually breaking down calcium deposits and replacing them with carbon-infused synthetic material. This new structure—lighter yet then times stronger than human bone—retains the exact form of natural bone, but in absolute black, incorporating microscopic channels and processors throughout.
 

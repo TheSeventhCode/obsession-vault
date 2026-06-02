@@ -8,15 +8,26 @@ interface ParsedOptions {
   folderClickBehavior: "collapse" | "link"
   folderDefaultState: "collapsed" | "open"
   useSavedState: boolean
-  sortFn: (a: FileTrieNode, b: FileTrieNode) => number
-  filterFn: (node: FileTrieNode) => boolean
-  mapFn: (node: FileTrieNode) => void
+  sortFn?: (a: FileTrieNode, b: FileTrieNode) => number
+  filterFn?: (node: FileTrieNode) => boolean
+  mapFn?: (node: FileTrieNode) => void
   order: "sort" | "filter" | "map"[]
 }
 
 type FolderState = {
   path: string
   collapsed: boolean
+}
+
+function parseDataFn<T extends Function>(fnSource: string | undefined): T | undefined {
+  if (!fnSource) return undefined
+
+  return new Function(
+    `
+      const __name = (target) => target
+      return (${fnSource})
+    `,
+  )() as T
 }
 
 let currentExplorerState: Array<FolderState>
@@ -164,9 +175,9 @@ async function setupExplorer(currentSlug: FullSlug) {
       folderDefaultState: (explorer.dataset.collapsed || "collapsed") as "collapsed" | "open",
       useSavedState: explorer.dataset.savestate === "true",
       order: dataFns.order || ["filter", "map", "sort"],
-      sortFn: new Function("return " + (dataFns.sortFn || "undefined"))(),
-      filterFn: new Function("return " + (dataFns.filterFn || "undefined"))(),
-      mapFn: new Function("return " + (dataFns.mapFn || "undefined"))(),
+      sortFn: parseDataFn(dataFns.sortFn),
+      filterFn: parseDataFn(dataFns.filterFn),
+      mapFn: parseDataFn(dataFns.mapFn),
     }
 
     // Get folder state from local storage

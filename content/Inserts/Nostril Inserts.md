@@ -1,6 +1,7 @@
 ---
 aliases:
   - Nose plugs
+sidebarOrder: "5"
 ---
 With no need for her natural airways, surgically removed nose, no ability to even breathe air, long [[Nostril Inserts|nose plugs]] are inserted into [[Alexandra Rose Blackwell|Alexandra]]'s sinuses. These plugs extend from the entry of what was once her nose, past her sinuses, all the way into her nasal cavity, reaching the very outset of her throat where they make contact with the massive [[gag]].
 

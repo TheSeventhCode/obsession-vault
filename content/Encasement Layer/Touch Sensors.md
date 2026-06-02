@@ -5,6 +5,7 @@ aliases:
   - Sensory Layer
   - Sensory Mesh
   - Sensor Web
+sidebarOrder: "4"
 ---
 This [[Touch Sensors|fourth layer]], on top of the enhancements, comes in the form of a thin web of [[touch sensors]], applied over [[Alexandra Rose Blackwell|Alexandra]]'s entire encased body.
 

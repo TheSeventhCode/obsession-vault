@@ -2,6 +2,7 @@
 aliases:
   - cleaning room
   - solarium
+sidebarOrder: "6"
 ---
 To perform the maintenance cycles [[Alexandra Rose Blackwell|Alexandra]] will have to go through for the rest of her Bane life, [[Lumina]] and her have built this very special room, in which this highly intimate ritual happens.
 

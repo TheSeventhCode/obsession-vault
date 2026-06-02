@@ -4,6 +4,7 @@ aliases:
   - vaginal intruder
   - front dildo
   - vibrator
+sidebarOrder: "2"
 ---
 After the control unit has been inserted into and inflated inside [[Alexandra Rose Blackwell|Alexandra]]'s womb, as well as the dose of the [[Sensitivity Serum]] has been injected, a massive rubber phallus is pushed into her vagina, stretching it out substantially. The phallus is long enough to push up [[Alexandra Rose Blackwell|Alexandra]]'s womb slightly and reach her cervix.
 

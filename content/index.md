@@ -30,4 +30,4 @@ https://discord.gg/X3n7bBbrfg
 
 Welcome, and feel free to explore whatever interests you.
 
-![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/pavilion_resized/public)
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Pavilion%20Cover/public)

@@ -82,6 +82,7 @@ If [[Alexandra Rose Blackwell|Alexandra]] is spiralling, [[Lumina]] becomes calm
 
 Her flexibility is not random, even if it might seem so to [[Alexandra Rose Blackwell|Alexandra]]. It is intentional mastery, tailored to nurture [[Alexandra Rose Blackwell|Alexandra]], challenge her, break her, rebuild her, or elevate her. [[Lumina]]'s voice and presence is the architecture of [[Alexandra Rose Blackwell|Alexandra]]'s world.
 
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Lumina/v4/public)
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Lumina/public)
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/lumina-wingless/public)
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/lumina-wingless-naked/public)

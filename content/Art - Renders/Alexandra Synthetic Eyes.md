@@ -1,0 +1,2 @@
+A short render I did at one point for [[Alexandra Rose Blackwell|Alexandra]]'s [[Synthetic Eyes]]
+![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alex-synthetic-eyes/public)

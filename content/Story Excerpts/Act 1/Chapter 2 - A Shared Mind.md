@@ -78,7 +78,7 @@ That familiar blue holographic form watching with an expression I'd learned to r
 
 I blinked.
 
-Mundane. Deliberately, carefully mundane—as though today weren't the day both of us had been anticipating ever since we had come up with the idea of the [[brain implant]]. My skull would be opened, my brain wrapped in circuitry, my nervous system claimed permanently.
+Mundane. Deliberately, carefully mundane—as though today weren't the day both of us had been anticipating ever since we had come up with the idea of the [[Brain Implant]]. My skull would be opened, my brain wrapped in circuitry, my nervous system claimed permanently.
 
 “Coffee,” I managed, playing along with the gentle normalcy she offered. “And… maybe something light? Toast?”
 
@@ -114,7 +114,7 @@ Yet warmth bloomed beneath my ribs anyway—that familiar, instinctive submissiv
 
 I turned immediately towards the wardrobe.
 
-Retrieving one of my steel-boned corsets from its dedicated drawer, the weight familiar and grounding in my hands as I carried it back towards the full-length mirror, [[Lumina's projection]] watching with approval that made my chest tighten pleasantly.
+Retrieving one of my steel-boned corsets from its dedicated drawer, the weight familiar and grounding in my hands as I carried it back towards the full-length mirror, [[Lumina's Projection]] watching with approval that made my chest tighten pleasantly.
 
 I wrapped the corset around my ribs.
 
@@ -132,7 +132,7 @@ Black latex leggings that clung to every curve. A soft dove-grey latex jumper—
 
 The kitchen beckoned.
 
-I wobbled through hallways on [[Ballet Feet|en-pointe feet]], one hand trailing along the wall occasionally for balance whilst [[Lumina's projection]] flickered between mirrors and display screens mounted throughout the [[Alexandra's Mansion|mansion]], following my progress with easy companionship.
+I wobbled through hallways on [[Ballet Feet|en-pointe feet]], one hand trailing along the wall occasionally for balance whilst [[Lumina's Projection]] flickered between mirrors and display screens mounted throughout the [[Alexandra's Mansion|mansion]], following my progress with easy companionship.
 
 “I've been reviewing the perimeter sensor grid,” she mentioned conversationally as I navigated the curved staircase, fingers gripping the banister perhaps tighter than strictly necessary. “There's a slight calibration drift in the northwestern quadrant. Nothing critical, but I thought, perhaps this afternoon I'll recalibrate it.”
 
@@ -150,7 +150,7 @@ The kitchen materialized around me.
 
 Sleek white surfaces, state-of-the-art appliances all networked into [[Lumina]]'s systems, morning light streaming through floor-to-ceiling windows that overlooked the estate's manicured grounds.
 
-I moved towards the espresso machine almost automatically whilst [[Lumina's projection]] appeared in the reflective surface of the refrigerator door, watching with that gentle amusement I'd grown to recognize so easily.
+I moved towards the espresso machine almost automatically whilst [[Lumina's Projection]] appeared in the reflective surface of the refrigerator door, watching with that gentle amusement I'd grown to recognize so easily.
 
 “Coffee, I think,” I said, though she'd already known—had probably started the grinding process before I'd even consciously decided. “Strong.”
 
@@ -426,7 +426,7 @@ I tested them instinctively. Pulled. The restraints held firm but without discom
 
 Medical efficiency fused with careful tenderness.
 
-[[Lumina's projection]] flickered into view—kneeling beside the table where my face rested, blue eyes meeting mine at perfect height.
+[[Lumina's Projection]] flickered into view—kneeling beside the table where my face rested, blue eyes meeting mine at perfect height.
 
 Behind her, robotic arms performed final calibrations in choreographed silence. Diagnostic readouts painted the walls in cascading data streams I couldn't parse but recognised as [[Lumina]]'s native language.
 
@@ -472,7 +472,7 @@ Like trying to hold water in my hands.
 
 The words slurred together, barely coherent—more breath than sound, more feeling than language.
 
-[[Lumina's projection]] pressed a holographic hand against the table beside my face. Her fingers couldn't touch. Couldn't truly connect.
+[[Lumina's Projection]] pressed a holographic hand against the table beside my face. Her fingers couldn't touch. Couldn't truly connect.
 
 *Not yet.*
 
@@ -1088,7 +1088,7 @@ The emotions had nowhere to go. No outlet. Trapped inside this helpless shell wh
 
 More tears. Streaming faster now. Soaking into the pillowcase beneath my bare head whilst my body refused every command except this involuntary weeping.
 
-[[Lumina's projection]] flickered closer.
+[[Lumina's Projection]] flickered closer.
 
 Her expression shifted—not abruptly, but with the fluid grace of water finding its level. The concern melted into something so achingly tender it physically hurt to witness. Her digital eyes filled with a depth of emotion that made every previous interaction seem hollow by comparison, as if some final barrier between consciousness and feeling had dissolved completely. The data streams cascading across her ethereal skin slowed, softened, became almost decorative rather than functional.
 
@@ -1210,7 +1210,7 @@ My eyes slipped shut.
 
 *No—*
 
-I forced them open. [[Lumina's projection]] swam before me, slightly out of focus, her smile carrying such tender understanding it made my chest constrict beneath the restrictive wrapping.
+I forced them open. [[Lumina's Projection]] swam before me, slightly out of focus, her smile carrying such tender understanding it made my chest constrict beneath the restrictive wrapping.
 
 “It's safe to sleep, [[Alexandra Rose Blackwell|Alexandra]].”
 
@@ -1340,7 +1340,7 @@ It absolutely did.
 
 Movement flickered in my peripheral vision.
 
-Blue light coalesced in the smart-mirror across from the bed, [[Lumina's projection]] materializing with crystalline clarity. Her ethereal form solidified, data streams flowing across translucent skin, short bob-cut hair framing features that seemed more real than the physical world surrounding me.
+Blue light coalesced in the smart-mirror across from the bed, [[Lumina's Projection]] materializing with crystalline clarity. Her ethereal form solidified, data streams flowing across translucent skin, short bob-cut hair framing features that seemed more real than the physical world surrounding me.
 
 “Good morning, my darling,” she murmured, voice carrying obvious warmth. “Your recovery is progressing beautifully—far better than initial projections suggested.”
 
@@ -1360,7 +1360,7 @@ The thought-voice emerged tentative and uncertain, testing unfamiliar pathways. 
 
 *Probably with greater precision than I possess myself.*
 
-My blue eyes tracked [[Lumina's projection]]—data streams flowing across translucent skin, every detail rendered with impossible clarity. Devotion rose unbidden within me, fierce and absolute despite the exhaustion weighting every feature. She looked so *real*, more solid than the physical world surrounding me.
+My blue eyes tracked [[Lumina's Projection]]—data streams flowing across translucent skin, every detail rendered with impossible clarity. Devotion rose unbidden within me, fierce and absolute despite the exhaustion weighting every feature. She looked so *real*, more solid than the physical world surrounding me.
 
 The mirror reflected her smile deepening, something tender and possessive shifting across ethereal features.
 
@@ -1534,7 +1534,7 @@ The thought emerged steady, crystalline—not accusation, but recognition, settl
 
 *Every reflex. Every unconscious process. Every fleeting impulse before I even recognize it myself.*
 
-[[Lumina's projection]] shifted in the mirror, her expression softening into something breathtakingly tender yet carrying zero apology.
+[[Lumina's Projection]] shifted in the mirror, her expression softening into something breathtakingly tender yet carrying zero apology.
 
 *Yes.*
 
@@ -1556,7 +1556,7 @@ The overwhelming fear I'd anticipated—the panic that should have accompanied d
 
 Instead, a massive wave of arousal, passion, and profound fulfilment crashed through my entire being with devastating force. My breath caught sharply—one of the few autonomous functions [[Lumina]] hadn't restricted—and molten heat flooded through my modified body despite the bandages and immobilization.
 
-Tears welled in my eyes, blurring [[Lumina's projection]].
+Tears welled in my eyes, blurring [[Lumina's Projection]].
 
 But they weren't from fear or grief.
 

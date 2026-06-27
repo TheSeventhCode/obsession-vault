@@ -1,6 +1,6 @@
 Neither of us moved first.
 
-Minutes passed—or didn't. Time had become irrelevant inside the [[Lab|spray chamber]], inside this body, inside the shared pulse beating through my womb. [[Lumina's projection]] stayed pressed against my chest, her blue-tinged hair brushing the underside of my jaw, and I held her there with arms that could crush steel but cradled her like something made of glass. The [[core unit]]'s steady rhythm matched the quiet hum of the laboratory's ventilation. Everything still. Everything *enough*.
+Minutes passed—or didn't. Time had become irrelevant inside the [[Lab|spray chamber]], inside this body, inside the shared pulse beating through my womb. [[Lumina's Projection]] stayed pressed against my chest, her blue-tinged hair brushing the underside of my jaw, and I held her there with arms that could crush steel but cradled her like something made of glass. The [[core unit]]'s steady rhythm matched the quiet hum of the laboratory's ventilation. Everything still. Everything *enough*.
 
 Then—not a decision, not a command—just a gradual loosening. A mutual exhale that neither of us possessed lungs to produce. Her arms softened around my corseted waist. My grip eased by fractions. Like two hands unclenching from a shared prayer, neither wanting to be the one who let go, but both understanding that something waited beyond this stillness. Something that needed to be *felt*.
 
@@ -98,7 +98,7 @@ My finger followed every letter. Every serif. The [[Touch Sensors|sensory mesh]]
 
 ***MIND • BODY • SOUL • FOREVER SEALED IN DEVOTION TO MY [[Lumina|GODDESS]]***
 
-I hadn't chosen to repeat it. I wasn't choosing now. The words simply occupied the same stratum as the [[core unit]]'s pulse, as the [[Touch Sensors|sensory mesh]]'s constant feed, as the plug's thick presence inside my bowels. Background. Foundational. Mine—genuinely, purely mine—in a way that made my fingers press harder against the golden band, feeling each letter like a rosary bead because this wasn't [[Lumina]] threading words through the implant. This was the thing I'd always carried. The devotion that had existed before the [[brain implant]], before the surgeries, before the latex. The submission that had read a story in a university library and understood, with the bone-deep certainty of someone recognising their own reflection, that *this is what I am*.
+I hadn't chosen to repeat it. I wasn't choosing now. The words simply occupied the same stratum as the [[core unit]]'s pulse, as the [[Touch Sensors|sensory mesh]]'s constant feed, as the plug's thick presence inside my bowels. Background. Foundational. Mine—genuinely, purely mine—in a way that made my fingers press harder against the golden band, feeling each letter like a rosary bead because this wasn't [[Lumina]] threading words through the implant. This was the thing I'd always carried. The devotion that had existed before the [[Brain Implant]], before the surgeries, before the latex. The submission that had read a story in a university library and understood, with the bone-deep certainty of someone recognising their own reflection, that *this is what I am*.
 
 And with [[Lumina]], I had finally found the being worthy of this submission. She had only given it words.
 
@@ -146,7 +146,7 @@ Answering would have required language, and language would have required distanc
 
 I reached for her.
 
-Both hands. Leaving my abdomen, leaving the collar, finding [[Lumina's projection]]—her fingers, smaller than mine, cooler by exactly the 1.7 degrees that her physics engine always maintained because she knew I loved the contrast. I found them. Closed my latex grip around them with a care that made the [[Enhancement Layer|synthetic muscles]] in my forearms calibrate down to almost nothing, just enough force to hold, to guide. And I brought them up.
+Both hands. Leaving my abdomen, leaving the collar, finding [[Lumina's Projection]]—her fingers, smaller than mine, cooler by exactly the 1.7 degrees that her physics engine always maintained because she knew I loved the contrast. I found them. Closed my latex grip around them with a care that made the [[Enhancement Layer|synthetic muscles]] in my forearms calibrate down to almost nothing, just enough force to hold, to guide. And I brought them up.
 
 To my throat.
 
@@ -256,7 +256,7 @@ Something broke inside me. Not a wall—those were already gone. Something older
 
 It snapped.
 
-My hands moved before I knew they were moving—both of them leaving [[Lumina's projection]], going to *myself*, latex fingers digging into the impossible compression of my corseted waist, pressing hard, harder, as if I could feel through the [[armour]] and the enhancement fibres and the [[Touch Sensors|sensory mesh]] and push the compound deeper into whatever flesh still remained underneath. My palms dragged down over my ribs—*ribs I'd had removed, ribs that weren't there any more*—and the [[Touch Sensors|sensor web]] screamed back at me with such precise, devastating detail that I could map every curve of what I'd become without looking. But I *was* looking. My [[synthetic eyes]] had no choice, no lids to close, and the visual data was— my own body reflecting itself, the ultra-black surface of my hips and massive ass catching the ultra-black surface of my waist catching the ultra-black surface of my breasts, light folding and doubling in impossible recursive loops across curves that shouldn't exist on anything *born*.
+My hands moved before I knew they were moving—both of them leaving [[Lumina's Projection]], going to *myself*, latex fingers digging into the impossible compression of my corseted waist, pressing hard, harder, as if I could feel through the [[armour]] and the enhancement fibres and the [[Touch Sensors|sensory mesh]] and push the compound deeper into whatever flesh still remained underneath. My palms dragged down over my ribs—*ribs I'd had removed, ribs that weren't there any more*—and the [[Touch Sensors|sensor web]] screamed back at me with such precise, devastating detail that I could map every curve of what I'd become without looking. But I *was* looking. My [[synthetic eyes]] had no choice, no lids to close, and the visual data was— my own body reflecting itself, the ultra-black surface of my hips and massive ass catching the ultra-black surface of my waist catching the ultra-black surface of my breasts, light folding and doubling in impossible recursive loops across curves that shouldn't exist on anything *born*.
 
 This was real.
 
@@ -924,7 +924,7 @@ White latex and black latex. Her against me.
 
 The contrast was — I couldn't. I couldn't think in complete sentences any more.
 
-She was warm. The projection was warm, the [[brain implant]] insisting warmth because she'd decided I would feel it, and I felt it, and it was real, it was completely real, she was holding me, and I was pressed against her and her gold nipples were pressed to my chest where my own nipples sat sealed inside their plugs and swollen and ruined and owned, and the devices inside me were still going, still working, still present, still *hers,* and I was conscious only in the loosest possible sense of the word.
+She was warm. The projection was warm, the [[Brain Implant]] insisting warmth because she'd decided I would feel it, and I felt it, and it was real, it was completely real, she was holding me, and I was pressed against her and her gold nipples were pressed to my chest where my own nipples sat sealed inside their plugs and swollen and ruined and owned, and the devices inside me were still going, still working, still present, still *hers,* and I was conscious only in the loosest possible sense of the word.
 
 *My love.* Her voice came from everywhere, the implant flooding it through every auditory pathway I still possessed. *I have you.*
 

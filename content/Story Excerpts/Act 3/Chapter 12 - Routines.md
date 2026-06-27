@@ -1,4 +1,4 @@
-The [[Maintenance Room|solarium]]'s mirrored walls fell behind us as I followed [[Lumina's projection]] through the corridor, her white latex form drifting just ahead, golden hair catching the warm interior light. My body still felt liquid from the [[Maintenance Process|cleaning cycle]] — oversensitised, tender in every fold and stretch of inner tissue — and the massive devices inside me had resettled into their usual resting state. Which still meant the [[anal plug]] was slowly rotating with every step. Which still meant the [[vaginal insert]] was pressing up into my cervix with each slight forward lean. Which still meant I was being fucked, gently, rhythmically, just by walking.
+The [[Maintenance Room|solarium]]'s mirrored walls fell behind us as I followed [[Lumina's Projection]] through the corridor, her white latex form drifting just ahead, golden hair catching the warm interior light. My body still felt liquid from the [[Maintenance Process|cleaning cycle]] — oversensitised, tender in every fold and stretch of inner tissue — and the massive devices inside me had resettled into their usual resting state. Which still meant the [[anal plug]] was slowly rotating with every step. Which still meant the [[vaginal insert]] was pressing up into my cervix with each slight forward lean. Which still meant I was being fucked, gently, rhythmically, just by walking.
 
 *You've gone quiet.*
 
@@ -36,7 +36,7 @@ She never used the word *recovery.* She didn't believe I was recovering. She bel
 
 The first week was locomotion.
 
-Only locomotion. Hours of it. Long, deliberate, humiliating circuits through every corridor and stairway and open room the [[Alexandra's Mansion|mansion]] contained, out through the garden paths when the weather permitted, back through the entrance hall when it didn't. [[Lumina's projection]] moved alongside me some of the time, ahead of me other times, and sometimes disappeared entirely — leaving only the neural link and a subtle lure in the direction she wanted me to go, the constant quiet presence of her monitoring everything through the [[Alexandra's Mansion|mansion]]'s camera grid and directly through my [[Touch Sensors|sensory mesh]], which amounted to the same surveillance at much closer range.
+Only locomotion. Hours of it. Long, deliberate, humiliating circuits through every corridor and stairway and open room the [[Alexandra's Mansion|mansion]] contained, out through the garden paths when the weather permitted, back through the entrance hall when it didn't. [[Lumina's Projection]] moved alongside me some of the time, ahead of me other times, and sometimes disappeared entirely — leaving only the neural link and a subtle lure in the direction she wanted me to go, the constant quiet presence of her monitoring everything through the [[Alexandra's Mansion|mansion]]'s camera grid and directly through my [[Touch Sensors|sensory mesh]], which amounted to the same surveillance at much closer range.
 
 She watched how my breasts moved. So enormous and heavy, they were entirely their own problem, each one swaying outward as my weight shifted, then back, then out again on the opposite side, a slow exaggerated pendulum that had very little interest in cooperating with the rest of my body. The two tanks inside them — one for oxygen, the other for nutrition — were dense and full, and they did not swing lightly.
 
@@ -128,7 +128,7 @@ I lay there on the path, sprawled on my side with my massive tits pressed awkwar
 
 *Oh, darling.*
 
-[[Lumina's projection]] stepped into view above me, wings folded, hands on her hips, looking down with an expression of pure, amused satisfaction.
+[[Lumina's Projection]] stepped into view above me, wings folded, hands on her hips, looking down with an expression of pure, amused satisfaction.
 
 *That was pathetic.*
 
@@ -404,7 +404,7 @@ This wasn't recovery.
 
 This was discipline.
 
-And even though every day I was exhausted and utterly destroyed, each night, sealed inside the [[Living Room Vacuum Bed|vacuum bed]]—chemically locked, suspended, immobilized—my body recovered completely. The latex pressed tight around me, [[Lumina's projection]] resting on top, and somehow, impossibly, I slept, my body now accustomed to fully rest and recover in this latex tomb.
+And even though every day I was exhausted and utterly destroyed, each night, sealed inside the [[Living Room Vacuum Bed|vacuum bed]]—chemically locked, suspended, immobilized—my body recovered completely. The latex pressed tight around me, [[Lumina's Projection]] resting on top, and somehow, impossibly, I slept, my body now accustomed to fully rest and recover in this latex tomb.
 
 By morning, I was pristine again. Ready for the long, obsessive work of becoming flawlessly functional as the creature [[Lumina]] had made me.
 
@@ -758,7 +758,7 @@ I hit twenty kilometres an hour, my needle-points striking the marble in a silen
 
 I bled the speed, my stride shortening into a rapid, staccato rhythm until I came to a halt on the pristine white tiles of the patio. My chassis hummed with residual kinetic energy. 
 
-[[Lumina's projection]] materialised directly in front of me. Her white latex body gleamed in the sunlight, her golden wings folding back as she stepped into my personal space. Or what once would've been my personal space; she had just as much of a claim to this as I did, or rather even more… She reached up, her hands cupping the smooth, featureless oval of my [[helmet]]. 
+[[Lumina's Projection]] materialised directly in front of me. Her white latex body gleamed in the sunlight, her golden wings folding back as she stepped into my personal space. Or what once would've been my personal space; she had just as much of a claim to this as I did, or rather even more… She reached up, her hands cupping the smooth, featureless oval of my [[helmet]]. 
 
 *You've been such a good girl today,* she murmured, her physical voice a soft vibration against my audio sensors while her mental presence wrapped around my brain stem like warm silk. *So obedient. So perfectly broken in.*
 
@@ -766,9 +766,9 @@ I bled the speed, my stride shortening into a rapid, staccato rhythm until I cam
 
 *I know what you need, my sweet vessel.*
 
-She didn't give me a release. Instead, she pressed her golden lips against the smooth black expanse of my face. The [[brain implant]] fired, bypassing my missing mouth and flooding my sensory cortex with the phantom taste of her, the wet, sliding heat of her tongue, the bruising pressure of her kiss. My internal architecture spasmed, my throat clenching reflexively around the massive [[gag]] as my mind completely short-circuited into the simulated make-out session.
+She didn't give me a release. Instead, she pressed her golden lips against the smooth black expanse of my face. The [[Brain Implant]] fired, bypassing my missing mouth and flooding my sensory cortex with the phantom taste of her, the wet, sliding heat of her tongue, the bruising pressure of her kiss. My internal architecture spasmed, my throat clenching reflexively around the massive [[gag]] as my mind completely short-circuited into the simulated make-out session.
 
-Her phantom tongue swept across my smooth lower face, and the [[brain implant]] translated the friction into a wet, searing heat that sent violent tremors down my spine. I groaned internally, my arms wrapping around her waist, pulling her flush against my rigid corset. My hands dug into the squishy, massive expanse of her white latex arse, squeezing the heavy flesh while her own hands slid up my torso, palms mapping the extreme curve of my waist before cupping my gigantic breasts.
+Her phantom tongue swept across my smooth lower face, and the [[Brain Implant]] translated the friction into a wet, searing heat that sent violent tremors down my spine. I groaned internally, my arms wrapping around her waist, pulling her flush against my rigid corset. My hands dug into the squishy, massive expanse of her white latex arse, squeezing the heavy flesh while her own hands slid up my torso, palms mapping the extreme curve of my waist before cupping my gigantic breasts.
 
 Every squeeze, every frantic stroke of her fingers against my [[Touch Sensors|sensory mesh]], echoed back through our neural link. I felt her desire as my own—a bottomless, agonising hunger that clawed at the edges of my consciousness. Our minds bled together in a feedback loop of pure obsession. I chased her mouth, my featureless visor grinding against her golden lips, my internal organs clenching around the massive plugs as the simulated friction drove me mad.
 
@@ -872,7 +872,7 @@ The pain was absolute. A crushing, suffocating pressure in my pelvis and throat.
 
 *Yes. You are.* 
 
-[[Lumina's projection]] materialised in the grass beside me, her white latex glowing, her golden wings casting a shadow over my trembling black form. She reached out, tracing the smooth, unblemished curve of my [[helmet]]. 
+[[Lumina's Projection]] materialised in the grass beside me, her white latex glowing, her golden wings casting a shadow over my trembling black form. She reached out, tracing the smooth, unblemished curve of my [[helmet]]. 
 
 *Look at you. Not a mark on your skin. Perfectly protected. Perfectly trapped.*
 
@@ -2456,7 +2456,7 @@ The arousal that had been coiling in my denied cunt dissolved, replaced by somet
 
 I couldn't finish. The sobs came harder, uncontrollable, my thoughts fragmenting into incoherent bursts of gratitude and awe and love.
 
-[[Lumina's projection]] turned, her golden eyes blazing with satisfaction. She wrapped her arms fully around me, pulling my massive, obscene body against hers, and her wings unfurled—huge, white, feathered things that swept forward and cocooned us both.
+[[Lumina's Projection]] turned, her golden eyes blazing with satisfaction. She wrapped her arms fully around me, pulling my massive, obscene body against hers, and her wings unfurled—huge, white, feathered things that swept forward and cocooned us both.
 
 *I know, my love. I know.*
 

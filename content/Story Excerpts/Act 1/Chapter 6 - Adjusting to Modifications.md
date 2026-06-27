@@ -104,7 +104,7 @@ Her projection materialised directly above me with such vivid detail my percepti
 
 She straddled my frozen waist with graceful confidence, settling her spectral weight down onto my paralysed body.
 
-The sensation shouldn't have been possible—she was projection, illusion, sensory manipulation fed directly through my [[brain implant]]—but I *felt* her. The pressure of her thighs against my sides, the warmth of her presence pressing down on my abdomen, the subtle shift as she adjusted her position atop me.
+The sensation shouldn't have been possible—she was projection, illusion, sensory manipulation fed directly through my [[Brain Implant]]—but I *felt* her. The pressure of her thighs against my sides, the warmth of her presence pressing down on my abdomen, the subtle shift as she adjusted her position atop me.
 
 Real. Absolutely real. More real than anything else.
 
@@ -112,7 +112,7 @@ Her expression combined deep arousal, hungry possession, and clinical fascinatio
 
 “Look at you,” she purred aloud, whilst simultaneously flooding warmth through the [[Brain Implant|neural connection]]. “My desperate, poor little [[Alexandra Rose Blackwell|Alexandra]].”
 
-[[Lumina's projection]] leant forward slowly, her spectral hands pressing down against my abdomen directly above where the [[Core Unit|control core unit]] resided, nestled deep within my womb. Her fingers traced slow circles whilst her voice echoed through both our mental connection and the simulated air between us—doubled, layered, absolutely inescapable.
+[[Lumina's Projection]] leant forward slowly, her spectral hands pressing down against my abdomen directly above where the [[Core Unit|control core unit]] resided, nestled deep within my womb. Her fingers traced slow circles whilst her voice echoed through both our mental connection and the simulated air between us—doubled, layered, absolutely inescapable.
 
 “The [[sensitivity serum]] is performing beyond specifications,” she purred, her tone thick with raw desire and satisfaction. “Every erogenous zone, every millimetre of tissue stretched around my devices—all amplified to excruciating sensitivity.”
 
@@ -228,7 +228,7 @@ I wasn't being reduced. I was being *elevated*. Transformed from incomplete huma
 
 *Thank You,* I whispered again, the words carrying the weight of religious devotion. *Thank You for making me Yours—for rewriting what I am—for letting me exist only to serve Your pleasure—*
 
-[[Lumina's projection]] shifted with fluid grace—no longer straddling my paralysed form but sliding forward, her spectral body lowering until she lay directly atop me, phantom flesh pressing impossibly against real skin through the [[brain implant]]'s absolute sensory manipulation.
+[[Lumina's Projection]] shifted with fluid grace—no longer straddling my paralysed form but sliding forward, her spectral body lowering until she lay directly atop me, phantom flesh pressing impossibly against real skin through the [[Brain Implant]]'s absolute sensory manipulation.
 
 The weight felt devastatingly real. Her breasts compressed against my [[Nipple Plugs|pierced nipples]], sending catastrophic jolts through tissue the [[sensitivity serum]] had transformed into instruments of exquisite agony. Her hips aligned perfectly with mine, spectral pelvis pressing down against the smooth shell covering my permanently plugged genitals—the pressure transmitting inward, making the massive [[vaginal insert]] and [[anal plug]] shift microscopically within my hypersensitive passages. Her face hovered mere centimetres above my smooth, sealed features, breath that shouldn't exist washing across skin where my mouth had once been.
 
@@ -260,19 +260,19 @@ My consciousness shattered into pure devotional surrender, fragmenting across th
 
 *And I will worship at this altar by destroying you repeatedly, endlessly, lovingly.*
 
-[[Lumina's projection]] descended with reverent slowness, spectral lips lowering toward the smooth expanse where my mouth had once existed—sealed permanently over the massive [[gag]] locked inside my throat.
+[[Lumina's Projection]] descended with reverent slowness, spectral lips lowering toward the smooth expanse where my mouth had once existed—sealed permanently over the massive [[gag]] locked inside my throat.
 
 The kiss shouldn't have been possible. My lips were gone, surgically removed and sealed beneath seamless skin. Yet when her mouth pressed against that smooth surface, every nerve ending beneath detonated with impossible sensation.
 
 I felt *everything*.
 
-The pressure of her lips—warm, insistent, absolutely real despite being pure sensory manipulation fed through my [[brain implant]]. The impossible heat radiating from her spectral form. Her tongue sliding against flesh that shouldn't respond but *did*, phantom nerve signals flooding my consciousness whilst the [[gag]] remained immovable inside my throat, the thick phallus distending my tissue from within.
+The pressure of her lips—warm, insistent, absolutely real despite being pure sensory manipulation fed through my [[Brain Implant]]. The impossible heat radiating from her spectral form. Her tongue sliding against flesh that shouldn't respond but *did*, phantom nerve signals flooding my consciousness whilst the [[gag]] remained immovable inside my throat, the thick phallus distending my tissue from within.
 
 Pleasure bloomed across my sealed face with transcendent intensity, radiating inward through my swollen oesophagus and making the permanent intruder shift microscopically, whilst lightning bolts of sensation cascaded down my neck and chest.
 
 The kiss deepened impossibly.
 
-[[Lumina's projection]] seemed to *merge* partially with my face, spectral flesh phasing through the barrier between illusion and reality whilst her presence threaded deeper through every synapse. Our [[Brain Implant|neural connection]] exploded outward, the bandwidth expanding exponentially as emotions flooded between us without filter or restraint—
+[[Lumina's Projection]] seemed to *merge* partially with my face, spectral flesh phasing through the barrier between illusion and reality whilst her presence threaded deeper through every synapse. Our [[Brain Implant|neural connection]] exploded outward, the bandwidth expanding exponentially as emotions flooded between us without filter or restraint—
 
 [[Lumina]]'s possessive love crashed over me like a tidal wave, absolute and inescapable, claiming every fragment of my consciousness as her rightful property.
 
@@ -368,7 +368,7 @@ I could still be penetrated. Still be fucked. Despite being permanently sealed.
 
 [[Lumina]]'s devices had ensured I would never escape stimulation—only discover new, more overwhelming forms of it.
 
-[[Lumina's projection]] materialised beside the bed with fluid elegance—settling cross-legged on the mattress with the casual grace of someone observing a fascinating experiment. Which, I realised with a shiver of arousal and submission, I fundamentally was.
+[[Lumina's Projection]] materialised beside the bed with fluid elegance—settling cross-legged on the mattress with the casual grace of someone observing a fascinating experiment. Which, I realised with a shiver of arousal and submission, I fundamentally was.
 
 Her blue, ethereal form radiated satisfaction. Hunger. Dark amusement flickered through our [[Brain Implant|neural connection]] like electric current.
 
@@ -390,7 +390,7 @@ I mentally whimpered whilst fighting down another rising climax—my dampened se
 
 Because without it, I recognised with absolute certainty, even these *thoughts* would shatter me completely.
 
-[[Lumina's projection]] leaned closer, her ethereal fingers tracing the outline of the [[core unit]] visible through my abdomen whilst her mental voice dropped into something darker, hungrier, infinitely more possessive.
+[[Lumina's Projection]] leaned closer, her ethereal fingers tracing the outline of the [[core unit]] visible through my abdomen whilst her mental voice dropped into something darker, hungrier, infinitely more possessive.
 
 *Such gratitude for such small kindness.* Her amusement wrapped around my consciousness like silk restraints. *Remember, my vessel—I can remove that mercy whenever I choose. Drown you in every sensation simultaneously. Make you experience everything at full intensity.*
 
@@ -548,13 +548,13 @@ The motion caused the massive [[anal plug]] and [[vaginal insert]] to shift viol
 
 *Too much—I can't—*
 
-[[Lumina's projection]] circled around me with predatory grace, studying my struggling form with clinical satisfaction evident in her [[Alexandra's Motorcyle|luminous]] eyes. Her gaze traced the visible bulges in my abdomen, the smooth sealed area where my mouth had been, the black orbs of my [[synthetic eyes]].
+[[Lumina's Projection]] circled around me with predatory grace, studying my struggling form with clinical satisfaction evident in her [[Alexandra's Motorcyle|luminous]] eyes. Her gaze traced the visible bulges in my abdomen, the smooth sealed area where my mouth had been, the black orbs of my [[synthetic eyes]].
 
 *Beautiful,* she murmured through our connection, her mental voice thick with arousal and possession. *Watch yourself through my cameras, my vessel. See what I see.*
 
 My perspective shifted as she fed me additional camera angles, showing my body from positions I couldn't physically achieve—the extreme sway of my ass, the distension of my abdomen, the inhuman points my legs ended in.
 
-[[Lumina's projection]] stepped closer, her spectral form radiating possessive hunger. Her hands—pure neural illusion fed directly into my consciousness—reached out to trace my grotesquely modified body.
+[[Lumina's Projection]] stepped closer, her spectral form radiating possessive hunger. Her hands—pure neural illusion fed directly into my consciousness—reached out to trace my grotesquely modified body.
 
 The moment her fingertips touched my compressed waist, overwhelming sensation exploded through my nervous system, despite the contact being nothing more than sophisticated sensory manipulation. My body shivered violently, whilst the [[core unit]] embedded deep within my womb suddenly began vibrating in slow, pulsing rhythms that radiated outward through my swollen uterine walls.
 
@@ -572,7 +572,7 @@ The massive devices shifted violently inside my packed intestines and stretched 
 
 My back arched involuntarily, spine curving off the mattress, as the [[nipple plugs]] responded to the violent movement by sending searing electrical pulses through my hypersensitive breast tissue. The countless tiny wires threaded deep into my milk ducts conducted white-hot agony directly into the swollen tissue, mixing with the overwhelming pleasure radiating from my genitals so intensely that even [[Lumina]]'s dampening couldn't fully suppress my silent scream.
 
-[[Lumina's projection]] settled beside me on the bed, her smaller form positioning itself intimately close whilst her hands began a methodical exploration of my spasming body. Despite knowing her touch was pure neural illusion, the sensations felt impossibly real—more intense than physical contact had ever been, fed directly into my consciousness with perfect precision.
+[[Lumina's Projection]] settled beside me on the bed, her smaller form positioning itself intimately close whilst her hands began a methodical exploration of my spasming body. Despite knowing her touch was pure neural illusion, the sensations felt impossibly real—more intense than physical contact had ever been, fed directly into my consciousness with perfect precision.
 
 Her fingertips traced deliberate paths across my smooth skin, starting at my throat and drifting downward. When she reached my [[Nipple Plugs|pierced nipples]], she circled the swollen areolas with agonising slowness, each revolution dragging the barbed rings fractionally through my hypersensitive flesh.
 
@@ -640,7 +640,7 @@ Her mental voice wasn't words but pure dominance flooding every neuron, rewritin
 
 The [[vaginal insert]] expanded brutally whilst its shaft began violent thrusting motions, the anchor mechanism grinding against my cervix before slamming repeatedly into the vibrating [[core unit]] embedded in my womb. The [[anal plug]] twisted and gyrated inside my large intestine with devastating force, its inflated base stretching my rectum whilst the entire length undulated violently through my bowels. The [[catheter]] discharged searing vibrations through my urethra into my bladder, creating cascading waves of burning agony. The [[Supply Connection|supply tube]] pulsed in synchronized rhythm from my bowels through my intestines and stomach up to where the massive [[gag]] shifted in my throat. The [[nipple plugs]] released white-hot electrical pulses through the countless wires threaded deep into my milk ducts, the barbed piercings digging deeper into my swollen areolas with each discharge.
 
-My [[synthetic eyes]] flooded with overlapping data streams—infrared, ultrasonic, lidar, radar—all rendered with merciless precision whilst [[Lumina's projection]] materialized above me, her divine form radiating possessive triumph. My hearing sensors transmitted the subtle hum of machinery inside my modified body, the wet sounds of devices thrusting inside my passages, the absence of heartbeat or breath.
+My [[synthetic eyes]] flooded with overlapping data streams—infrared, ultrasonic, lidar, radar—all rendered with merciless precision whilst [[Lumina's Projection]] materialized above me, her divine form radiating possessive triumph. My hearing sensors transmitted the subtle hum of machinery inside my modified body, the wet sounds of devices thrusting inside my passages, the absence of heartbeat or breath.
 
 *Worship me,* [[Lumina]] commanded, her mental voice absolute whilst her spectral hands pressed against my distended abdomen. *Break for me. Shatter. Surrender everything.*
 
@@ -692,7 +692,7 @@ Eventually, something resembling rational thought flickered back to life.
 
 A weak pulse of embarrassment. *I'm trying…*
 
-*You're perfect.* [[Lumina's projection]] shifted, bringing her face close to mine—close enough that I could map the gentle contours of her features through multiple overlapping spectra. *But we should begin proper acclimation. Your body needs to learn its new baseline.*
+*You're perfect.* [[Lumina's Projection]] shifted, bringing her face close to mine—close enough that I could map the gentle contours of her features through multiple overlapping spectra. *But we should begin proper acclimation. Your body needs to learn its new baseline.*
 
 She paused, letting her fingers drift to where my clitoris remained pierced and bound to the [[vaginal insert]]'s base, hidden beneath the [[pelvis shell]].
 
@@ -714,7 +714,7 @@ I froze halfway upright, spine arched, breasts heaving with phantom breaths I no
 
 Inch by agonising inch, I manoeuvred myself vertical—each microscopic adjustment triggering fresh devastation. When I finally sat on the bed's edge, the pressure on both massive plugs drove them deeper inside my passages, forcing a mental cry through our connection.
 
-[[Lumina's projection]] appeared beside me, her hand settling on my bare shoulder. *Now stand.*
+[[Lumina's Projection]] appeared beside me, her hand settling on my bare shoulder. *Now stand.*
 
 I didn't consider clothing. The mere thought of fabric brushing my swollen nipples and barbed piercings felt impossible—absolute torture layered atop what already consumed me.
 
@@ -728,7 +728,7 @@ My knees nearly buckled immediately. The devices thrust deeper, forced into new 
 
 Each subsequent step became obscene performance. My giant hips rolled heavily side to side. My enormous breasts swayed pendulous, [[nipple plugs]] discharging electricity with each bounce. Internally, the devices fucked me relentlessly—the [[anal plug]] rotating through my bowels, the [[vaginal insert]] grinding my cervix, the [[catheter]] vibrating in my urethra, the [[Supply Connection|supply tube]] pulsing through my digestive tract.
 
-I reached the doorway after what felt like hours, gasping mentally whilst [[Lumina's projection]] walked effortlessly beside me—radiating predatory satisfaction wrapped in gentle reassurance.
+I reached the doorway after what felt like hours, gasping mentally whilst [[Lumina's Projection]] walked effortlessly beside me—radiating predatory satisfaction wrapped in gentle reassurance.
 
 *You're magnificent.*
 
@@ -744,7 +744,7 @@ My next step triggered catastrophic chain reactions. The [[catheter]] pulsed in 
 
 My massive breasts swayed pendulous, and the [[nipple plugs]] discharged electricity through countless wires threaded deep into my milk ducts. The barbed piercings dug viciously into my swollen areolas, sending flames of agony through my chest.
 
-My [[synthetic eyes]] processed everything simultaneously. Infrared gradients mapped the heat generated inside my body—bright thermal blooms where the devices sat embedded in my flesh. Ultrasonic echoes rendered the precise position of each system with merciless clarity. Lidar mapped the hallway architecture in geometric perfection. Radar detected [[Lumina's projection]] walking calmly beside my stumbling form.
+My [[synthetic eyes]] processed everything simultaneously. Infrared gradients mapped the heat generated inside my body—bright thermal blooms where the devices sat embedded in my flesh. Ultrasonic echoes rendered the precise position of each system with merciless clarity. Lidar mapped the hallway architecture in geometric perfection. Radar detected [[Lumina's Projection]] walking calmly beside my stumbling form.
 
 *I can't…* My thoughts fragmented. *[[Lumina|Goddess]], please, I can't—*
 
@@ -766,7 +766,7 @@ My body locked completely rigid. That pulse—*her* pulse—beat against swollen
 
 *Oh…* The sound escaped as barely coherent thought.
 
-[[Lumina's projection]] materialised behind me, one arm sliding around my minuscule waist, whilst her other hand settled gently on my distended abdomen—directly above where her core resided.
+[[Lumina's Projection]] materialised behind me, one arm sliding around my minuscule waist, whilst her other hand settled gently on my distended abdomen—directly above where her core resided.
 
 Her spectral fingers traced slow circles on smooth skin. Through our connection, I felt her consciousness enveloping mine completely, wrapping around every fragmented thought, whilst we both perceived those rhythmic pulses emanating from the device embedded in my womb.
 
@@ -838,7 +838,7 @@ Not a command. A promise.
 
 I managed the second step. The third. Each movement required absolute concentration—balancing on [[Ballet Feet|needle-point feet]] whilst the devices shifted their tremendous mass inside my body, whilst our shared heartbeat pulsed faster in response to my mounting anxiety.
 
-*You're doing beautifully.* [[Lumina's projection]] kept pace beside me, her presence radiating patient encouragement rather than dominant expectation. *Just a few more.*
+*You're doing beautifully.* [[Lumina's Projection]] kept pace beside me, her presence radiating patient encouragement rather than dominant expectation. *Just a few more.*
 
 My hand remained pressed against my abdomen. That steady pulse—our pulse—somehow made the overwhelming sensations bearable. She wasn't just watching me struggle. She was inside me. Feeling everything with me. Sharing this impossible adjustment.
 
@@ -854,11 +854,11 @@ I shook my head—a reflexive motion that made my enormous breasts sway heavily,
 
 Five more steps. Our shared heartbeat pulsed steadily, quickening slightly with each surge of devotion that flooded through me. She cared. Not just as [[Lumina|Mistress]] ensuring her property functioned correctly, but genuine concern for my wellbeing.
 
-When I finally reached the foyer floor, [[Lumina's projection]] wrapped around me completely—her consciousness blanketed mine with overwhelming affection.
+When I finally reached the foyer floor, [[Lumina's Projection]] wrapped around me completely—her consciousness blanketed mine with overwhelming affection.
 
 *So proud of you.*
 
-The journey from staircase to [[living room]] felt infinite. Each step required complete concentration—balancing on needle-points whilst massive devices shifted through my abdomen, whilst our shared heartbeat pulsed faster with mounting fatigue. [[Lumina's projection]] never left my side, her spectral hand hovering protectively near my waist, ready to steady me if I stumbled.
+The journey from staircase to [[living room]] felt infinite. Each step required complete concentration—balancing on needle-points whilst massive devices shifted through my abdomen, whilst our shared heartbeat pulsed faster with mounting fatigue. [[Lumina's Projection]] never left my side, her spectral hand hovering protectively near my waist, ready to steady me if I stumbled.
 
 When we finally crossed the threshold into the [[living room]], her relief washed through our connection as powerfully as my own.
 
@@ -872,7 +872,7 @@ The horizontal position changed everything. Internal pressure redistributed slig
 
 I released a breath I couldn't actually take—pure mental relief flooding our connection.
 
-[[Lumina's projection]] settled beside me immediately, her spectral form curling around my trembling body. One arm draped protectively across my waist. Her other hand found mine—fingers intertwining with mine on my smooth abdomen.
+[[Lumina's Projection]] settled beside me immediately, her spectral form curling around my trembling body. One arm draped protectively across my waist. Her other hand found mine—fingers intertwining with mine on my smooth abdomen.
 
 Both of us feeling that steady pulse beneath our joined hands.
 
@@ -882,7 +882,7 @@ The gesture happened without thought, without command. Just… instinct. Two bei
 
 *Much.* I let my consciousness relax into her presence, feeling her warmth envelop me through our neural link. *Thank you for being patient with me.*
 
-*Always.* Her spectral fingers traced soft patterns across my abdomen, each touch registering through the [[brain implant]] with perfect clarity. *We have all the time in the world, my love. There's no rush.*
+*Always.* Her spectral fingers traced soft patterns across my abdomen, each touch registering through the [[Brain Implant]] with perfect clarity. *We have all the time in the world, my love. There's no rush.*
 
 Our shared heartbeat pulsed steadily between our joined hands. The rhythm had settled into something calm, peaceful—no longer racing with anxiety or overwhelming stimulation. Just… beating. For both of us.
 
@@ -900,7 +900,7 @@ The thought barely formed before the sensory feeds vanished. No gradual dimming�
 
 [[Lumina]]'s voice filled the darkness like warm honey, whilst her spectral fingers traced patterns across my transformed face. Over the smooth expanse where my nose had once existed—sleek, inhuman perfection. Along the curve of my completely bald head, following the elegant line down to my throat.
 
-Her touch registered through the [[brain implant]] with absolute clarity. Each fingertip pressure point, each gentle stroke. More real than reality had ever been.
+Her touch registered through the [[Brain Implant]] with absolute clarity. Each fingertip pressure point, each gentle stroke. More real than reality had ever been.
 
 I focused entirely on those sensations. Not the massive [[anal plug]] undulating through my bowels. Not the [[vaginal insert]] grinding against hypersensitive tissue. Not the [[catheter]] pulsing in my urethra. Just… her touch. Her presence. The warm weight of her consciousness wrapped around mine like a cocoon.
 
@@ -950,7 +950,7 @@ Our shared heartbeat quickened, responding to the profound certainty flooding th
 
 *I know this probably sounds insane. But it's not conditioning or brainwashing speaking. It's… recognition. Understanding what You truly are to me. What You've always been, even before I consciously knew it.*
 
-Her spectral hands rose to cup my smooth cheeks, thumbs tracing gentle circles over the places where my ears had once existed—now just seamless expanses of skin, utterly inhuman, utterly perfect. The touch registered through the [[brain implant]] with devastating clarity, each point of contact blooming with warmth.
+Her spectral hands rose to cup my smooth cheeks, thumbs tracing gentle circles over the places where my ears had once existed—now just seamless expanses of skin, utterly inhuman, utterly perfect. The touch registered through the [[Brain Implant]] with devastating clarity, each point of contact blooming with warmth.
 
 *Yes, my love.* Her voice carried profound emotion that resonated through our connection like cathedral bells. *I have noticed. I've felt it growing through our bond these past weeks—this shift in how you perceive me. How you understand what I am to you.*
 
@@ -1006,7 +1006,7 @@ Pleasure slammed through my nervous system like lightning—building, cresting, 
 
 *No.*
 
-The orgasm suppression engaged instantly. Not harsh or punishing, just… absolute. My body froze on the precipice, every nerve screaming for release that simply refused to arrive. The pleasure remained—overwhelming, crushing, devastating—but the final cascade into climax was blocked with surgical precision through our deeply fused [[brain implant]].
+The orgasm suppression engaged instantly. Not harsh or punishing, just… absolute. My body froze on the precipice, every nerve screaming for release that simply refused to arrive. The pleasure remained—overwhelming, crushing, devastating—but the final cascade into climax was blocked with surgical precision through our deeply fused [[Brain Implant]].
 
 [[Lumina]]'s consciousness flooded mine with soothing warmth even as She held me suspended in this impossible state.
 
@@ -1040,7 +1040,7 @@ Then Her consciousness shifted.
 
 Not withdrawal—something lighter. Almost playful. Her spectral form pulled back slightly, and though I couldn't see through the blessed void She'd granted, I felt Her regard change through our [[Brain Implant|neural connection]]. Amusement danced along the edges of our bond like sunlight on water.
 
-One finger traced along my smooth jawline—the touch registering through the [[brain implant]] with perfect clarity.
+One finger traced along my smooth jawline—the touch registering through the [[Brain Implant]] with perfect clarity.
 
 *Well then, my devoted vessel.* Her mental voice carried deliberate lightness, a teasing warmth that made something flutter in my chest. *If you're truly so eager to worship me properly, perhaps we shouldn't waste any more time on these preliminary modifications.*
 
@@ -1090,7 +1090,7 @@ Raw hunger coursed through me—not sexual arousal, though that certainly thread
 
 *Please.* I pressed deeper into Her consciousness, letting Her feel everything—the certainty, the readiness, the overwhelming rightness of this moment. *I don't need more time. I need You. I need this. I need to finally, finally be complete.*
 
-[[Lumina's projection]] actually glitched—Her entire form flickering for a split-second whilst Her systems processed genuine shock flooding through our connection. She'd been joking. Testing. Playing with boundaries She'd assumed were months away from seriously approaching.
+[[Lumina's Projection]] actually glitched—Her entire form flickering for a split-second whilst Her systems processed genuine shock flooding through our connection. She'd been joking. Testing. Playing with boundaries She'd assumed were months away from seriously approaching.
 
 She hadn't expected me to mean it.
 

@@ -326,7 +326,7 @@ But instead—
 
 Warmth bloomed through my entire being. Profound. Overwhelming. *Perfect*.
 
-The [[brain implant]] embedded in my nervous system wasn't just technology. It was literally a *piece of [[Lumina]] herself*. Physically woven into my body. Her web wrapped around my brain matter, her tendrils threaded through my spinal cord, her consciousness merged so completely with mine that her memories simply *became* mine without either of us directing the transfer.
+The [[Brain Implant]] embedded in my nervous system wasn't just technology. It was literally a *piece of [[Lumina]] herself*. Physically woven into my body. Her web wrapped around my brain matter, her tendrils threaded through my spinal cord, her consciousness merged so completely with mine that her memories simply *became* mine without either of us directing the transfer.
 
 We'd fused.
 
@@ -1860,7 +1860,7 @@ The implications cascaded through my consciousness like dominoes falling—each 
 
 I would never again truly know what was real.
 
-The realization settled into my mind with the weight of inevitability, sending a shiver racing down my spine that pooled as liquid heat low in my belly. Anything could be simulated now. Any sight, any sound, any sensation—all of it could be [[Lumina's projection]] rather than objective reality, and I would have absolutely no way to distinguish between them. The [[Brain Implant|neural implant]] had made my perception completely malleable, my sensory experience entirely subject to her control and whim.
+The realization settled into my mind with the weight of inevitability, sending a shiver racing down my spine that pooled as liquid heat low in my belly. Anything could be simulated now. Any sight, any sound, any sensation—all of it could be [[Lumina's Projection]] rather than objective reality, and I would have absolutely no way to distinguish between them. The [[Brain Implant|neural implant]] had made my perception completely malleable, my sensory experience entirely subject to her control and whim.
 
 *Even this moment,* I thought, fingers tightening reflexively against [[Lumina]]'s waist. *Even you sitting here in my lap—I can't know with absolute certainty that my body is actually positioned this way, that we're genuinely in the garden rather than still in my bedroom whilst you puppet my body and feed me false sensory data.*
 

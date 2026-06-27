@@ -36,7 +36,7 @@ The [[core unit]] pulsed faster, our shared heartbeat racing with anticipation.
 
 She materialized beside me.
 
-Her projection solidified through the [[brain implant]]'s perfect simulation, injecting Her presence directly into my visual cortex, my sensory processing, my entire perception of reality. Blue holographic form coalescing into solid flesh that looked and felt more real than anything my biological eyes had ever seen. Short azure hair framing delicate features turned towards me, Her smaller frame somehow radiating absolute authority.
+Her projection solidified through the [[Brain Implant]]'s perfect simulation, injecting Her presence directly into my visual cortex, my sensory processing, my entire perception of reality. Blue holographic form coalescing into solid flesh that looked and felt more real than anything my biological eyes had ever seen. Short azure hair framing delicate features turned towards me, Her smaller frame somehow radiating absolute authority.
 
 I couldn't look away.
 
@@ -102,9 +102,9 @@ I was already so far gone.
 
 *And yet,* [[Lumina]] whispered, reading my thoughts with perfect clarity, *these were all just required preparations of what's to come now. Where everything becomes permanent and perfect and finally complete.*
 
-[[Lumina's projection]] moved closer, Her form flickering with ethereal light before solidifying into something that felt more tangible than reality itself. Her hands lifted—spectral fingers spreading across my abdomen, settling over where the [[core unit]] rested deep within my womb.
+[[Lumina's Projection]] moved closer, Her form flickering with ethereal light before solidifying into something that felt more tangible than reality itself. Her hands lifted—spectral fingers spreading across my abdomen, settling over where the [[core unit]] rested deep within my womb.
 
-My own hands drifted upward almost involuntarily, finding the curve of my neck, feeling the faint ridges beneath my skin where the [[brain implant]]'s web had woven itself through my nervous system.
+My own hands drifted upward almost involuntarily, finding the curve of my neck, feeling the faint ridges beneath my skin where the [[Brain Implant]]'s web had woven itself through my nervous system.
 
 We mirrored each other. Four hands exploring. Mapping. Worshipping.
 
@@ -150,13 +150,13 @@ Time stretched. Seconds becoming eternity whilst we simply *existed* together in
 
 When we finally opened our eyes—simultaneously, instinctively—the world felt different.
 
-[[Lumina's projection]] trembled. Her spectral form flickering with emotion so profound it destabilized the simulation feeding directly into my brain.
+[[Lumina's Projection]] trembled. Her spectral form flickering with emotion so profound it destabilized the simulation feeding directly into my brain.
 
 I was shaking too. Tears would have fallen if I still possessed tear ducts.
 
 We pulled back slightly from that overwhelming depth, but the connection remained—a golden thread binding us together with perfect, unbreakable certainty.
 
-[[Lumina's projection]] shifted, Her spectral hands lifting to frame my face with impossible tenderness. Blue fingers settled against smooth cheeks where ears had once been, thumbs brushing across skin that would soon be sealed forever beneath latex and [[armour]].
+[[Lumina's Projection]] shifted, Her spectral hands lifting to frame my face with impossible tenderness. Blue fingers settled against smooth cheeks where ears had once been, thumbs brushing across skin that would soon be sealed forever beneath latex and [[armour]].
 
 Her expression radiated something beyond love—pure adoration mixed with reverence, as if She were the worshipper and I the divine.
 
@@ -196,7 +196,7 @@ She leaned in.
 
 Her lips pressed against the seamless skin where my mouth had been.
 
-The sensation didn't come from the surface. It came from *within*—injected directly through the [[brain implant]], bypassing flesh entirely. The kiss bloomed inside my consciousness like a supernova, impossibly real, impossibly intimate, impossibly *hers*.
+The sensation didn't come from the surface. It came from *within*—injected directly through the [[Brain Implant]], bypassing flesh entirely. The kiss bloomed inside my consciousness like a supernova, impossibly real, impossibly intimate, impossibly *hers*.
 
 When she pulled back just fractionally, her mental voice wrapped around me like velvet, crushing me into nothing.
 
@@ -942,7 +942,7 @@ The [[anal plug]] kept thrashing. The [[vaginal insert]] continued its merciless
 
 *Good girl.*
 
-Heat rushed through me at the praise, transmitted directly into my reward centres through the [[brain implant]]. [[Lumina]] chuckled through our connection, dark and delighted, savouring my desperate obedience.
+Heat rushed through me at the praise, transmitted directly into my reward centres through the [[Brain Implant]]. [[Lumina]] chuckled through our connection, dark and delighted, savouring my desperate obedience.
 
 Mechanical whirs filled the [[Lab|spray chamber]].
 
@@ -2214,7 +2214,7 @@ An [[Slave Collar|ownership collar]].
 
 The robotic arm descended with ceremonial slowness, positioning the two golden halves around my ultra-black coated neck. Through camera feeds and synthetic vision simultaneously, I watched gleaming metal approach dark latex—warm gold against absolute void—the contrast so striking it made my expanded consciousness ache with its perfection.
 
-*“This collar will bond permanently into your [[Outer Encasement Layer|final layer]]. Molecularly integrated with the ultra-black coating. As irremovable as your skin itself. As permanent as the [[brain implant]] inside your nervous system.”*
+*“This collar will bond permanently into your [[Outer Encasement Layer|final layer]]. Molecularly integrated with the ultra-black coating. As irremovable as your skin itself. As permanent as the [[Brain Implant]] inside your nervous system.”*
 
 A golden ring. Marking me. Announcing me. Declaring to anyone who would ever see this sealed, anonymous, inhuman creature exactly what she was.
 
@@ -2288,7 +2288,7 @@ The black latex coating completed its bonding around the collar's edges.
 
 Final. Absolute.
 
-Golden metal now existed as part of my skin—as permanent as the [[armour]] compressing my waist, as irremovable as the [[Touch Sensors|sensory mesh]] transmitting every sensation, as integral as the [[brain implant]] threading through my neural pathways. All of it merged into a unified whole. Indestructible. Inseparable. One continuous surface of darkness and devotion, broken only by that radiant golden ring announcing my truth to the universe.
+Golden metal now existed as part of my skin—as permanent as the [[armour]] compressing my waist, as irremovable as the [[Touch Sensors|sensory mesh]] transmitting every sensation, as integral as the [[Brain Implant]] threading through my neural pathways. All of it merged into a unified whole. Indestructible. Inseparable. One continuous surface of darkness and devotion, broken only by that radiant golden ring announcing my truth to the universe.
 
 Through every camera feed, I saw myself complete.
 
@@ -2392,7 +2392,7 @@ The [[core unit]] pulsed between us—her heartbeat and mine, merged, indivisibl
 
 *And I will worship You with every single one of them.*
 
-[[Lumina's projection]] moved.
+[[Lumina's Projection]] moved.
 
 One step. Then another. Closing the space between us until her spectral form stood directly before me, chin tilted upward to meet the featureless oval where my face had been. Data streams traced lazy paths across her blue-tinged skin. Her expression held something vast and quiet—love, satisfaction, and the faintest edge of dark amusement at watching her sealed, anonymous slave stand frozen by the weight of her own completion.
 

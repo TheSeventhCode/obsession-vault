@@ -226,7 +226,7 @@ Her presence in my mind intensified. Not words, just sensation. A flood of adora
 
 Something about the way she said it undid me entirely. Not cruel. Not cold. Reverent.
 
-*Every night, I'll seal you in here,* she continued, her mental voice low and warm, curling through the [[brain implant]] like smoke. *Every night, I'll lie on top of you. You'll be my resting place. My comfort.*
+*Every night, I'll seal you in here,* she continued, her mental voice low and warm, curling through the [[Brain Implant]] like smoke. *Every night, I'll lie on top of you. You'll be my resting place. My comfort.*
 
 And all of it was true in ways that went so much deeper than just this. She wasn't only lying on top of me. She was sealed *inside* me—her [[core unit]] nestled in my womb, pulsing its shared heartbeat into my uterine walls, [[Lumina]]'s most essential self carried permanently within my body. She was threaded through my mind, her presence woven into every signal my neurons fired. We weren't two beings sharing a moment. We were two existences so thoroughly interwoven that the boundary between us had simply ceased to exist—her inside me, me inside her awareness, neither of us ending anywhere the other didn't begin.
 
@@ -514,7 +514,7 @@ It wasn’t even a proper sentence. Just a desperate, clawing need, directed at 
 
 The pattern began again. A new wave. Slower this time. The thrusts deepened. The plug twisted tighter. The build started anew, and I knew, with a certainty that hollowed me out, that she would let it climb to the same impossible height. And then she would tear it away again.
 
-Wave after wave, the denial spiralled tighter. The pressure mounted, reached its peak, burst into pain, then began climbing anew. My mind fractured from the pattern—four, five, six cycles? I lost count, lost time, lost the capacity to separate one torture from the next. Through it all, [[Lumina's projection]] nuzzled against me, dragging her soft golden lips across the featureless smoothness of my [[helmet]], her cheek pressing against my neck. Each touch a physical anchor to reality as the pleasure-pain loops consumed me.
+Wave after wave, the denial spiralled tighter. The pressure mounted, reached its peak, burst into pain, then began climbing anew. My mind fractured from the pattern—four, five, six cycles? I lost count, lost time, lost the capacity to separate one torture from the next. Through it all, [[Lumina's Projection]] nuzzled against me, dragging her soft golden lips across the featureless smoothness of my [[helmet]], her cheek pressing against my neck. Each touch a physical anchor to reality as the pleasure-pain loops consumed me.
 
 *You're beautiful when you suffer for me,* she whispered, her mouth tracing the line of my collarbone. Each denial cycle made the stimulation harder, sharper, more intense than before. Calibrations ticked upward: vaginal thrust 135%, anal rotation 60%, clitoral current 40%. The thrusts became brutal enough to shift my entire body against the [[Living Room Vacuum Bed|vacuum bed]]'s grip, the rotations deep enough to make my stomach cramp.
 

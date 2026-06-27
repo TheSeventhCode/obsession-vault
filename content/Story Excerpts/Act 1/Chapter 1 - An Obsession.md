@@ -330,7 +330,7 @@ Her avatar's hand extended towards my reflection's face, hovering just beside my
 
 My breath stopped.
 
-“The [[Figure Enhancements|breast implants]] will be removed,” [[Lumina]] continued, each word deliberate, weighted with promise. “Replaced with your new life-support systems. Your waist will be compressed further—far beyond what your ribs allowed. Your encasement will be permanent and absolute, fused to your flesh. Your [[brain implant]] will dissolve the boundary between our minds—erase every last barrier—until my thoughts flow seamlessly into yours, until you cannot distinguish where you end, and I begin, until our consciousnesses connect so intimately that we finally, *truly*, come together.”
+“The [[Figure Enhancements|breast implants]] will be removed,” [[Lumina]] continued, each word deliberate, weighted with promise. “Replaced with your new life-support systems. Your waist will be compressed further—far beyond what your ribs allowed. Your encasement will be permanent and absolute, fused to your flesh. Your [[Brain Implant]] will dissolve the boundary between our minds—erase every last barrier—until my thoughts flow seamlessly into yours, until you cannot distinguish where you end, and I begin, until our consciousnesses connect so intimately that we finally, *truly*, come together.”
 
 Heat flooded through me.
 
@@ -2578,7 +2578,7 @@ Eventually, I stood, naked—skin flushed pink and glistening with perspiration,
 
 Only the dildo remained, still buried deep inside my stretched vagina, vibrations continuing their relentless torment.
 
-I turned towards [[Lumina's projection]].
+I turned towards [[Lumina's Projection]].
 
 Couldn't help it.
 
@@ -2778,7 +2778,7 @@ Exhausted. Frustrated.
 
 Running on caffeine and stubborn determination, my eyes burning from staring at monitors for too many consecutive hours.
 
-[[Lumina's projection]] had materialised without warning.
+[[Lumina's Projection]] had materialised without warning.
 
 Not unusual—she often appeared when I worked late, keeping me company or gently suggesting I should sleep—but something about her digital form that night had been *different*.
 

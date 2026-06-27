@@ -8,6 +8,6 @@ With the countless renovations, [[Alexandra Rose Blackwell|Alexandra]] has autom
 
 The [[Alexandra's Mansion|mansion]] features a large indoor [[pool]] that is actually connected to an even larger outdoor [[pool]] area. It also has a custom private [[gym]]. Inside, the [[Alexandra's Mansion|mansion]] is very open, with the back section near the garden doors featuring large windows, few walls, and a generally open space that extends from the [[living room]] to the kitchen and other areas.
 
-The [[Alexandra's Mansion|mansion]] also includes [[Alexandra Rose Blackwell|Alexandra]]'s [[lab]] / [[Surgery Room|transformation room]], where many of the materials and actual procedures for her transformation into a Bane are carried out.
+The [[Alexandra's Mansion|mansion]] also includes [[Alexandra Rose Blackwell|Alexandra]]'s [[lab]] / [[Lab|transformation room]], where many of the materials and actual procedures for her transformation into a Bane are carried out.
 
 More rooms of the [[Alexandra's Mansion|mansion]] include a music room with a grand piano and several other instruments, [[Alexandra Rose Blackwell|Alexandra]]'s old bedroom on the second floor, and a large, luxurious bathroom next to the bedroom with a huge bath. Otherwise, there are several more unused rooms, ranging from different guest rooms to storage and utility spaces. Some of these rooms have not been used by [[Alexandra Rose Blackwell|Alexandra]] in years and are sometimes completely repurposed by [[Lumina]] for different systems.

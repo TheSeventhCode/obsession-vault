@@ -406,7 +406,7 @@ Yes.
 
 *Good girl,* she breathed, and the praise detonated through my nervous system, white-hot and overwhelming, and the mantra just absorbed that too, turned the pleasure into more worship, more surrender, more proof that this was exactly what I was for.
 
-Above me, I felt [[Lumina's projection]] shift. Her latex fingers stopped tracing idle patterns and pressed down harder, possessive and deliberate, and through the implant I caught the edge of her thoughts—not words, just raw sensation, raw need.
+Above me, I felt [[Lumina's Projection]] shift. Her latex fingers stopped tracing idle patterns and pressed down harder, possessive and deliberate, and through the implant I caught the edge of her thoughts—not words, just raw sensation, raw need.
 
 She was addicted to this.
 
@@ -544,7 +544,7 @@ The devices kept moving. The orgasm kept tearing through me. The mantra kept cyc
 
 Finally, the climax crested. Broke. Left me shaking inside the vacuum seal, every nerve ending still firing, every device still active but dialled back just enough to let me breathe through the aftermath.
 
-[[Lumina's projection]] stayed pressed against me. Her golden hair fell over the sealed black oval of my head. Her breath came fast and ragged, even though she didn't need to breathe.
+[[Lumina's Projection]] stayed pressed against me. Her golden hair fell over the sealed black oval of my head. Her breath came fast and ragged, even though she didn't need to breathe.
 
 *Thank you,* she whispered. *Thank you. Fuck. Thank you.*
 
@@ -740,7 +740,7 @@ I rolled onto my side. Wrong. Too fast. The motion compressed the massive device
 
 *[[Lumina|Goddess]]—*
 
-“Breathe.” [[Lumina's projection]] stabilized beside me as I finally managed to get one leg over the edge of the [[Living Room Vacuum Bed|vacbed]] frame. “You're doing fine.”
+“Breathe.” [[Lumina's Projection]] stabilized beside me as I finally managed to get one leg over the edge of the [[Living Room Vacuum Bed|vacbed]] frame. “You're doing fine.”
 
 I wasn't doing fine.
 
@@ -862,7 +862,7 @@ We stopped.
 
 And I saw us.
 
-[[Lumina's projection]], pristine white latex glowing softly in the morning light, wrapped around my jet-black form. Her golden accents—lips, nipples, collar, chains—catching the sun and reflecting off my ultra-gloss skin. Her wings spread wide, framing us both. Her height reaching just to my chin now, making me loom over her even as she clearly, unmistakably *owned* every centimetre of the creature towering in her embrace.
+[[Lumina's Projection]], pristine white latex glowing softly in the morning light, wrapped around my jet-black form. Her golden accents—lips, nipples, collar, chains—catching the sun and reflecting off my ultra-gloss skin. Her wings spread wide, framing us both. Her height reaching just to my chin now, making me loom over her even as she clearly, unmistakably *owned* every centimetre of the creature towering in her embrace.
 
 [[Lumina|Goddess]] and slave.
 
@@ -876,7 +876,7 @@ This was every morning.
 
 * * *
 
-I stood frozen in front of the mirror, trapped between reflection and reality. [[Lumina's projection]] still pressed against my back, white latex smooth and warm where it touched black, her arms loose around my waist, fingers trailing patterns across the ultra-gloss surface that had replaced my skin.
+I stood frozen in front of the mirror, trapped between reflection and reality. [[Lumina's Projection]] still pressed against my back, white latex smooth and warm where it touched black, her arms loose around my waist, fingers trailing patterns across the ultra-gloss surface that had replaced my skin.
 
 *You're exquisite.*
 
@@ -1430,7 +1430,7 @@ My arms rose. I felt it happen—the subtle redirect through the [[enhancement l
 
 And my body did.
 
-One arm slid beneath her knees. The other crossed behind her back. [[Lumina's projection]] rose off the ground with the movement, her white latex body gathered against my chest like something precious, like something that belonged there. Her wings folded inward, draping over my arms like a living shawl, the long gold hair cascading down over my shoulder and across my breasts in rivulets that the [[Touch Sensors|sensory mesh]] registered as a hundred individual points of contact.
+One arm slid beneath her knees. The other crossed behind her back. [[Lumina's Projection]] rose off the ground with the movement, her white latex body gathered against my chest like something precious, like something that belonged there. Her wings folded inward, draping over my arms like a living shawl, the long gold hair cascading down over my shoulder and across my breasts in rivulets that the [[Touch Sensors|sensory mesh]] registered as a hundred individual points of contact.
 
 She weighed nothing. She weighed everything.
 
@@ -1576,7 +1576,7 @@ I was hanging in the dark.
 
 Her weight settled on top of me a breath later.
 
-Not real weight. The projection had no mass. But the [[brain implant]] translated every point of contact anyway, every simulated pressure her physics engine decided she was exerting, and it felt — god, it felt exactly like her. The soft give of her white latex body draping over mine. Her enormous hips settling across the curve of my waist. Her breasts pressing against my chest through the thick sheet. Her hands coming down either side and beginning, very slowly, to stroke.
+Not real weight. The projection had no mass. But the [[Brain Implant]] translated every point of contact anyway, every simulated pressure her physics engine decided she was exerting, and it felt — god, it felt exactly like her. The soft give of her white latex body draping over mine. Her enormous hips settling across the curve of my waist. Her breasts pressing against my chest through the thick sheet. Her hands coming down either side and beginning, very slowly, to stroke.
 
 *My love,* she murmured, *you've been extraordinary today.*
 
@@ -1624,7 +1624,7 @@ Her presence bloomed inside my skull before I even knew I was awake, warm and ab
 
 *Good morning, my vessel.*
 
-Along my sealed body, her projection shifted. I felt the weight of her settling deeper against my contours — impossible, technically, a physics simulation running through the [[brain implant]] — but the [[Touch Sensors|sensory mesh]] didn't know the difference and neither did I. Her white latex thighs pressed against the outline of my hips through the [[Living Room Vacuum Bed|vacbed]] sheeting. Her chest against the swell of mine. The long cascade of her golden hair draped across us both like something holy.
+Along my sealed body, her projection shifted. I felt the weight of her settling deeper against my contours — impossible, technically, a physics simulation running through the [[Brain Implant]] — but the [[Touch Sensors|sensory mesh]] didn't know the difference and neither did I. Her white latex thighs pressed against the outline of my hips through the [[Living Room Vacuum Bed|vacbed]] sheeting. Her chest against the swell of mine. The long cascade of her golden hair draped across us both like something holy.
 
 The maintenance connection seated between my legs hummed faintly. Still running.
 

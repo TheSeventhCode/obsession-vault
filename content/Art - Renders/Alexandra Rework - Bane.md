@@ -1,4 +1,4 @@
-The fully reworked Alexandra as a Bane. Won't be much difference to before, since the shaping differences are almost unnoticeable.
+The fully reworked [[Alexandra Rose Blackwell|Alexandra]] as a Bane. Won't be much difference to before, since the shaping differences are almost unnoticeable.
 
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Alexandra/v4/1/public)
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Alexandra/v4/2/public)

@@ -40,7 +40,7 @@ Furthermore, the [[armour]] is absolutely essential—it distributes her weight 
 
 ---
 
-To bind all these [[armour]] pieces together, and create another completely smooth layer of latex, a black latex-glue solution is applied over [[Alexandra Rose Blackwell|Alexandra]]'s body and [[armour]]. It covers her entire body again, hiding away any edges and protrusions by the [[armour]], resulting in every part of her body appearing in completely smooth latex.
+To bind all these [[armour]] pieces together, and create another completely smooth layer of latex, a black latex-glue solution is applied over [[Alexandra Rose Blackwell|Alexandra]]'s body and [[armour]]. It [[covers]] her entire body again, hiding away any edges and protrusions by the [[armour]], resulting in every part of her body appearing in completely smooth latex.
 
 Once fully fused, the [[armour]] is capable of perfectly distributing any force impact throughout the entire system, easily absorbing any and all impacts or collisions. This protection is so absolute, no explosion, gunshot, fall, or arbitrarily sharp object can damage [[Alexandra Rose Blackwell|Alexandra]]'s [[armour]], ensuring nothing is capable of reaching her within her encasement and enslaving her inside forever.
 It is a perfect mobile prison that has _become_ [[Alexandra Rose Blackwell|Alexandra]]'s skin, simultaneously keeping her safe, with nothing able to hurt her, and also being very prison structure that holds every obscene proportion, every forced posture, and every embedded device in the exact position [[Lumina]] requires.

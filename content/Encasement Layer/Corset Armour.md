@@ -14,5 +14,5 @@ This lower section also forces [[Alexandra Rose Blackwell|Alexandra]] into a mor
 
 The huge section enveloping [[Alexandra Rose Blackwell|Alexandra]]'s breasts is made with microscopic, ensuring that when the [[armour]] layer is fully covered again by liquid latex, her breasts remain as squishy and natural-moving as if there isn't anything encasing or protecting them at all.
 
-The section covering her nipples is also different, in that it usually covers and hides the entire nipple and areola. But can be controlled by [[Lumina]] to flatten out and let the contours of [[Alexandra Rose Blackwell|Alexandra]]'s pierced, swollen, and extremely sensitive nipples come through, making them, the piercings and the barbed rings, visible again.
+The section covering her nipples is also different, in that it usually [[covers]] and hides the entire nipple and areola. But can be controlled by [[Lumina]] to flatten out and let the contours of [[Alexandra Rose Blackwell|Alexandra]]'s pierced, swollen, and extremely sensitive nipples come through, making them, the piercings and the barbed rings, visible again.
 *![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/waist-corset/public)*

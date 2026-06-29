@@ -446,7 +446,7 @@ The indoor [[pool]]. Water perfectly still, surface reflecting overhead lights i
 
 Then the garage. My collection of vehicles—rarely used now—sitting in ordered rows.
 
-The music room. Grand piano gleaming beneath dust covers I hadn't lifted in months.
+The music room. Grand piano gleaming beneath dust [[covers]] I hadn't lifted in months.
 
 Each transition was seamless, instantaneous. [[Lumina]] cycled through her surveillance network with playful ease, granting me brief glimpses of what was once *my* estate, as though offering treasures one at a time.
 

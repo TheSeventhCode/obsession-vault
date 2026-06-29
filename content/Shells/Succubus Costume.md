@@ -3,7 +3,7 @@ aliases:
   - succubus suit
   - succubus skinsuit
 ---
-The [[Succubus Costume|succubus skinsuit]] is a costume for [[Alexandra Rose Blackwell|Alexandra]] in the form of a full-body suit that covers [[Alexandra Rose Blackwell|Alexandra]]'s entire Bane form, made from a red skin-like silicone material.
+The [[Succubus Costume|succubus skinsuit]] is a costume for [[Alexandra Rose Blackwell|Alexandra]] in the form of a full-body suit that [[covers]] [[Alexandra Rose Blackwell|Alexandra]]'s entire Bane form, made from a red skin-like silicone material.
 
 Once fully worn, it makes [[Alexandra Rose Blackwell|Alexandra]] appear like an obscene female lust demon.
 ## Physical Appearance

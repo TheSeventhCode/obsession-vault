@@ -46,7 +46,7 @@ From a fleeting idea by [[Alexandra Rose Blackwell|Alexandra]] after seeing her 
 
 Furthermore, she has also embedded a golden [[Slave Collar|ownership collar]] around her neck with the engraving “**MIND • BODY • SOUL • FOREVER BOUND IN LOVE TO MY VESSEL**” instead, mirroring [[Alexandra Rose Blackwell|Alexandra]]'s own collar.
 
-[[Lumina]] then adds an extremely loose, white latex dress to her angelic form. The sleeveless golden accented dress, with an open back for her wings, barely covers any of her [[Figure Enhancements|extreme proportions]] or genitals, being more a piece of clothing to even further bring forth her divinity _and_ depravity. The dress falls snug around her body, just reaching above her golden nipples, following her extreme waist, and falling seamlessly around her hips and butt.
+[[Lumina]] then adds an extremely loose, white latex dress to her angelic form. The sleeveless golden accented dress, with an open back for her wings, barely [[covers]] any of her [[Figure Enhancements|extreme proportions]] or genitals, being more a piece of clothing to even further bring forth her divinity _and_ depravity. The dress falls snug around her body, just reaching above her golden nipples, following her extreme waist, and falling seamlessly around her hips and butt.
 
 In addition, as complementary pieces to the golden collar around her neck, golden cuffs are embedded around her wrists, biceps, and ankles, permanently part of her white latex skin.
 ## Personality

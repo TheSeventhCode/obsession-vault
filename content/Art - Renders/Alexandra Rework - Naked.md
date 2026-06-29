@@ -1,4 +1,4 @@
-I fully recreated Alexandra's character in DAZ with better shaping and textures.
+I fully recreated [[Alexandra Rose Blackwell|Alexandra]]'s character in DAZ with better shaping and textures.
 
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Alexandra/v4/alex-1/public)
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Alexandra/v4/alex-2/public)

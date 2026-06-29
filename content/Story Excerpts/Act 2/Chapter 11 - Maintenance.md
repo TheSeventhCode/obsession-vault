@@ -338,7 +338,7 @@ We stayed there for a while after that. Just… there.
 
 No command. No procedure yet. No ports opening, no pumps starting, no brutal flood of maintenance fluid being forced through my insides. [[Lumina]] simply kept me held in that impossible place where arousal and love had become the same thing, where the thought of what she was going to do to me later sat hot and bright in my mind, not frightening exactly, not with her wrapped so tightly through me, but heavy. Real. Close.
 
-Her projection lay on top of the [[Living Room Vacuum Bed|vacbed]], white latex against black, her wings spread over me like covers I did not need and yet still wanted. I felt her weight because she decided I would. I felt the slide of her palms over the thick sheets where my breasts bulged through, where my waist vanished inward, where my hips swelled obscene and trapped and hers.
+Her projection lay on top of the [[Living Room Vacuum Bed|vacbed]], white latex against black, her wings spread over me like [[covers]] I did not need and yet still wanted. I felt her weight because she decided I would. I felt the slide of her palms over the thick sheets where my breasts bulged through, where my waist vanished inward, where my hips swelled obscene and trapped and hers.
 
 *You are thinking too hard again,* she murmured.
 

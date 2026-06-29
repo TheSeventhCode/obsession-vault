@@ -88,7 +88,7 @@ But still fundamentally *me* in ways that would vanish forever once we began.
 
 I slid trembling fingertips down my abdomen, feeling the slight distension from the massive devices filling my digestive tract—the [[anal plug]]'s inflation visible through compressed flesh, the [[vaginal insert]]'s presence detectable in the way my lower belly curved differently. My touch grazed the smooth [[pelvis shell]] covering my genitals, hiding the permanent intruders beneath a facade of normalcy soon to be erased.
 
-Lower still. The deconstructed remnants of my feet, currently wrapped in their protective covers, barely recognizable as human anatomy. Needle-points no wider than my fingertips, bearing my entire weight.
+Lower still. The deconstructed remnants of my feet, currently wrapped in their protective [[covers]], barely recognizable as human anatomy. Needle-points no wider than my fingertips, bearing my entire weight.
 
 Every surgery. Every modification. Every piece of humanity sacrificed.
 

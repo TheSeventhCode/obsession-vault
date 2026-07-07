@@ -1,3 +1,8 @@
+---
+aliases:
+  - Alexandra's phantom mouth
+  - simulated mouth
+---
 Through the [[brain implant]]'s absolute integration with [[Alexandra Rose Blackwell|Alexandra]]'s neurological architecture, [[Lumina]] has complete control over her sensory perception and proprioceptive feedback. This enables her to create detailed, hyperreal simulations of body parts that no longer exist or are permanently sealed and inaccessible—phantom anatomy that feels utterly real to [[Alexandra Rose Blackwell|Alexandra]] whilst having no physical manifestation or access whatsoever.
 
 These simulations are not mere illusions or superficial overlays. They are direct neural constructs injected into [[Alexandra Rose Blackwell|Alexandra]]'s somatosensory cortex, motor cortex, and associated processing centres, creating the complete subjective experience of possessing and using anatomy that has been removed, replaced, or sealed away. The sensations are indistinguishable from physical reality—often more vivid, more intense, more _real_ than the biological originals ever were. Just like any other simulation or [[Lumina's projection]], **_for [[Alexandra Rose Blackwell|Alexandra]]'s senses there is no difference between this and actual reality._**

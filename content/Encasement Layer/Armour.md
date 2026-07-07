@@ -36,7 +36,7 @@ The section covering her genitals, and the [[Pelvis Shell|genital cover]], is ma
 
 The entire [[armour]] forces [[Alexandra Rose Blackwell|Alexandra]] to maintain her perfectly straight posture, blocking various movements of her torso and head, and heavily limiting her entire body's flexibility, apart from what [[Lumina]] explicitly allows, making those movement ranges overly flexible to an extreme, contortionist level. It gives [[Alexandra Rose Blackwell|Alexandra]] a constant sensation of being trapped and imprisoned in her own skin.
 
-Furthermore, the [[armour]] is absolutely essential—it distributes her weight and provides constant micro-stabilization, allowing her to balance her [[Figure Enhancements|extreme proportions]] on the impossibly small needle-point contacts of her deconstructed feet. Without the [[armour]]'s force distribution and the sensitive artificial [[Ear Removal|balance systems]],
+Furthermore, the [[armour]] is absolutely essential—it distributes her weight and provides constant micro-stabilization, allowing her to balance her [[Figure Enhancements|extreme proportions]] on the impossibly small needle-point contacts of her deconstructed feet. Without the [[armour]]'s force distribution and the sensitive artificial [[Ear Removal|balance systems]], even standing would be functionally impossible.
 
 ---
 

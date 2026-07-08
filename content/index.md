@@ -31,3 +31,5 @@ https://discord.gg/X3n7bBbrfg
 Welcome, and feel free to explore whatever interests you.
 
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/Pavilion%20Cover/public)
+
+You can download the latest version of this compendium as an Obsidian vault here: [2026-07-08.zip](https://s3.theseventhcode.tech/files/TheSeventhCode/Obsession%20and%20Servitude/archives/2026-07-08.zip)

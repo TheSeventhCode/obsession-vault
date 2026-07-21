@@ -5,7 +5,20 @@ import * as Component from "./quartz/components"
 export const sharedPageComponents: SharedLayout = {
   head: Component.Head(),
   header: [],
-  afterBody: [],
+  afterBody: [
+    Component.ConditionalRender({
+      component: Component.RecentNotes({
+        title: "Recently updated",
+        limit: 40,
+        showTags: true,
+        filter: (f) =>
+          f.slug !== "Latest-Updates" &&
+          f.slug !== "index" &&
+          !f.slug?.endsWith("/index"),
+      }),
+      condition: (page) => page.fileData.slug === "Latest-Updates",
+    }),
+  ],
   footer: Component.Footer({
     links: {
       GitHub: "https://github.com/jackyzha0/quartz",

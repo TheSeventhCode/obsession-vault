@@ -24,6 +24,8 @@ The entire scenario was mostly developed by my throwing together almost every fe
 
 If you haven’t, this wiki still works as a complete reference for understanding the universe on its own terms.
 
+For a list of recently changed notes, see [[Latest Updates]].
+
 If you're interested and want to follow updates, share and discuss ideas, or just talk with like-minded people, you can join a small discord server I made for this purpose:
 
 https://discord.gg/X3n7bBbrfg

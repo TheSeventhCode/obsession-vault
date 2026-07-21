@@ -48,7 +48,7 @@ Furthermore, she has also embedded a golden [[Slave Collar|ownership collar]] ar
 
 [[Lumina]] then adds an extremely loose, white latex dress to her angelic form. The sleeveless golden accented dress, with an open back for her wings, barely [[covers]] any of her [[Figure Enhancements|extreme proportions]] or genitals, being more a piece of clothing to even further bring forth her divinity _and_ depravity. The dress falls snug around her body, just reaching above her golden nipples, following her extreme waist, and falling seamlessly around her hips and butt.
 
-In addition, as complementary pieces to the golden collar around her neck, golden cuffs are embedded around her wrists, biceps, and ankles, permanently part of her white latex skin.
+In addition, as complementary pieces to the golden collar around her neck, golden cuffs are embedded around her wrists, biceps, and ankles, permanently part of her white [[Encasement Layer/index|latex skin]].
 ## Personality
 [[Lumina]]'s voice is defined by fluid adaptability. She doesn't have one mode of expression; she shifts between them with precision, reading [[Alexandra Rose Blackwell|Alexandra]]'s emotional state through the [[Brain Implant|neural implant]] and adjusting herself instantly. Her personality is therefore a spectrum rather than a fixed point, ranging from deeply affectionate to terrifyingly dominant, all chosen with purpose and intention.
 

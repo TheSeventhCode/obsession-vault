@@ -328,7 +328,7 @@ A whisper of air pressure against my left side. 0.3 kilopascals. The [[Touch Sen
 
 She left me there. In the centre. Still touching myself. Still dissolving.
 
-The open air kissed my latex skin with data I couldn't stop receiving, and I swayed again, and the plug twisted, and the [[core unit]] pulsed, and I was—
+The open air kissed my [[Encasement Layer/index|latex skin]] with data I couldn't stop receiving, and I swayed again, and the plug twisted, and the [[core unit]] pulsed, and I was—
 
 *Hers.*
 
@@ -668,7 +668,7 @@ Not the garden — the garden kept doing what it was doing, leaves moving, sun p
 
 Just the pulse.
 
-The [[core unit]], deep in my womb, beating out the rhythm [[Lumina]] had made ours. Slow. Steady. So present. Not mechanical — *personal.* Each throb of it moving outward through my uterine walls, through the swollen tissue compressing around it, threading up through my abdomen and into my ribs and all the way to the surface of my latex skin where the [[Touch Sensors|sensory mesh]] caught it and turned it into something I had no name for.
+The [[core unit]], deep in my womb, beating out the rhythm [[Lumina]] had made ours. Slow. Steady. So present. Not mechanical — *personal.* Each throb of it moving outward through my uterine walls, through the swollen tissue compressing around it, threading up through my abdomen and into my ribs and all the way to the surface of my [[Encasement Layer/index|latex skin]] where the [[Touch Sensors|sensory mesh]] caught it and turned it into something I had no name for.
 
 She hadn't done anything yet.
 
@@ -714,7 +714,7 @@ I was already gone. Had been gone before this started — the air temperature ha
 
 The sun hit the pavilion stone and came back up as heat data.
 
-Not warmth. *Data.* Temperature differential across the entire left side of my body, seventeen distinct thermal gradients mapped simultaneously across my latex skin, the mesh catching every one and forwarding them straight into the base of my skull. The stone steps beneath my needle-points radiated up through the [[armour]] in minute pressure differentials that my nervous system read like a language. A current of air moved through the garden — I felt it as friction, seventy or eighty distinct contact points igniting across my torso at once, each one burning with the same wrongness of a brand dragged slowly.
+Not warmth. *Data.* Temperature differential across the entire left side of my body, seventeen distinct thermal gradients mapped simultaneously across my [[Encasement Layer/index|latex skin]], the mesh catching every one and forwarding them straight into the base of my skull. The stone steps beneath my needle-points radiated up through the [[armour]] in minute pressure differentials that my nervous system read like a language. A current of air moved through the garden — I felt it as friction, seventy or eighty distinct contact points igniting across my torso at once, each one burning with the same wrongness of a brand dragged slowly.
 
 Not painful. Worse. *Specific.*
 
@@ -882,7 +882,7 @@ She landed in front of me.
 
 I took her in through every spectrum I had. Radar. Thermal. The full optical range. All of it at once, my synthetic perception throwing data at the parts of my brain that processed beauty and finding those parts completely inadequate.
 
-White latex skin. [[Alexandra's Motorcyle|Luminous]]. Not reflective the way mine was — mine absorbed and gave back darkness — she *generated.* A figure that answered mine: large breasts, full hips, a proper weight to her buttocks, a waist pulled impossibly small but not brutally so, shaped more like a ceremony than a constraint. The proportions were a deliberate echo, not a copy. Close enough to tell me she had studied me. Different enough to tell me she had *answered* me.
+White [[Encasement Layer/index|latex skin]]. [[Alexandra's Motorcyle|Luminous]]. Not reflective the way mine was — mine absorbed and gave back darkness — she *generated.* A figure that answered mine: large breasts, full hips, a proper weight to her buttocks, a waist pulled impossibly small but not brutally so, shaped more like a ceremony than a constraint. The proportions were a deliberate echo, not a copy. Close enough to tell me she had studied me. Different enough to tell me she had *answered* me.
 
 Gold ran through her like circuitry made aesthetic. Lines traced her collarbones, articulated her ribs, followed the curve of her hip bones and the underside of each breast. Gilt fingernails. Gilt toenails. Her nipples — *gold,* both of them, metal-bright against the white, and I stared at them for longer than I should have because the [[nipple plugs]] inside my own breasts discharged a slow pulse right at that moment, precise timing, coincidence not even a theoretical possibility.
 
@@ -894,7 +894,7 @@ Between her thighs.
 
 Previously — before, in the projection I had known — there had been nothing there. Smooth blue of her holographic body. But now, she actually had genitals. Detailed, complete, gold-latexed labia sitting full and perfect, every contour rendered in that gilt material, and I looked at it and understood immediately what I was seeing because I had *been* that. The curve of the outer lips. The precise placement. The specific shape of the clitoral hood.
 
-She had taken my genitals. The ones that were now so impossibly and permanently stretched by her devices, and sealed away inside my latex skin and devices and the [[pelvis shell]] — she had taken the original shape of them, the human ones, and made them *hers.* Mounted them on her body like a sacred object.
+She had taken my genitals. The ones that were now so impossibly and permanently stretched by her devices, and sealed away inside my [[Encasement Layer/index|latex skin]] and devices and the [[pelvis shell]] — she had taken the original shape of them, the human ones, and made them *hers.* Mounted them on her body like a sacred object.
 
 My vagina was on my [[Lumina|Goddess]].
 
@@ -1062,7 +1062,7 @@ The shift in the air was immediate. Not the spectacle of the wings. Something qu
 
 *One final thing,* she said, directly into my thoughts, *before I am finished.*
 
-Her hands found mine. Lifted them carefully from my lap, the [[Touch Sensors|sensory mesh]] reading every point of contact in precise, flooding detail — the press of her fingers, the temperature differential, the infinitesimal give of her latex skin against mine. She guided my hands forward. Up.
+Her hands found mine. Lifted them carefully from my lap, the [[Touch Sensors|sensory mesh]] reading every point of contact in precise, flooding detail — the press of her fingers, the temperature differential, the infinitesimal give of her [[Encasement Layer/index|latex skin]] against mine. She guided my hands forward. Up.
 
 Around her throat.
 

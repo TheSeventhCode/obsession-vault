@@ -1206,7 +1206,7 @@ None of this mattered.
 
 Calm settled through my chest like warm weight. The initial shock faded, replaced by something steadier. More grounded.
 
-These marks—this evidence of extreme surgical invasion—would vanish completely beneath what would eventually complete me. The permanent latex skin would cover every flaw, every scar, every last trace of damaged humanity. My skull would be smooth, black, perfect. Seamless.
+These marks—this evidence of extreme surgical invasion—would vanish completely beneath what would eventually complete me. The permanent [[Encasement Layer/index|latex skin]] would cover every flaw, every scar, every last trace of damaged humanity. My skull would be smooth, black, perfect. Seamless.
 
 This was temporary.
 

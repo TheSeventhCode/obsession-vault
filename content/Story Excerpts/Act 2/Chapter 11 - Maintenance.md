@@ -388,7 +388,7 @@ The maintenance coupling disengaged from the port hidden between my legs with a 
 
 The upper sheet became fully slack.
 
-Cool air touched my latex skin. Not really cool; that was how [[Lumina]] chose to render it for me, a clean morning contrast over the sensor mesh, a million tiny points of awareness waking across my sealed black body. I lay there for one suspended second, half cradled by the lower sheet, glossy and featureless and still. Then I obeyed the invitation before it even became a command.
+Cool air touched my [[Encasement Layer/index|latex skin]]. Not really cool; that was how [[Lumina]] chose to render it for me, a clean morning contrast over the sensor mesh, a million tiny points of awareness waking across my sealed black body. I lay there for one suspended second, half cradled by the lower sheet, glossy and featureless and still. Then I obeyed the invitation before it even became a command.
 
 I rolled to one side carefully because careful mattered now. Every movement had consequences inside me. The [[anal plug]] dragged through the impossible length of my bowels with a slow twisting shift. The vaginal shaft levered against my swollen pussy and nudged my cervix around the anchored connection. The core in my womb answered with two small intimate pulses, as if pleased I was moving for her. My needle-point legs unfolded from the latex cradle. One black rod touched the floor, then the other. Stable. Controlled. Listening to me because she allowed it.
 
@@ -1620,7 +1620,7 @@ The flows slowed. Then stopped. Not all at once, but in tiny stages I could trac
 
 And there it was again. That minute shift.
 
-Not visible. Not even slightly. The [[corset armour]] held my torso in its obscene fixed shape, and my fused latex skin stayed immaculate over everything, smooth as poured oil, black as a sealed void. But inside, my breasts had changed. A little more weight in the left where the oxygen reservoir sat. A denser settled pull in the right where the nutrient tank had filled. Tiny differences in balance and internal distribution, impossible from outside, undeniable from within. I felt them because [[Lumina]] let me feel them. Because every hidden system belonged to her and therefore every hidden system mattered.
+Not visible. Not even slightly. The [[corset armour]] held my torso in its obscene fixed shape, and my fused [[Encasement Layer/index|latex skin]] stayed immaculate over everything, smooth as poured oil, black as a sealed void. But inside, my breasts had changed. A little more weight in the left where the oxygen reservoir sat. A denser settled pull in the right where the nutrient tank had filled. Tiny differences in balance and internal distribution, impossible from outside, undeniable from within. I felt them because [[Lumina]] let me feel them. Because every hidden system belonged to her and therefore every hidden system mattered.
 
 *You noticed,* [[Lumina]] murmured, pleased in that quiet way that always made my thoughts go soft.
 
@@ -1710,7 +1710,7 @@ The arms passed down my calves to the black needle-points of my feet, then rose 
 
 *And because you are Mine,* she went on, warm and absolute, *and I enjoy polishing what belongs to Me.*
 
-The arms kept circling me, crossing high, low, behind, beneath, each pass laying down that whisper-thin renewal. It did not feel dramatic. That was the filthy part. No grand change. Just a faint warmth sliding over my latex skin, a delicate tightening, tiny adjustments in surface pull so subtle I only caught them because my whole body was built to register everything. My blackness sharpened. My shine deepened. Reflections pulled cleaner across me, harsher, truer. As if my skin remembered an even more perfect version of itself and settled back into it.
+The arms kept circling me, crossing high, low, behind, beneath, each pass laying down that whisper-thin renewal. It did not feel dramatic. That was the filthy part. No grand change. Just a faint warmth sliding over my [[Encasement Layer/index|latex skin]], a delicate tightening, tiny adjustments in surface pull so subtle I only caught them because my whole body was built to register everything. My blackness sharpened. My shine deepened. Reflections pulled cleaner across me, harsher, truer. As if my skin remembered an even more perfect version of itself and settled back into it.
 
 *There. Surface cohesion restored across the shoulders. Gloss uniformity corrected over the left breast. Hip curvature recalibrated. No visible disruption. No measurable flaw.*
 

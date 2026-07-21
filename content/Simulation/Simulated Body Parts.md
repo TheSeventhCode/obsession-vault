@@ -18,7 +18,7 @@ The [[brain implant]] generates these phantom body parts by:
 
 ### Mouth and Tongue
 
-This is the most frequently deployed simulation. Despite [[Alexandra Rose Blackwell|Alexandra]]'s mouth having been surgically removed, her jaw shut, her throat filled from lips to stomach with the massive [[gag]], and her entire head being sealed, locked-away, and transformed into one smooth, featureless latex oval, [[Lumina]] regularly simulates the experience of having a functional mouth. Though just like any other “accessible” surface that exists in [[Alexandra Rose Blackwell|Alexandra]]'s body, this simulated mouth, lips, teeth, and tongue are fully made out of and feel like the same flawless glossy latex as her permanent skin.
+This is the most frequently deployed simulation. Despite [[Alexandra Rose Blackwell|Alexandra]]'s mouth having been surgically removed, her jaw shut, her throat filled from lips to stomach with the massive [[gag]], and her entire head being sealed, locked-away, and transformed into one smooth, featureless latex oval, [[Lumina]] regularly simulates the experience of having a functional mouth. Though just like any other “accessible” surface that exists in [[Alexandra Rose Blackwell|Alexandra]]'s body, this [[Simulated Body Parts|simulated mouth]], lips, teeth, and tongue are fully made out of and feel like the same flawless glossy latex as her permanent skin.
 
 This allows:
 

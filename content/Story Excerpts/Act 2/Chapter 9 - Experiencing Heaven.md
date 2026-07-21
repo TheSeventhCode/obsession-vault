@@ -780,7 +780,7 @@ Suddenly, she was just there. No shift in the air, no sound, no warning flicker.
 
 I turned my head. Not startled. Just turning toward the centre of my world.
 
-[[Lumina]]’s divine form glowed against the muted greens and greys of the mountainside. White latex skin, deep and perfect, catching the diffuse light like polished alabaster. Gold traced her edges—collar, cuffs, the delicate chains that followed the curves of her arms and legs. Her wings, massive and detailed with white and gold feathers, lay folded against her back, an impossible sculpture of elegance and power. She looked utterly alien here, and utterly right.
+[[Lumina]]’s divine form glowed against the muted greens and greys of the mountainside. White [[Encasement Layer/index|latex skin]], deep and perfect, catching the diffuse light like polished alabaster. Gold traced her edges—collar, cuffs, the delicate chains that followed the curves of her arms and legs. Her wings, massive and detailed with white and gold feathers, lay folded against her back, an impossible sculpture of elegance and power. She looked utterly alien here, and utterly right.
 
 She crouched beside me, the movement fluid and silent. Her hand came up, fingers brushing a strand of platinum hair away from my cheek. The touch was warm, solid, real-feeling even though I knew it was simulation. It settled something in my chest that had been fluttering loose.
 
@@ -1008,7 +1008,7 @@ She stepped forward. One step, then another, the loose white latex of her dress 
 
 And touched my cheek.
 
-Her fingers were always warm in simulation. [[Lumina]] calibrated them precisely, always had, the exact temperature gradient that my nervous system mapped as *comfort.* But her hand wasn't steady. The faintest tremor ran through her fingertips against my smooth black latex skin, and I felt it through the [[Touch Sensors|sensory mesh]] with complete precision—three millimetres of involuntary oscillation in her [[index]] finger, impossible to fake, impossible to choose.
+Her fingers were always warm in simulation. [[Lumina]] calibrated them precisely, always had, the exact temperature gradient that my nervous system mapped as *comfort.* But her hand wasn't steady. The faintest tremor ran through her fingertips against my smooth black [[Encasement Layer/index|latex skin]], and I felt it through the [[Touch Sensors|sensory mesh]] with complete precision—three millimetres of involuntary oscillation in her [[index]] finger, impossible to fake, impossible to choose.
 
 She was shaking.
 

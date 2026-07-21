@@ -28,7 +28,7 @@ The following conversions and processes are done by these [[nanobots]]:
 - [[Blood and Marrow Conversion]]
 - [[Neural and Brain Conversion]]
 
-By the completion of [[Alexandra Rose Blackwell|Alexandra]]'s transformation by the [[nanobots]], nothing remains of her human biology. Her black latex skin has fused with synthetic systems beneath, blood vessels that now carry [[Lumina]]'s holy essence merged and entrenched into the living latex.
+By the completion of [[Alexandra Rose Blackwell|Alexandra]]'s transformation by the [[nanobots]], nothing remains of her human biology. Her black [[Encasement Layer/index|latex skin]] has fused with synthetic systems beneath, blood vessels that now carry [[Lumina]]'s holy essence merged and entrenched into the living latex.
 
 The [[nanobots]] now constitute a significant portion of [[Alexandra Rose Blackwell|Alexandra]]'s transformed being—billions of microscopic machines flowing through her golden synthetic bloodstream, nestled with her carbon-fibre bones, and integrated throughout her neural pathways. They continuously monitor and repair [[Alexandra Rose Blackwell|Alexandra]]'s remaining biological components on a cellular level, replacing damaged tissue with optimized synthetic alternatives that perfectly mimic organic function while surpassing its limitations. This will eventually result in not a single biological cell being left inside [[Alexandra Rose Blackwell|Alexandra]]'s transformed synthetic body.
 
@@ -55,4 +55,4 @@ In quiet moments, when [[Alexandra Rose Blackwell|Alexandra]] accesses her remai
 ## Physical Appearance
 Even after the complete [[Nanobots|nanobot conversion]], [[Alexandra Rose Blackwell|Alexandra]]'s bane appearance doesn't change at all, nothing hinting at the extreme, second, fundamental transformation that has occurred within this shiny black anonymous being.
 
-Only when [[Lumina]] wants, do [[Alexandra Rose Blackwell|Alexandra]]'s golden veins appear through her shiny black latex skin.
+Only when [[Lumina]] wants, do [[Alexandra Rose Blackwell|Alexandra]]'s golden veins appear through her shiny black [[Encasement Layer/index|latex skin]].

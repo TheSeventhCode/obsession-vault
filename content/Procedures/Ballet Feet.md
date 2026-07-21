@@ -17,7 +17,7 @@ Each needle-point terminus is roughly the diameter of a small fingertip—approx
 
 She now balances entirely on these two pinpoint contacts. Her feet do not flex, do not adjust. Every step is a deliberate act of controlled descent onto an area smaller than a coin. These contact points are so small, that even the smallest moment of imbalance causes [[Alexandra Rose Blackwell|Alexandra]] to stumble and fall, her body incapable of moving without constantly maintaining _perfect_ balance.
 
-Once her Bane transformation is complete and the [[armour]] feet are fitted, the remaining biological structure is fully encased. The smooth black latex skin makes the transition from calf to needle-point utterly seamless. Her legs appear as elegant, tapering rods ending in impossibly sharp points. There is no hint of humanity left—no toes, no heels, no human foot shape whatsoever.
+Once her Bane transformation is complete and the [[armour]] feet are fitted, the remaining biological structure is fully encased. The smooth black [[Encasement Layer/index|latex skin]] makes the transition from calf to needle-point utterly seamless. Her legs appear as elegant, tapering rods ending in impossibly sharp points. There is no hint of humanity left—no toes, no heels, no human foot shape whatsoever.
 
 She moves with eerie silence, each step precise and floating, as if she glides rather than walks. The sound-absorbing [[outer encasement layer]] ensures not even the faintest click of contact. Her gait is slow, deliberate, hypnotic—a continuous exercise in balance assisted by the [[armour]]'s force distribution, artificial muscle enhancements, and her new [[Ear Removal|balance systems]].
 ## Function

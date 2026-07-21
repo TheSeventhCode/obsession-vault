@@ -518,7 +518,7 @@ Her voice emerged simultaneously through our neural link and simulated breath ag
 
 My spiralling thoughts stuttered. Caught. Slowed.
 
-*Your face. Your modifications. These temporary states—they're merely steps along the path.* Her mental voice wrapped around my consciousness with deliberate tenderness whilst her reflection met my [[synthetic eyes]] in the mirror. *Once the final encasement is complete, once the permanent latex skin has sealed over every nanometre of your transformed flesh, none of these changes will ever see daylight again.*
+*Your face. Your modifications. These temporary states—they're merely steps along the path.* Her mental voice wrapped around my consciousness with deliberate tenderness whilst her reflection met my [[synthetic eyes]] in the mirror. *Once the final encasement is complete, once the permanent [[Encasement Layer/index|latex skin]] has sealed over every nanometre of your transformed flesh, none of these changes will ever see daylight again.*
 
 I leaned back instinctively—seeking the comfort of her presence, even whilst recognising the manipulation woven through every word.
 

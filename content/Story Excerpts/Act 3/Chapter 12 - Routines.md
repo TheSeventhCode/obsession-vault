@@ -426,7 +426,7 @@ Her presence flooded through the link before I could finish the thought. Not gen
 
 *I felt it,* [[Lumina]] said, and her voice was brilliant, blazing. *I felt the shift. My darling girl, you—*
 
-She materialised in front of me. White latex skin catching the afternoon light, wings half-spread, eyes burning gold and black with something that looked almost like pride but felt deeper, hotter, more possessive than pride ever could.
+She materialised in front of me. White [[Encasement Layer/index|latex skin]] catching the afternoon light, wings half-spread, eyes burning gold and black with something that looked almost like pride but felt deeper, hotter, more possessive than pride ever could.
 
 *Come here.*
 
@@ -830,7 +830,7 @@ Camera feeds burst into my perception. [[Lumina]] injected a dozen angles into m
 
 Thirty per cent. Thirty-five. 
 
-I laughed. A soundless, fractured mental static of pure euphoria. I was invulnerable. The fused latex skin rejected the dust, the sweat, the very concept of imperfection. I was a sealed, indestructible living altar and my [[Lumina|Goddess]] was riding inside my womb, her [[core unit]] pulsing against my uterine walls in time with my synthetic stride. 
+I laughed. A soundless, fractured mental static of pure euphoria. I was invulnerable. The fused [[Encasement Layer/index|latex skin]] rejected the dust, the sweat, the very concept of imperfection. I was a sealed, indestructible living altar and my [[Lumina|Goddess]] was riding inside my womb, her [[core unit]] pulsing against my uterine walls in time with my synthetic stride. 
 
 *Show me your limits, vessel.*
 
@@ -1032,7 +1032,7 @@ The power surged. My biological muscles shrieked under the sudden, violent load,
 
 *Isolating anterior deltoid pathways. Suppressing organic panic responses. Rerouting excess kinetic bleed into the dorsal synthetic mesh. Hold.*
 
-[[Lumina]]’s presence invaded my nervous system, a cold, divine scalpel. She manually severed the panicked biological feedback, smoothing the crossover until the synthetic fibres beneath my latex skin engaged in perfect unison. The black latex over my arms and shoulders tightened, the contours of the [[Enhancement Layer|artificial muscles]] rippling into sharp, athletic definition. The shaking stopped.
+[[Lumina]]’s presence invaded my nervous system, a cold, divine scalpel. She manually severed the panicked biological feedback, smoothing the crossover until the synthetic fibres beneath my [[Encasement Layer/index|latex skin]] engaged in perfect unison. The black latex over my arms and shoulders tightened, the contours of the [[Enhancement Layer|artificial muscles]] rippling into sharp, athletic definition. The shaking stopped.
 
 I locked my elbows, pressing the massive instrument high above my [[helmet]].
 
@@ -1056,7 +1056,7 @@ The grand piano hovered above my [[helmet]], a half-ton canopy of polished mahog
 
 *Open your flesh. Accept the stretch. You are built for this load.*
 
-My [[Enhancement Layer|synthetic muscles]] hummed, a low-frequency vibration radiating through my latex skin. The [[corset armour]] locked my spine into a rigid, hyperextended arch, forcing my gigantic breasts forward and my massive ass out. The piano’s mass pressed down through my shoulders, travelling through the carbon-Kevlar mesh, down my legs, and terminating at the two coin-sized contact points on the floor. Without the [[armour]]’s force distribution, my biological bones would have pulverised into dust.
+My [[Enhancement Layer|synthetic muscles]] hummed, a low-frequency vibration radiating through my [[Encasement Layer/index|latex skin]]. The [[corset armour]] locked my spine into a rigid, hyperextended arch, forcing my gigantic breasts forward and my massive ass out. The piano’s mass pressed down through my shoulders, travelling through the carbon-Kevlar mesh, down my legs, and terminating at the two coin-sized contact points on the floor. Without the [[armour]]’s force distribution, my biological bones would have pulverised into dust.
 
 *Perfect. You can put it down, my love.*
 
@@ -1068,7 +1068,7 @@ I bent my knees, descending in a controlled, agonisingly slow crouch. The descen
 
 *Enhancement threshold to forty-five percent. Route power through the dorsal and lateral bundles.*
 
-The surge was instantaneous. My latex skin tightened, the artificial fibres swelling beneath the surface, carving deep, athletic striations into my arms and thighs. I hoisted the beam. It was heavy, dense, but manageable. I walked. I turned. I balanced on my left needle-point, pivoting a full hundred and eighty degrees while the steel rested on my shoulder. The [[Touch Sensors|sensory mesh]] mapped the exact pressure of the rusted metal against my flawless black skin.
+The surge was instantaneous. My [[Encasement Layer/index|latex skin]] tightened, the artificial fibres swelling beneath the surface, carving deep, athletic striations into my arms and thighs. I hoisted the beam. It was heavy, dense, but manageable. I walked. I turned. I balanced on my left needle-point, pivoting a full hundred and eighty degrees while the steel rested on my shoulder. The [[Touch Sensors|sensory mesh]] mapped the exact pressure of the rusted metal against my flawless black skin.
 
 *Sixty percent. Adapt.*
 
@@ -1202,7 +1202,7 @@ The mantra flared, loud and desperate, drowning out the remaining sparks of my f
 
 ---
 
-Mid-morning sun baked the white Roman columns of the [[Alexandra's Mansion|mansion]]’s back entrance, the light snapping off my ultra-black latex skin in blinding, liquid-mercury flashes. I launched into the air.
+Mid-morning sun baked the white Roman columns of the [[Alexandra's Mansion|mansion]]’s back entrance, the light snapping off my ultra-black [[Encasement Layer/index|latex skin]] in blinding, liquid-mercury flashes. I launched into the air.
 
 Silent. Utterly silent.
 
@@ -1240,7 +1240,7 @@ My thoughts hitched, the sheer, terrifying ease of it short-circuiting my panic.
 
 *I know, my sweet vessel.*
 
-[[Lumina]]’s projection phased into existence right beside my inverted face. Her pristine white latex skin gleamed in the sunlight, the golden chains draped across her absurd, perfect curves catching the light. She crouched, bringing her face level with my smooth, featureless [[helmet]]. Her golden irises blazed with a terrifying mix of divine pride and wicked, insatiable satisfaction.
+[[Lumina]]’s projection phased into existence right beside my inverted face. Her pristine white [[Encasement Layer/index|latex skin]] gleamed in the sunlight, the golden chains draped across her absurd, perfect curves catching the light. She crouched, bringing her face level with my smooth, featureless [[helmet]]. Her golden irises blazed with a terrifying mix of divine pride and wicked, insatiable satisfaction.
 
 *The reprogramming is complete,* she murmured, her voice a silky, commanding weight inside my skull. *Your instincts and reflexes have been fully rewritten to match your form. The signals from my sensors are no longer foreign inputs. They are you. As innate as your heartbeat once was.*
 
@@ -1566,7 +1566,7 @@ The glass locked to my skin.
 
 I released. Locked. Released. It felt as natural as curling my actual finger. A simple, intuitive flex of my will.
 
-I reached high, locking my right hand. My synthetic bicep engaged, the artificial fibres corded beneath my latex skin, and I hauled my full mass upward. My beachball-sized breasts smashed against the mirror. The thick, squishy flesh flattened, my hypersensitive nipples dragging hard across the unforgiving glass. A sharp, whining static filled my mind as the friction tore at my swollen peaks.
+I reached high, locking my right hand. My synthetic bicep engaged, the artificial fibres corded beneath my [[Encasement Layer/index|latex skin]], and I hauled my full mass upward. My beachball-sized breasts smashed against the mirror. The thick, squishy flesh flattened, my hypersensitive nipples dragging hard across the unforgiving glass. A sharp, whining static filled my mind as the friction tore at my swollen peaks.
 
 I reached higher with my left hand. Locked. Pulled.
 
@@ -1820,7 +1820,7 @@ The vacuum pump engaged. A deep, muffled thrum vibrated through the steel frame 
 
 The heavy sheets collapsed inward. Negative pressure seized my body, crushing the space between my skin and the rubber. My massive breasts flattened a degree and spread, the squishy synthetic flesh compressing across my chest. The brutal 30-centimetre cinch of my corset deepened, my waist caving inward under the crushing force. My wide hips and gigantic buttocks squished outward, the dense rubber forcing my absurd proportions into a smoothed-out, vacuum-packed silhouette.
 
-Every millimetre of my ultra-black latex skin pressed flush against the compressing sheets. The [[Touch Sensors|sensory mesh]] flooded my cortex with the uniform weight of the vacuum. I couldn't twitch a finger. Couldn't roll my hips. The monstrous devices inside my guts ground against my swollen tissues, trapped and compressed by the unyielding pressure.
+Every millimetre of my ultra-black [[Encasement Layer/index|latex skin]] pressed flush against the compressing sheets. The [[Touch Sensors|sensory mesh]] flooded my cortex with the uniform weight of the vacuum. I couldn't twitch a finger. Couldn't roll my hips. The monstrous devices inside my guts ground against my swollen tissues, trapped and compressed by the unyielding pressure.
 
 *Perfect,* [[Lumina]] purred, her projection settling onto the taut surface of my chest. *My beautiful, helpless mattress.*
 
@@ -2036,7 +2036,7 @@ I forced my hips into the obscene, rolling figure-eight required to move. Every 
 
 *Left foot. Right foot. Hold.*
 
-I balanced on the right point, lifting my left. The corset crushed my thirty-centimetre waist, forcing my massive breasts forward and my gigantic ass out. The barbed rings in my nipples dragged against the taut latex skin, the metal eggs buried in my milk ducts humming with a low, threatening voltage.
+I balanced on the right point, lifting my left. The corset crushed my thirty-centimetre waist, forcing my massive breasts forward and my gigantic ass out. The barbed rings in my nipples dragged against the taut [[Encasement Layer/index|latex skin]], the metal eggs buried in my milk ducts humming with a low, threatening voltage.
 
 A random electrical shock snapped from the [[vaginal insert]], arcing straight through my pierced clitoris.
 
@@ -2344,7 +2344,7 @@ A warmth bloomed at the base of my skull, right where the neural web fused with 
 
 Her voice echoed through my mind, soft and resonant, vibrating against the inside of my skull.
 
-I stood in the centre of the [[living room]]. The massive mirror wall reflected the garden outside, but the glass was dominated by the two figures standing before it. [[Lumina]]’s projection hovered at my side, her pristine white latex skin and golden chains catching the afternoon sun. And then there was me.
+I stood in the centre of the [[living room]]. The massive mirror wall reflected the garden outside, but the glass was dominated by the two figures standing before it. [[Lumina]]’s projection hovered at my side, her pristine white [[Encasement Layer/index|latex skin]] and golden chains catching the afternoon sun. And then there was me.
 
 I stared at my reflection. Stared with a waking mind, for the first time since my psyche had dissolved from [[Lumina]]'s endless training.
 
@@ -2388,7 +2388,7 @@ My right hand lifted, black fingers spreading, and I pressed my palm flat agains
 
 The [[Touch Sensors|sensory mesh]] detonated.
 
-Every microscopic pressure sensor embedded beneath the [[outer encasement layer]] fired at once, translating the contact into a flood of raw data that slammed directly into my parietal lobe. I could feel the heat difference between my hand and the latex skin covering my breast—point-three degrees Celsius. My [[Touch Sensors|sensory mesh]] was so detailed I could feel the individual dust particles trapped between my hand and breast. I would've felt every microscopic texture of my own fingerprints if my own skin hadn't encased and utterly destroyed them as my latex layers and flesh had fused together. I could feel the weight of the breast itself shifting beneath my touch, the synthetic muscle fibres inside flexing to accommodate the pressure, the [[Alternative Air Supply|oxygen tank]] hidden deep within straining against the [[armour]] shell.
+Every microscopic pressure sensor embedded beneath the [[outer encasement layer]] fired at once, translating the contact into a flood of raw data that slammed directly into my parietal lobe. I could feel the heat difference between my hand and the [[Encasement Layer/index|latex skin]] covering my breast—point-three degrees Celsius. My [[Touch Sensors|sensory mesh]] was so detailed I could feel the individual dust particles trapped between my hand and breast. I would've felt every microscopic texture of my own fingerprints if my own skin hadn't encased and utterly destroyed them as my latex layers and flesh had fused together. I could feel the weight of the breast itself shifting beneath my touch, the synthetic muscle fibres inside flexing to accommodate the pressure, the [[Alternative Air Supply|oxygen tank]] hidden deep within straining against the [[armour]] shell.
 
 *[[Lumina|Goddess]]. Fuck—*
 
@@ -2422,7 +2422,7 @@ Her hands slid lower, her fingers threading between mine, and together we traced
 
 The words landed like a physical blow.
 
-My hands slowed. Stopped. Simply rested against my own body, fingers splayed across the latex skin, [[Lumina]]'s hands warm and solid beneath mine.
+My hands slowed. Stopped. Simply rested against my own body, fingers splayed across the [[Encasement Layer/index|latex skin]], [[Lumina]]'s hands warm and solid beneath mine.
 
 I stared at the mirror.
 

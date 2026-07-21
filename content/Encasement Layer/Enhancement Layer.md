@@ -17,6 +17,6 @@ The muscle fibres are connected to the [[Armour|armour layer]] underneath it, re
 
 These [[Enhancement Layer|artificial muscles]] eventually become so natural to [[Alexandra Rose Blackwell|Alexandra]], that they've just become of her muscular system, her mind making no difference between the two.
 ## Physical Appearance
-Although fully encased in more layers, hidden underneath, and integrated into [[Alexandra Rose Blackwell|Alexandra]] new latex skin, when these [[Enhancement Layer|artificial muscles]] are used, they flex enough so that their contours reappear on [[Alexandra Rose Blackwell|Alexandra]]'s shiny latex skin.
+Although fully encased in more layers, hidden underneath, and integrated into [[Alexandra Rose Blackwell|Alexandra]] new [[Encasement Layer/index|latex skin]], when these [[Enhancement Layer|artificial muscles]] are used, they flex enough so that their contours reappear on [[Alexandra Rose Blackwell|Alexandra]]'s shiny [[Encasement Layer/index|latex skin]].
 
 When activated, [[Alexandra Rose Blackwell|Alexandra]]'s entire Bane body suddenly appears far more lean, showing muscle lines throughout her limbs and torso, resulting in an even more striking look when combined with her absurd figure.

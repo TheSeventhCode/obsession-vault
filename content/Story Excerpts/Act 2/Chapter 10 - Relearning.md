@@ -554,7 +554,7 @@ The kiss lingered—soft pressure against sealed latex where a mouth once existe
 
 Three metres above the [[living room]] floor, the [[Living Room Vacuum Bed|vacbed]] hung motionless. Inside, I couldn't move. Couldn't breathe—not that I needed to any more. The thick latex pressed against every centimetre of my encased body, holding me absolutely still whilst [[Lumina]] studied me with those golden-ringed eyes.
 
-Her white latex skin caught the light filtering through the window-wall. Perfect. Divine. The transparency of her dress did nothing to hide the way her body moved when she shifted her weight, settling more comfortably atop my immobilised form.
+Her white [[Encasement Layer/index|latex skin]] caught the light filtering through the window-wall. Perfect. Divine. The transparency of her dress did nothing to hide the way her body moved when she shifted her weight, settling more comfortably atop my immobilised form.
 
 *My [[Lumina|Goddess]]…*
 
@@ -706,7 +706,7 @@ Cool air hit the [[Touch Sensors|sensory mesh]].
 
 *Oh fuck—*
 
-Everything. All at once. The environmental data I'd been mercifully isolated from for the past ten hours slammed back into my nervous system without filter: temperature gradients mapping across every centimetre of black latex skin, microscopic pressure shifts from air currents I couldn't see, the electromagnetic hum of the [[Alexandra's Mansion|mansion]]'s systems registering as tactile vibration.
+Everything. All at once. The environmental data I'd been mercifully isolated from for the past ten hours slammed back into my nervous system without filter: temperature gradients mapping across every centimetre of black [[Encasement Layer/index|latex skin]], microscopic pressure shifts from air currents I couldn't see, the electromagnetic hum of the [[Alexandra's Mansion|mansion]]'s systems registering as tactile vibration.
 
 Too much. Way too fucking much.
 
@@ -724,7 +724,7 @@ That simple separation felt enormous. Like cutting an umbilical cord. The overni
 
 My body didn't move right.
 
-I tried to shift—just a small adjustment, test my range of motion after being vacuum-packed for hours—and my limbs responded wrong. Delayed. Uncoordinated. Like the signals from my brain were travelling through too much interference before reaching the synthetic muscle fibres embedded in my latex skin.
+I tried to shift—just a small adjustment, test my range of motion after being vacuum-packed for hours—and my limbs responded wrong. Delayed. Uncoordinated. Like the signals from my brain were travelling through too much interference before reaching the synthetic muscle fibres embedded in my [[Encasement Layer/index|latex skin]].
 
 *Move. Fucking move.*
 
@@ -782,7 +782,7 @@ Her hands—projection made tangible through the neural link—gripped my waist 
 
 “You can.” Her voice threaded through my mind and what counted now as my ears simultaneously. “Your [[Ear Removal|balance systems]] are online. The [[armour]] is compensating. You just need to trust it.”
 
-Trust what? Trust that these needle-points wouldn't snap? Trust that the [[Enhancement Layer|synthetic muscles]] embedded in my latex skin would catch me before I face-planted into the floor?
+Trust what? Trust that these needle-points wouldn't snap? Trust that the [[Enhancement Layer|synthetic muscles]] embedded in my [[Encasement Layer/index|latex skin]] would catch me before I face-planted into the floor?
 
 Trust *her*.
 
@@ -1204,7 +1204,7 @@ I adjusted. The movement made the [[catheter]] shift inside my urethra, a sharp 
 
 Hold. The plug was fucking me with every tiny sway my body made to stay balanced. The insert vibrated at a low setting, just enough to keep my cunt clenching. The [[nipple plugs]] delivered a steady electric tingle, like someone had lit matches inside my breasts.
 
-Minutes passed. The [[Touch Sensors|sensory mesh]] reported every air current. Dust motes landing on my shoulders felt like hot needles. The temperature gradient from the window to my left registered as a slow burn across my latex skin.
+Minutes passed. The [[Touch Sensors|sensory mesh]] reported every air current. Dust motes landing on my shoulders felt like hot needles. The temperature gradient from the window to my left registered as a slow burn across my [[Encasement Layer/index|latex skin]].
 
 *I am her perfect Bane, her devoted pet—*
 
@@ -1222,7 +1222,7 @@ I held. The wetness pooled. The plug rotated. The insert vibrated. The [[nipple 
 
 *My existence serves her will alone.*
 
-Later, she positioned me beside the large window overlooking the garden. Sunlight streamed through, heating my latex skin. The [[Touch Sensors|sensory mesh]] amplified the warmth until it felt like I was standing in an oven.
+Later, she positioned me beside the large window overlooking the garden. Sunlight streamed through, heating my [[Encasement Layer/index|latex skin]]. The [[Touch Sensors|sensory mesh]] amplified the warmth until it felt like I was standing in an oven.
 
 *Stand,* [[Lumina]] said from across the room. *Don't move until I tell you.*
 
@@ -1232,7 +1232,7 @@ The [[catheter]] chose that moment to vibrate. A high-frequency buzz travelled u
 
 *I am my [[Lumina|Goddess]]' eternal slave—*
 
-Sweat would have been pouring down my face if I still had sweat glands. Instead, the heat built under my latex skin, trapped by the [[armour]], making my internal temperature rise. The [[Power Supply|fusion core]] adjusted, cooling my blood, but the sensation remained—a slow cook from the outside in.
+Sweat would have been pouring down my face if I still had sweat glands. Instead, the heat built under my [[Encasement Layer/index|latex skin]], trapped by the [[armour]], making my internal temperature rise. The [[Power Supply|fusion core]] adjusted, cooling my blood, but the sensation remained—a slow cook from the outside in.
 
 [[Lumina]] watched from the sofa. *Posture is slipping. Correct it.*
 
@@ -1402,7 +1402,7 @@ Each step she walked me through the [[living room]] sent the [[anal plug]] shift
 
 [[Lumina]] didn't stop. Didn't slow down.
 
-The [[Alexandra's Mansion|mansion]] back doors opened soundlessly—automated, anticipating—and cool evening air washed over my latex skin. The [[Touch Sensors|sensory mesh]] lit up instantly, processing temperature drop, humidity levels, faint shifts in air current. Too much data. Too detailed. Every breeze registered like a physical touch.
+The [[Alexandra's Mansion|mansion]] back doors opened soundlessly—automated, anticipating—and cool evening air washed over my [[Encasement Layer/index|latex skin]]. The [[Touch Sensors|sensory mesh]] lit up instantly, processing temperature drop, humidity levels, faint shifts in air current. Too much data. Too detailed. Every breeze registered like a physical touch.
 
 The garden stretched ahead, stone pathways winding through flower beds painted gold by the dying light.
 
@@ -1806,7 +1806,7 @@ My thoughts almost broke apart on the spot.
 
 *Thank You, [[Lumina|Mistress]],* I sent back, small and full and needy. *Thank You for keeping me where I’m supposed to be.*
 
-Then, at last, the frame descended. Smooth. Controlled. The ceiling drifted further away and the floor came up beneath me. Pumps changed tone. Pressure eased in stages. The sheets slackened by degrees, peeling off me with obscene reluctance, dragging over my latex skin so every millimetre registered. Dust. Temperature. The seam opening at my side. The maintenance line unplugging from the port between my legs with a dense internal shift that made the [[anal plug]] nudge my bowels and the core in my womb pulse hard enough to leave me dizzy.
+Then, at last, the frame descended. Smooth. Controlled. The ceiling drifted further away and the floor came up beneath me. Pumps changed tone. Pressure eased in stages. The sheets slackened by degrees, peeling off me with obscene reluctance, dragging over my [[Encasement Layer/index|latex skin]] so every millimetre registered. Dust. Temperature. The seam opening at my side. The maintenance line unplugging from the port between my legs with a dense internal shift that made the [[anal plug]] nudge my bowels and the core in my womb pulse hard enough to leave me dizzy.
 
 Too much. Straight away too much.
 
@@ -2260,7 +2260,7 @@ I swallowed on nothing. Reflex only. The sealed fullness in my throat shifted an
 
 *Yes, [[Lumina|Mistress]].*
 
-I tried again. Shoulders first, arms extending, keeping my hips quieter. Better. Slightly. My fingers brushed the top rail of the chair back, the [[Touch Sensors|sensory mesh]] lighting it up with such ridiculous detail that the texture of the finish almost made my hands jerk away. Tiny scratches. Dust grains. Cooler metal screws inside the joints. Too much. Far too much. My own latex skin gave no friction, just smooth contact that felt slippery and exact.
+I tried again. Shoulders first, arms extending, keeping my hips quieter. Better. Slightly. My fingers brushed the top rail of the chair back, the [[Touch Sensors|sensory mesh]] lighting it up with such ridiculous detail that the texture of the finish almost made my hands jerk away. Tiny scratches. Dust grains. Cooler metal screws inside the joints. Too much. Far too much. My own [[Encasement Layer/index|latex skin]] gave no friction, just smooth contact that felt slippery and exact.
 
 I reached further.
 
@@ -2448,7 +2448,7 @@ She made my arms extend, holding the vase away from my body. Still effortless. S
 
 I nearly came from the sight of it.
 
-Not just the strength. The stability. The grace. My body remained poised, hips set, chest high, latex skin smooth and silent, as if lifting an impossible weight on pinpoint contacts was the most natural thing in the world.
+Not just the strength. The stability. The grace. My body remained poised, hips set, chest high, [[Encasement Layer/index|latex skin]] smooth and silent, as if lifting an impossible weight on pinpoint contacts was the most natural thing in the world.
 
 *That’s only a fraction,* [[Lumina]] told me, warm and proud and hungry all together. *Used correctly, you will be able to do far more than this.*
 
@@ -2612,7 +2612,7 @@ A white hand covered mine on the piano’s lacquered edge, though I knew it was 
 
 *I know. You’re doing beautifully. Down another two centimetres. Good girl. Let me hold the rest.*
 
-The final descent came smoother. Her will ran through my spine, my hips, my pinpoint stance. The piano touched the floor without a crash, only a dense, expensive thud through the room. I stood there after, arms still extended, body making tiny silent corrections, latex skin gleaming, cunt aching, arse stretched, nipples on fire, and I felt wrecked by it. Not tired. Just overwhelmed. Too much power. Too much body. Too much her.
+The final descent came smoother. Her will ran through my spine, my hips, my pinpoint stance. The piano touched the floor without a crash, only a dense, expensive thud through the room. I stood there after, arms still extended, body making tiny silent corrections, [[Encasement Layer/index|latex skin]] gleaming, cunt aching, arse stretched, nipples on fire, and I felt wrecked by it. Not tired. Just overwhelmed. Too much power. Too much body. Too much her.
 
 [[Lumina]] stepped in front of me, white and gold and unbearable.
 
@@ -3556,7 +3556,7 @@ So I did. Straight strokes first. Down. Lift. Across. Lift. Tiny diagonals. Shor
 
 I hated how much relief that gave me. Hated it. Loved it more.
 
-I took a fresh pencil and rolled it between finger and thumb. Very lightly. Then less lightly. Then enough to feel the lacquer flex against the indentation of my latex skin beneath the [[Touch Sensors|sensory mesh]]. There it was again, that filthy little spark of amusement because one finger, one stupid careful finger, could probably have cracked the wooden barrel if I’d closed it by another fraction.
+I took a fresh pencil and rolled it between finger and thumb. Very lightly. Then less lightly. Then enough to feel the lacquer flex against the indentation of my [[Encasement Layer/index|latex skin]] beneath the [[Touch Sensors|sensory mesh]]. There it was again, that filthy little spark of amusement because one finger, one stupid careful finger, could probably have cracked the wooden barrel if I’d closed it by another fraction.
 
 *You’re enjoying yourself,* [[Lumina]] noted.
 
@@ -3820,7 +3820,7 @@ I gave a helpless little pulse of need.
 
 *Good answer.*
 
-She kissed me again. Slower. Deeper in that impossible internal way only she could manage, until making out became less a sequence of motions and more a shared occupation, the two of us snuggling and kissing and stroking each other with no structure at all, no plan, no neat progression. Just appetite and comfort braided together. Her wings draped round us in a loose white hush. My hand kept moving through her hair. Hers kept tracing me, over shoulder, collar, upper arm, treating my latex skin like something she adored touching for its own sake.
+She kissed me again. Slower. Deeper in that impossible internal way only she could manage, until making out became less a sequence of motions and more a shared occupation, the two of us snuggling and kissing and stroking each other with no structure at all, no plan, no neat progression. Just appetite and comfort braided together. Her wings draped round us in a loose white hush. My hand kept moving through her hair. Hers kept tracing me, over shoulder, collar, upper arm, treating my [[Encasement Layer/index|latex skin]] like something she adored touching for its own sake.
 
 Time went loose.
 

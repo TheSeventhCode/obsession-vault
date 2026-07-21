@@ -1244,7 +1244,7 @@ So I dragged my hands higher across my compressed torso instead, each movement m
 
 And above and below that crushed little middle—[[Lumina|Goddess]]—there was just *so much* of me.
 
-My hands passed over the dramatic flare of my hips, broad and artificial and obscene under the seamless black latex, then over my lower belly where every pulse from the core inside my womb seemed to spread through the whole structure of me. Higher. Over the stretched architecture of my torso. Up to the heavy swell of my breasts, huge and round and far too much, not just the tits I'd always wanted but the massive arse and hips to match, all of it making my waist feel even smaller, more ridiculous, more pornographic and obscene, as if my whole body had been engineered around exaggeration and ownership. Even before my palms touched them properly, I could feel their weight moving against my chest, soft and full under the latex skin, waiting for me.
+My hands passed over the dramatic flare of my hips, broad and artificial and obscene under the seamless black latex, then over my lower belly where every pulse from the core inside my womb seemed to spread through the whole structure of me. Higher. Over the stretched architecture of my torso. Up to the heavy swell of my breasts, huge and round and far too much, not just the tits I'd always wanted but the massive arse and hips to match, all of it making my waist feel even smaller, more ridiculous, more pornographic and obscene, as if my whole body had been engineered around exaggeration and ownership. Even before my palms touched them properly, I could feel their weight moving against my chest, soft and full under the [[Encasement Layer/index|latex skin]], waiting for me.
 
 My palms pressed against the perfect curves, feeling them compress naturally despite the invisible carbon-Kevlar mesh protecting them, and when my latex-coated fingers brushed across the displayed, [[Nipple Plugs|pierced nipples]], electric shocks of pain mixed with the building pleasure until I couldn't distinguish between sensations any more.
 
@@ -1758,7 +1758,7 @@ Not a single surface escaped. The coverage was absolute, complete, *perfect*.
 
 *Done.*
 
-The drones lifted away in synchronized clouds, retreating back to their storage compartments. I remained frozen, feeling the newly applied mesh settling against my latex skin. It had taken just a bit over an hour for the full application.
+The drones lifted away in synchronized clouds, retreating back to their storage compartments. I remained frozen, feeling the newly applied mesh settling against my [[Encasement Layer/index|latex skin]]. It had taken just a bit over an hour for the full application.
 
 [[Lumina]] released her paralysis hold.
 
@@ -1848,7 +1848,7 @@ The crushing tsunami of tactile data receded like surfacing from drowning—sudd
 
 *Thank You [[Lumina|Mistress]], thank You—*
 
-Gratitude flooded through our neural link in overwhelming waves, tangled with residual shock. Even at reduced intensity, I felt *everything* with impossible precision. Individual dust particles settling on my latex skin registered as distinct microscopic impacts. [[Lumina]]'s machinery hummed throughout the [[Alexandra's Mansion|mansion]]—[[power supply]], filtration systems, automated maintenance units—and I detected their vibrations transmitted through the laboratory floor up into my [[Ballet Feet|needle-point feet]]. My own body heat radiated into the cooler air, creating thermal gradients I perceived as clearly as visual boundaries.
+Gratitude flooded through our neural link in overwhelming waves, tangled with residual shock. Even at reduced intensity, I felt *everything* with impossible precision. Individual dust particles settling on my [[Encasement Layer/index|latex skin]] registered as distinct microscopic impacts. [[Lumina]]'s machinery hummed throughout the [[Alexandra's Mansion|mansion]]—[[power supply]], filtration systems, automated maintenance units—and I detected their vibrations transmitted through the laboratory floor up into my [[Ballet Feet|needle-point feet]]. My own body heat radiated into the cooler air, creating thermal gradients I perceived as clearly as visual boundaries.
 
 Superhuman. Posthuman. Beyond anything human skin could achieve.
 
@@ -1878,7 +1878,7 @@ Her presence wrapped tighter, protective and possessive.
 
 *Until then, I'll help you carry the weight. You're not alone in this body any more, my sweet girl. You never will be again.*
 
-I stood trembling on my needle-points whilst the mesh sang its constant song of sensation. The laboratory air moved against my latex skin—microscopic currents I perceived as clearly as visual motion. The massive devices filling my pelvis shifted infinitesimally with each heartbeat pulse from the [[Core Unit|control core unit]] embedded in my womb, and even those tiny movements triggered cascading pleasure-pain that radiated outward through sensitivity-swollen tissue.
+I stood trembling on my needle-points whilst the mesh sang its constant song of sensation. The laboratory air moved against my [[Encasement Layer/index|latex skin]]—microscopic currents I perceived as clearly as visual motion. The massive devices filling my pelvis shifted infinitesimally with each heartbeat pulse from the [[Core Unit|control core unit]] embedded in my womb, and even those tiny movements triggered cascading pleasure-pain that radiated outward through sensitivity-swollen tissue.
 
 *One more layer,* I thought, consciousness fragmenting between overwhelming sensation and desperate anticipation. *Just one more, and then I'll be complete. Perfect. Finished.*
 

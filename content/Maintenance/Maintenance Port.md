@@ -5,7 +5,7 @@ aliases:
   - cleaning port
 sidebarOrder: "4"
 ---
-This is the outer connection port of the [[Pelvis Shell]] between [[Alexandra Rose Blackwell|Alexandra]]'s legs and is positioned right in the middle of her centre of gravity. The connection port is so flat and with its position, it's basically invisible once [[Alexandra Rose Blackwell|Alexandra]] has been fully transformed into a Bane, having received enough of the various sprayed on layers, that it's almost indistinguishable from the surrounding black latex skin.
+This is the outer connection port of the [[Pelvis Shell]] between [[Alexandra Rose Blackwell|Alexandra]]'s legs and is positioned right in the middle of her centre of gravity. The connection port is so flat and with its position, it's basically invisible once [[Alexandra Rose Blackwell|Alexandra]] has been fully transformed into a Bane, having received enough of the various sprayed on layers, that it's almost indistinguishable from the surrounding black [[Encasement Layer/index|latex skin]].
 
 ## Function
 All bodily functions and needs are handled through this port. The drainage of urine and enema, as well as the refilling of [[Alexandra Rose Blackwell|Alexandra]]'s food and oxygen tanks within her breasts and the supply of water to her stomach, are all done through this port.

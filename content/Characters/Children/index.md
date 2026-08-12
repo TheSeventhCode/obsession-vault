@@ -57,6 +57,7 @@ The twins embody a perfect synthesis of their three mothers, inheriting [[Alexan
 - They have an exceptional intellect, surpassing even [[Alexandra Rose Blackwell|Alexandra]]'s near-genius level—having a natural aptitude for science, engineering, logic, and abstract problem-solving.
 - They are very curious, with an analytical mind that constantly seeks to understand anything they come across.
 - Just like [[Alexandra Rose Blackwell|Alexandra]], they have a tendency to towards hyper-focus and obsessive deep-deep dives into subjects that fascinate them, getting absorbed in their interest and loosing track of anything else.
+- Crucially, even with their superior intellect, they do not act like miniature adult geniuses or walking calculators. They play, they run, they get distracted, they giggle, and they most often behave exactly like normal, energetic children their age. Their superior intellect simply means that when intellectually challenged, there's barely anything that can stand against them.
 ### From [[Lumina]]
 - They quickly develop an instinctive confidence and natural authority, with a clam, collected demeanour even under pressure. They both feel comfortable taking charge and making decisions, without coming off as arrogant or self-important, their decisions always backed up with rational reasons.
     - This occasionally leads to conflicts between the two, not because they don't agree about something, but because one has made a decision for the other, neither wanting to be ordered around by their sibling.

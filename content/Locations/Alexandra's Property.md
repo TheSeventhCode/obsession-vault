@@ -1,6 +1,7 @@
 ---
 aliases:
   - the property
+sidebarOrder: "1"
 ---
 [[Alexandra Rose Blackwell|Alexandra]], eventually then [[Lumina]], owns a large rectangular property on which almost all of [[Alexandra Rose Blackwell|Alexandra]]'s recent and future life happens. It is surrounded by tall and thick bushes, isolating and blocking any view from the outside.
 

@@ -1,5 +1,5 @@
 ---
-sidebarOrder: "7"
+sidebarOrder: "8"
 ---
 A temporary or sustained reconfiguration state of [[Alexandra Rose Blackwell|Alexandra]]'s fully converted Bane body, only possible after the [[Nanobots|nanobot conversion]] has entirely completed in both [[Alexandra Rose Blackwell|Alexandra]] and [[Elizabeth Carter|Elizabeth]]. In this configuration, [[Lumina]] commands the [[nanobots]] that constitute the majority of [[Alexandra Rose Blackwell|Alexandra]]'s internal body to reorganise her internal structure, creating a sealed occupation cavity within [[Alexandra Rose Blackwell|Alexandra]] large enough to contain [[Elizabeth Carter|Elizabeth]]'s full body.
 

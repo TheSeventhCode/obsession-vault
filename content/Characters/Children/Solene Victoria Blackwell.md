@@ -3,6 +3,7 @@ aliases:
   - Solene Blackwell
   - Solene
   - Sol
+sidebarOrder: "1"
 ---
 [[Solene Victoria Blackwell|Solene]], called [[Solene Victoria Blackwell|Sol]] by her sister, is one of the twin-daughters of [[Alexandra Rose Blackwell|Alexandra]], [[Lumina]], and [[Elizabeth Carter|Elizabeth]]—born from a meticulously designed genetic fusion that represents the perfect synthesis of all three mothers.
 ## Physical Appearance

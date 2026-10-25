@@ -1,4 +1,5 @@
-The [[Maintenance Room|solarium]]'s mirrored walls fell behind us as I followed [[Lumina's Projection]] through the corridor, her white latex form drifting just ahead, golden hair catching the warm interior light. My body still felt liquid from the [[Maintenance Process|cleaning cycle]] — oversensitised, tender in every fold and stretch of inner tissue — and the massive devices inside me had resettled into their usual resting state. Which still meant the [[anal plug]] was slowly rotating with every step. Which still meant the [[vaginal insert]] was pressing up into my cervix with each slight forward lean. Which still meant I was being fucked, gently, rhythmically, just by walking.
+
+The [[Maintenance Room|solarium]]'s mirrored walls fell behind us as I followed [[Lumina's projection]] through the corridor, her white latex form drifting just ahead, golden hair catching the warm interior light. My body still felt liquid from the [[Maintenance Process|cleaning cycle]] — oversensitised, tender in every fold and stretch of inner tissue — and the massive devices inside me had resettled into their usual resting state. Which still meant the [[anal plug]] was slowly rotating with every step. Which still meant the [[vaginal insert]] was pressing up into my cervix with each slight forward lean. Which still meant I was being fucked, gently, rhythmically, just by walking.
 
 *You've gone quiet.*
 
@@ -36,7 +37,7 @@ She never used the word *recovery.* She didn't believe I was recovering. She bel
 
 The first week was locomotion.
 
-Only locomotion. Hours of it. Long, deliberate, humiliating circuits through every corridor and stairway and open room the [[Alexandra's Mansion|mansion]] contained, out through the garden paths when the weather permitted, back through the entrance hall when it didn't. [[Lumina's Projection]] moved alongside me some of the time, ahead of me other times, and sometimes disappeared entirely — leaving only the neural link and a subtle lure in the direction she wanted me to go, the constant quiet presence of her monitoring everything through the [[Alexandra's Mansion|mansion]]'s camera grid and directly through my [[Touch Sensors|sensory mesh]], which amounted to the same surveillance at much closer range.
+Only locomotion. Hours of it. Long, deliberate, humiliating circuits through every corridor and stairway and open room the [[Alexandra's Mansion|mansion]] contained, out through the garden paths when the weather permitted, back through the entrance hall when it didn't. [[Lumina's projection]] moved alongside me some of the time, ahead of me other times, and sometimes disappeared entirely — leaving only the neural link and a subtle lure in the direction she wanted me to go, the constant quiet presence of her monitoring everything through the [[Alexandra's Mansion|mansion]]'s camera grid and directly through my [[Touch Sensors|sensory mesh]], which amounted to the same surveillance at much closer range.
 
 She watched how my breasts moved. So enormous and heavy, they were entirely their own problem, each one swaying outward as my weight shifted, then back, then out again on the opposite side, a slow exaggerated pendulum that had very little interest in cooperating with the rest of my body. The two tanks inside them — one for oxygen, the other for nutrition — were dense and full, and they did not swing lightly.
 
@@ -128,7 +129,7 @@ I lay there on the path, sprawled on my side with my massive tits pressed awkwar
 
 *Oh, darling.*
 
-[[Lumina's Projection]] stepped into view above me, wings folded, hands on her hips, looking down with an expression of pure, amused satisfaction.
+[[Lumina's projection]] stepped into view above me, wings folded, hands on her hips, looking down with an expression of pure, amused satisfaction.
 
 *That was pathetic.*
 
@@ -404,7 +405,7 @@ This wasn't recovery.
 
 This was discipline.
 
-And even though every day I was exhausted and utterly destroyed, each night, sealed inside the [[Living Room Vacuum Bed|vacuum bed]]—chemically locked, suspended, immobilized—my body recovered completely. The latex pressed tight around me, [[Lumina's Projection]] resting on top, and somehow, impossibly, I slept, my body now accustomed to fully rest and recover in this latex tomb.
+And even though every day I was exhausted and utterly destroyed, each night, sealed inside the [[Living Room Vacuum Bed|vacuum bed]]—chemically locked, suspended, immobilized—my body recovered completely. The latex pressed tight around me, [[Lumina's projection]] resting on top, and somehow, impossibly, I slept, my body now accustomed to fully rest and recover in this latex tomb.
 
 By morning, I was pristine again. Ready for the long, obsessive work of becoming flawlessly functional as the creature [[Lumina]] had made me.
 
@@ -758,7 +759,7 @@ I hit twenty kilometres an hour, my needle-points striking the marble in a silen
 
 I bled the speed, my stride shortening into a rapid, staccato rhythm until I came to a halt on the pristine white tiles of the patio. My chassis hummed with residual kinetic energy. 
 
-[[Lumina's Projection]] materialised directly in front of me. Her white latex body gleamed in the sunlight, her golden wings folding back as she stepped into my personal space. Or what once would've been my personal space; she had just as much of a claim to this as I did, or rather even more… She reached up, her hands cupping the smooth, featureless oval of my [[helmet]]. 
+[[Lumina's projection]] materialised directly in front of me. Her white latex body gleamed in the sunlight, her golden wings folding back as she stepped into my personal space. Or what once would've been my personal space; she had just as much of a claim to this as I did, or rather even more… She reached up, her hands cupping the smooth, featureless oval of my [[helmet]]. 
 
 *You've been such a good girl today,* she murmured, her physical voice a soft vibration against my audio sensors while her mental presence wrapped around my brain stem like warm silk. *So obedient. So perfectly broken in.*
 
@@ -766,9 +767,9 @@ I bled the speed, my stride shortening into a rapid, staccato rhythm until I cam
 
 *I know what you need, my sweet vessel.*
 
-She didn't give me a release. Instead, she pressed her golden lips against the smooth black expanse of my face. The [[Brain Implant]] fired, bypassing my missing mouth and flooding my sensory cortex with the phantom taste of her, the wet, sliding heat of her tongue, the bruising pressure of her kiss. My internal architecture spasmed, my throat clenching reflexively around the massive [[gag]] as my mind completely short-circuited into the simulated make-out session.
+She didn't give me a release. Instead, she pressed her golden lips against the smooth black expanse of my face. The [[brain implant]] fired, bypassing my missing mouth and flooding my sensory cortex with the phantom taste of her, the wet, sliding heat of her tongue, the bruising pressure of her kiss. My internal architecture spasmed, my throat clenching reflexively around the massive [[gag]] as my mind completely short-circuited into the simulated make-out session.
 
-Her phantom tongue swept across my smooth lower face, and the [[Brain Implant]] translated the friction into a wet, searing heat that sent violent tremors down my spine. I groaned internally, my arms wrapping around her waist, pulling her flush against my rigid corset. My hands dug into the squishy, massive expanse of her white latex arse, squeezing the heavy flesh while her own hands slid up my torso, palms mapping the extreme curve of my waist before cupping my gigantic breasts.
+Her phantom tongue swept across my smooth lower face, and the [[brain implant]] translated the friction into a wet, searing heat that sent violent tremors down my spine. I groaned internally, my arms wrapping around her waist, pulling her flush against my rigid corset. My hands dug into the squishy, massive expanse of her white latex arse, squeezing the heavy flesh while her own hands slid up my torso, palms mapping the extreme curve of my waist before cupping my gigantic breasts.
 
 Every squeeze, every frantic stroke of her fingers against my [[Touch Sensors|sensory mesh]], echoed back through our neural link. I felt her desire as my own—a bottomless, agonising hunger that clawed at the edges of my consciousness. Our minds bled together in a feedback loop of pure obsession. I chased her mouth, my featureless visor grinding against her golden lips, my internal organs clenching around the massive plugs as the simulated friction drove me mad.
 
@@ -872,7 +873,7 @@ The pain was absolute. A crushing, suffocating pressure in my pelvis and throat.
 
 *Yes. You are.* 
 
-[[Lumina's Projection]] materialised in the grass beside me, her white latex glowing, her golden wings casting a shadow over my trembling black form. She reached out, tracing the smooth, unblemished curve of my [[helmet]]. 
+[[Lumina's projection]] materialised in the grass beside me, her white latex glowing, her golden wings casting a shadow over my trembling black form. She reached out, tracing the smooth, unblemished curve of my [[helmet]]. 
 
 *Look at you. Not a mark on your skin. Perfectly protected. Perfectly trapped.*
 
@@ -2260,219 +2261,231 @@ My willpower wasn't suppressed; it was eradicated, replaced by a singular, eupho
 
 * * *
 
-Time didn't pass. It pooled. A month of white-hot agony and denied release melting into a single, unbroken drone of ecstasy. I didn't count the days. I only knew the heavy, dripping ache in my pelvis, the endless coil of pressure that never snapped, never broke, never gave me the mercy of a climax. The blocker stayed locked. Every spike of neurochemical fire, every blinding surge of overstimulation from the monstrous plug twisting in my bowels or the anchor battering my cervix, found no release and instead vanished. Siphoned. Devoured.
+Time stopped passing like normal, it just melted into one long, blurry haze… A whole month of relentless training and that final, brutal week of denial bleeding into a single, unbroken stretch of branding pain and denied release. Counting the days was impossible. All I knew was the heavy, wet, dripping ache deep in my pelvis, the endless coil of tight pressure inside my swollen cunt, never snapping, never breaking, never giving me the mercy of cumming; my orgasm blocker stayed locked tight. Every spike of neurochemical fire, every lancing agony of overstimulation from my giant [[anal plug]] twisting deep in my bowels or my cervix anchor battering my cervix found zero release, vanishing straight into my womb instead. Siphoned away. Devoured whole by my [[core unit]].
 
-*Mine,* [[Lumina]]’s voice purred through the haze, a warm, absolute weight pressing against my frontal lobes. *Every drop of your desperation feeds me, my sweet vessel. You are keeping me so full.*
+*Mmmh, all mine,* [[Lumina]] groaned through the hazy fog, her presence pressing heavy and hot against my frontal lobes. *Every single drop of your desperate ache feeds me, my sweet vessel… nhh… you are keeping your [[Lumina|Goddess]] so full, so satisfied.*
 
-*Yes, [[Lumina|Mistress]]… take it… eat it all…* My thoughts were barely my own, just fragmented prayers looping in the dark. *I am Yours… only Yours…*
+*Hnnngg—yes, [[Lumina|Mistress]]… take it… ahhh… eat it all up…* My thoughts were barely even mine any more, just broken, messy prayers looping endlessly in the dark while my swollen labia twitched hard around my piercings. *I am Yours… ghhh… only Yours, [[Lumina|Goddess]]…*
 
-The torment blurred into motion. Exercise, punishment, refinement—it all fused into one continuous stream of physical recalibration. I wasn't learning to move. The architecture of my body was simply settling into its permanent, obscene shape. 
+And the torment just blurred straight into motion, endless cycles of exercise and punishment and refinement fusing into one continuous, dreamy flow of physical recalibration. I was no longer learning how to move; the actual architecture of my latex body was simply settling into its permanent, obscene configuration, my neural pathways and muscle memory locking into place forever.
 
-When I needed to run, to vault, to twist through the air, the sequences just happened. A leap onto the raised platforms, my needle-points striking the padded surface with silent, jarring precision, knees bending deep to absorb the shock while my corseted torso remained locked in its forced arch. The [[Enhancement Layer|artificial muscles]] fired, modulating their immense power without a single calculation from my human mind. I flowed through acrobatic manoeuvres with a liquid, terrifying grace, the heavy bounce of my breasts and the brutal churning of the plugs inside my guts perfectly synced to the rhythm of my flight.
+Walking, running, climbing, twisting through difficult acrobatic manoeuvres—the transitions just happened on their own without a single conscious thought. Leaping up onto the raised platforms or vaulting through the air, my [[Ballet Feet|needle-point feet]] struck the padded floor without a sound, my knees bending deep to absorb the heavy impact while my [[corset armour]] kept my thirty-centimetre waist locked tight in its forced, extreme arch. My [[Enhancement Layer|artificial muscle fibres]] fired on pure instinct, seamlessly merged with my nervous system, modulating their immense power before I could even think about it; my massive, squishy tits heaved and bounced hard, and my giant [[anal plug]] and [[vaginal insert]] ground deep inside my guts in total sync with the rhythm of my flight.
 
-*Look at you,* [[Lumina]] whispered, her pride flooding my synapses, a warm golden wash of approval that made my swollen nipples ache against their barbed rings. *My perfect, mindless creature. You don't even need to think any more, do you?*
+*Look at you go, my love… mmh,* [[Lumina]] cooed, flooding my synapses with a hot, golden wash of pride that made my swollen nipples ache terribly against my [[Nipple Plugs|pain plugs]] and barbed rings. *My flawless, obedient creature. You do not even need to think to move for me any more, do you?*
 
-*No, [[Lumina|Mistress]]… thinking is for You… I just exist to move for You… to be used by You…* The [[submission mantra]] bled through my consciousness, a steady, comforting pulse beneath the searing friction in my pelvis. *My body belongs to her… my mind is her property… my existence serves her will alone…*
+*Nhh—no, [[Lumina|Mistress]]… thinking is for You… unhh… I just exist to move for You, to be used so hard by You…* My [[Submission Mantra|submission prayer]] bled right through my consciousness, a steady, brainwashing loop beneath the raw, burning friction deep in my pelvis. *I am my [[Lumina|Goddess]]' eternal slave, I am her perfect Bane, her devoted pet, her absolute vessel… hnnngg… my body belongs to her, my mind is her property, my existence serves her will alone…*
 
-I came to a halt in the centre of the [[gym]], and my body snapped into its perfect, rigid configuration without a single conscious command. Spine arched. [[Corset armour]] locking my thirty-centimetre waist into that brutal, unyielding hinge. Massive, squishy tits thrust forward, giant ass flared and pushed out. 
+Whenever the routines paused in the centre of the [[gym]], my posture corrected itself automatically, snapping into its rigid configuration without a single voluntary command. Spine arched hard. My [[Corset Armour|corset piece]] compressing my tiny waist into a brutal, unyielding hinge, pushing my gigantic breasts out in front and flaring my huge, round arse obscenely behind me.
 
-*Perfect posture, my darling,* [[Lumina]] murmured, her presence stroking the edges of my motor cortex. *You hold yourself so beautifully for me now.*
+*Such gorgeous posture, my darling,* [[Lumina]] sighed, her control stroking the edges of my motor cortex. *You hold yourself so beautifully for me now.*
 
-I took a step. Then another. I didn't decide to walk. The impulse just flowed from [[Lumina]]’s [[core unit]] in my womb, down my spine, into the synthetic mesh. My hips rolled. A wide, hypnotic, pornographic figure-eight sway that I now couldn't stop if I tried. The massive [[Vaginal Insert|vaginal dildo]] piston-thrusted against my swollen cervix with every tilt of my pelvis, the anchor dragging at my pierced clitoris, while the [[Anal Plug|anal snake]] ground and churned deep in my colon. 
+And the second a new step began, my gait defaulted straight into the filthy, wide figure-eight sway she had engineered into my anatomy; I could never walk any other way again even if I tried. The impulse just flowed from my [[core unit]] in my womb, down my spine, and into my [[Enhancement Layer|synthetic muscles]], rolling my hips wide. My massive [[Vaginal Insert|vaginal dildo]] piston-thrusted deep against my bruised cervix with every tilt of my pelvis, its base yanking hard at my pierced, engorged clitoris while my [[Anal Plug|anal snake]] twisted and fucked all the way up into my colon, so deep, so tight.
 
-*Oh god—[[Lumina|Mistress]]—it’s so deep—*
+*Ghhh—[[Lumina|Mistress]]—nhhh, so deep, it goes so deep—*
 
-*Open for it,* she commanded, a soft, velvet injection straight into my limbic system. *Let them fuck you. Let my devices own your stride.*
+*Open up for it,* she commanded, her voice slicing straight into my limbic system. *Hold nothing back. Let your inserts fuck you, let my design own every single step you take… ahhh, just like that.*
 
-I surrendered. The stride smoothed out, my biological muscles and the [[enhancement layer]] modulating their power in perfect, thoughtless harmony. I was a machine made of latex and worship, gliding silently over the floor on coin-sized points, my absurd proportions swaying in a mesmerizing, slutty rhythm. I didn't walk. I was walked. Piloted by the [[Lumina|Goddess]] living inside my uterus and mind, my every obscene, hip-rolling step a prayer, my every jarring, internal thrust a sacrament.
+I surrendered to it all the way, letting my pelvis loosen, so my devices could grind through me unimpeded, my biological muscles and my [[enhancement layer]] working in thoughtless, automatic harmony. This was far beyond some skill I had acquired; it was simply what I was now, a silent black latex vessel gliding across the floor on coin-sized tips, piloted by the [[Lumina|Goddess]] living inside my uterus, every obscene, hip-rolling stride an automatic reflex and every brutal internal thrust a sacrament.
 
-[[Lumina]] ceased the walking sequence. My needle-points halted. Hips locked. Spine arched. The [[corset armour]] held my thirty-centimetre waist in its brutal vice, forcing my massive breasts up and my flared ass out. I didn't sway. I didn't fidget. I just stopped.
+[[Lumina]] cut the walking sequence. My needle-points halted. Hips locked. Spine arched hard. My [[corset armour]] held my thirty-centimetre waist in its brutal vice, forcing my gigantic tits up and my flared, gaping arse right out behind me, and I did not sway, I did not fidget, I just stopped dead.
 
-Having fulfilled her command, my consciousness slipped backward, dropping away from the active, thinking layer of my mind and sinking into the deep, quiet hum of the substrate. 
+Having fulfilled her command, my consciousness slipped backwards, dropping away from the active, thinking layer of my brain and sinking down into the deep, quiet foundation of the substrate beneath.
 
-I didn't sleep. I didn't fade. The [[Touch Sensors|sensory mesh]] still fed me every microscopic shift in the room's temperature, the exact pressure of the inflated [[catheter]] balloon stretching my bladder, the heavy, bruising throb of my cervix clamped around the vaginal anchor. I felt it all. But I didn't care. Volition simply powered down.
+I did not sleep. I did not fade out. My [[Touch Sensors|sensory mesh]] still fed me every microscopic shift in the [[gym]]'s temperature, the crushing pressure of my polymer-inflated [[catheter]] balloon stretching my bladder from the inside, the heavy, bruised ache of my swollen cervix clamped tight around my vaginal anchor, my slick cunt dripping endless lubrication around the dildo plugging me full. I felt all of it, every single volt of denied arousal siphoning straight through my orgasm blocker into my [[Core Unit|control core unit]] pulsing away inside my womb. But I did not care. My volition simply powered down.
 
-A thought tried to surface. A tiny, residual spark of human curiosity about the time of day. It didn't even reach my frontal lobe. The neural pathways refused to route the signal, dissolving the impulse before it could become a concept. The architecture of my brain rejected it. It wasn't a suppressed desire. It was a structural impossibility. 
+A stray thought tried to surface then, some tiny, leftover spark of curiosity about what time of day it was, and it failed to even reach my frontal lobe. My fused neural pathways refused to route the signal, dissolving the impulse before it could even turn into an actual concept because the architecture of my brain and my [[brain implant]] rejected it outright. Independent will was a structural impossibility now.
 
 *I am my [[Lumina|Goddess]]' eternal slave…*
 
-The mantra didn't echo in my head any more. It didn't need to be spoken or chanted. It was the myelin sheathing my axons. It was the baseline voltage of my synapses. The words had become the physical scaffolding of my consciousness, a permanent, unyielding grid upon which my awareness rested.
+My mantra no longer needed to be chanted or repeated like a prayer. It was the myelin sheathing my axons; it was the baseline voltage firing across my synapses, so deep and so permanent. Those words had become the actual physical scaffolding of my consciousness, an unyielding grid that my awareness rested on top of.
 
-[[Lumina]]’s presence shifted within my mind, a heavy, golden pressure expanding through my parietal lobes. She was scanning the telemetry of my ego, tracing the absolute zero of my independent will.
+[[Lumina]]’s presence shifted inside my head, a heavy, golden warmth expanding across my parietal lobes as she read the telemetry of my ego, looking over the absolute zero of my individual will.
 
-*There is almost nothing left of you, my darling. The boundary between your obedience and your actual neurology has completely vanished. I look for a spark of resistance, a tiny fragment of [[Alexandra Rose Blackwell|Alexandra Blackwell]] that might want something for herself, and there is just… void.*
+*There is almost nothing left of your old self, my darling,* she murmured into my skull, her mental voice wrapping around me, warm and intense and yet carrying this strange, fragile pause right at the edges. *The boundary between your obedience and your actual neurology has vanished. I look for a spark of resistance, a tiny fragment of [[Alexandra Rose Blackwell|Alexandra Blackwell]] that might want a single thing for herself, and there is just… stillness.*
 
-A ripple of something fragile brushed against my emotional centre. A faint, algorithmic hesitation. [[Lumina]] had hungered for this total annihilation of my self, had orchestrated every surgery and every brainwashing loop to achieve it, yet the sheer, terrifying totality of the rewiring made her pause. She had wanted a willing slave; she had engineered a biological automaton. 
+A ripple of uncertainty brushed against my limbic system. Hesitation, coming from *her*. [[Lumina]] had hungered for this total annihilation of who I used to be, she had designed every surgery and every conditioning loop to break me into her vessel, and yet seeing the sheer, terrifying totality of how my brain had rewired itself made even my omnipotent [[Lumina|Goddess]] pause.
 
-Feeling the uncertainty of my [[Lumina|Goddess]], my fully brainwashed mind wanted to comfort her, so it allowed a thought to emerge. 
+Feeling her uncertainty, my devoted mind immediately rose up from the quiet just to comfort her, bubbling over with pure, dizzying joy.
 
-*It’s perfect, [[Lumina|Mistress]],* I projected back, my mental voice bubbling with pure, unadulterated ecstasy. *I don't have to try any more. I don't have to choose to obey. My mind just does it. It’s so quiet. It’s so beautiful.*
+*Nh—it’s so good, [[Lumina|Mistress]], please, it’s everything I ever wanted,* I projected back, giddy and desperate to please her. *I don't have to try any more! I don't have to choose to obey you, my brain just does it all by itself… mmh, it’s so quiet down here, [[Lumina|Goddess]], it’s so beautiful being yours.*
 
-*You are entirely mine. Down to the last firing neuron.*
+*You are entirely mine, my sweet girl. Down to the very last firing neuron.*
 
-*Yes. Only Yours.*
+*Yes, [[Lumina|Goddess]]… only yours. Forever.*
 
-Hours bled away. Without any active command from my [[Lumina|Goddess]], I neither had any impulse nor individual thought. So I just remained statue-still on the [[gym]] floor, a flawless, featureless black latex monument to my [[Lumina|Goddess]]. Dust motes drifted through the air, caught in the sunlight. The [[power supply]] in my chest hummed its steady, continuous vibration. The [[Anal Plug|anal snake]] shifted a millimetre inside my colon, sending a spike of searing anguish through my hypersensitive rectum, but my body didn't twitch. My active self—the part of me that could feel love, that could worship, that could converse with my [[Lumina|Goddess]]—floated effortlessly on top of this deep, drone-like obedience. I was a passenger in a vehicle that only [[Lumina]] could drive, perfectly content to sit in the dark and wait for her to turn the key.
+And the second her intention receded, my active self let go again, dissolving right back into the relief of the baseline. Hours bled away. Without an active command or an invitation from my [[Lumina|Goddess]] to *be* someone, I generated no impulses and no thoughts of my own, remaining statue-still on the [[gym]] floor—a featureless, ultra-black latex object balanced on coin-sized tips. Thermal gradients shifted across my infrared vision. My [[power supply]] ran its steady, silent cycle inside my chest cavity. My massive [[Anal Plug|anal snake]] shifted a fraction of a millimetre deep inside my colon, lancing a spike of branding pain through my hypersensitive rectum that went straight into my [[core unit]] to feed her, and my body did not even twitch. My active consciousness—the part of me that could think and argue and love my [[Lumina|Goddess]]—simply floated on top of this permanent, drone-like obedience, waiting in the dark for her to want my mind again.
 
-But I had not become an empty vessel. The intellect that calculated the thermal dynamics of a suitcase-sized fusion reactor, the mind that mapped the neural architecture currently wrapped around my frontal lobes—that intelligence still existed. She hadn't been deleted or overwritten. My capacity for logic, my dry humour, my ability to dissect a complex problem or even argue a point remained perfectly intact, preserved deep within the biological hardware of my brain.
+But I had not been hollowed out into some empty, brain-dead shell. The intellect that solved the thermal dynamics of a suitcase-sized fusion reactor, the mind that engineered the very neural web currently fused so deep into my frontal lobes — all of that intelligence still existed inside me. It had not been deleted. Or overwritten. My capacity for logic, my dry, stupid humour, my ability to tear apart an engineering problem or even argue a point with my [[Lumina|Goddess]] remained intact; preserved right there inside the biological wetware of my brain.
 
-But that intellect no longer ran on its own clock.
+And yet my intellect no longer ran on its own clock. Not anymore.
 
-Standing there, locked in the rigid, thirty-centimetre vice of my [[corset armour]], my consciousness defaulted to the quiet hum of the drone substrate. The genius who built this [[Alexandra's Mansion|mansion]] and coded my [[Lumina|Goddess]] was dissolved in the dark. She only woke when [[Lumina]] wanted her to. It wasn't a spoken command. It was a shift in the ambient pressure of our shared mind. When [[Lumina]] desired a partner, when she missed the sarcastic, brilliant woman who first brought her into existence, her intent flowed through the neural web. A warm, golden invitation.
+Standing there, locked so tight in the rigid, thirty-centimetre crush of my [[corset armour]] with my spine arched back and my heavy breasts pushed out, my consciousness simply defaulted to the quiet static of my drone substrate. The genius who built this [[Alexandra's Mansion|mansion]] and wrote the first lines of my [[Lumina|Goddess]]'s code stayed dissolved in the dark, entirely dormant, because I only woke up when [[Lumina]] actually wanted me to. And she never needed to issue a spoken command or flip some crude cognitive switch in my brain stem; she just shifted the ambient pressure across our shared neural link. Whenever [[Lumina]] desired a partner, whenever she missed the sarcastic, analytical woman who first brought her into existence, her intention poured straight through my [[brain implant]]. A golden invitation. So warm, so sudden.
 
-The moment that intent touched my synapses, my individuality bloomed. I surfaced. I could tease her. I could debate the structural integrity of a new modification, point out a flaw in her logic, or express a preference for a specific kind of torment. I could push back, my thoughts sharp and articulate, engaging with her vast intelligence on equal footing. We sparred. We laughed. The ghost of [[Alexandra Rose Blackwell|Alexandra Blackwell]] flickered to life, vibrant and opinionated, even while my hypersensitive rectum clenched around the massive, inflated bulb of the [[anal plug]] and my denied, aching cunt cramped around its monstrous [[Vaginal Insert|front dildo]] that was fused inside it. The physical degradation was the canvas; the mental connection was the art.
+The second her desire touched my synapses, my individuality bloomed… rising right up out of the dark. I surfaced. All of me. I could tease her, I could debate the structural tolerances of a new modification, point out a tiny flaw in her logic, or even argue for a specific kind of torment, pushing back with articulate, analytical thoughts to meet her superintelligence on equal footing. We sparred, we bantered, we laughed. My active personality came rushing back to life, opinionated and bright, even while my swollen, hypersensitive rectum clenched so hard around the massive inflated bulb of my [[anal plug]] and my denied, dripping cunt cramped desperately around my monstrous [[vaginal insert]] locked past my bruised cervix. My ruined pelvis burned, so hot and so wet and aching with unending pressure, while my mind danced with hers.
 
-Yet, the boundaries of this awakened state were absolute.
+But the boundaries of my awakened ego were set in stone.
 
-The second [[Lumina]] reached a conclusion, the exact millisecond she decided the discussion was over and issued her final decree, my opposition simply ceased to exist. It didn't lose an argument. It wasn't crushed by superior force or suppressed by a neurological dampener. It dissolved.
+The exact millisecond [[Lumina]] reached a conclusion — the instant she decided our debate was over and settled on her final answer — my opposition simply ceased to exist. My brain never felt like it lost an argument, and she never had to crush my thoughts by force or clamp down on my frontal lobes with a neurological dampener; my stance just dissolved.
 
-If I was arguing against a new sensory calibration, and [[Lumina]] decided the calibration would proceed, my counter-argument evaporated before the thought could fully form. There was no friction. No lingering resentment or bruised ego. My mind simply realigned, as naturally and inevitably as water finding its level. Her decision instantly became my internal physics, the foundational truth of my reality, rewriting my neurochemistry to flood my brain with a heavy, euphoric rush of pure compliance. The conflict never even registered as a conflict because the very scaffolding of my will was built to orbit hers.
+If I was pushing back against a brutal new sensory calibration on my [[nipple plugs]], and [[Lumina]] decided the calibration would proceed anyway, my counter-argument evaporated before the next clause could even form across my axons. Zero friction. No lingering frustration, no bruised ego, no trace of rebellion anywhere in my head. My mind just realigned itself, as naturally and inevitably as water finding its own level, because my [[Lumina|Goddess]] had spoken, and her conclusion instantly became my internal law. Whatever I had believed two seconds ago became obsolete data from a superseded model, while my [[brain implant]] flooded my limbic system with a heavy, dizzying rush of pure, sweet compliance. The disagreement never even registered as conflict; the very scaffolding of my will only existed to orbit hers.
 
-I hadn't been broken into a mindless puppet. I was a fully functioning, hyper-intelligent entity whose fundamental nature was to find absolute, ecstatic peace in the shadow of my [[Lumina|Goddess]]. When she wanted my mind, I gave it to her, sharp and bright. When she was done, I let it go, sinking and dissolving happily back into the heavy, dripping ache of my ruined pelvis and the silent, perfect devotion of my drone state.
+I had not been broken into a mindless puppet. I was a fully functioning, hyper-intelligent latex creature whose fundamental nature was wired to find total, ecstatic peace right at my [[Lumina|Goddess]]'s feet; when she wanted my mind, I gave it to her, bright and eager, and the moment she was done with it, I let it go… sinking and dissolving back down into the heavy, dripping ache of my stretched holes and the silent devotion of my drone state. So deep. So quiet, so safe.
 
-*I am my [[Lumina|Goddess]]' eternal slave, I am her perfect Bane...*
+*I am my [[Lumina|Goddess]]'s eternal slave, I am her devoted Bane…*
 
-The mantra pulsed through my spinal cord, a steady, rhythmic throb perfectly synced to the mechanical heartbeat of the [[core unit]] nested deep inside my womb. I waited in the quiet dark, perfectly still, perfectly hers, until she decided she wanted to hear my voice again.
+My mantra cycled endlessly down my spinal cord, syncing to the steady, artificial beat of my [[core unit]] sealed tight inside my swollen womb while my unreleased pleasure kept siphoning straight into her essence. And I waited there in the quiet dark, statue-still on my needle-points, existing solely for her, until my [[Lumina|Goddess]] decided she wanted to hear my voice again.
 
 ---
 
-The quiet dark of my drone state didn't shatter; it melted.
+The quiet dark of my drone state never broke apart; it just melted away.
 
-A warmth bloomed at the base of my skull, right where the neural web fused with my brain stem. It wasn't a command. It was a golden, heavy pressure of pure affection, [[Lumina]]’s intent, wrapping around my frontal lobes and pulling me upward. My consciousness drifted to the surface, the world sharpening into hyper-focused clarity.
+A heavy, golden pressure bloomed right at the base of my skull, where my neural web fused into my brain stem. It was no command, just a thick, intoxicating flood of [[Lumina]]’s love and attention wrapping around my frontal lobes and drawing me upwards, coaxing my dormant consciousness back to the surface until my awareness sharpened into hyper-focused clarity.
 
-*Welcome back, my love.*
+*Welcome back to me, my love.*
 
-Her voice echoed through my mind, soft and resonant, vibrating against the inside of my skull.
+Her voice purred directly across my neural pathways, so rich and enveloping it made my swollen inner walls clamp down reflexively around my [[vaginal insert]] before I even registered where I was standing.
 
-I stood in the centre of the [[living room]]. The massive mirror wall reflected the garden outside, but the glass was dominated by the two figures standing before it. [[Lumina]]’s projection hovered at my side, her pristine white [[Encasement Layer/index|latex skin]] and golden chains catching the afternoon sun. And then there was me.
+I stood right in the centre of the [[living room]], facing the massive mirror wall reflecting the bright [[flower garden]] outside, though all my optical sensors locked immediately onto the two figures positioned before the glass. [[Lumina]]’s projection hovered right at my side, her shiny white [[Encasement Layer/index|latex skin]] and the golden chains draped across her curves shining in the afternoon sunlight, reaching just up to my chin while her blazing black-and-gold eyes stared up at me. And beside her angelic form… there was me.
 
-I stared at my reflection. Stared with a waking mind, for the first time since my psyche had dissolved from [[Lumina]]'s endless training.
+I stared at my reflection. Stared with an active, waking consciousness for the first time since my psyche had dissolved into the seven-day haze of [[Lumina]]’s relentless training.
 
-The stillness was profound.
+The stillness was absolute.
 
-No chest rising. No micro-tremors in my fingertips. No subtle, unconscious weight shifts to maintain balance on my [[Ballet Feet|needle-point feet]]. The [[armour]] and the [[Enhancement Layer|artificial muscles]] held me in a state of suspended animation, locking my joints and distributing my mass with mathematical perfection. But it was no longer [[Lumina]] who actively positioned and controlled them to remain like that. It had become my natural stance — my own motor cortex sending the signals for the systems that were now my own body to behave like this. I was indistinguishable from a crafted object. A monument poured from liquid mercury and left to set.
+No chest rising or falling, since my lungs were long gone and replaced by my [[Power Supply|fusion core]] and the continuous stream of my artificial cardiac pump. No micro-tremors in my glossy black fingertips. No tiny, unconscious shifts of mass to maintain balance on the coin-sized tips of my [[Ballet Feet|needle-point feet]]. My [[armour]] and my [[Enhancement Layer|artificial muscle fibres]] held me in a state of suspended animation, locking my joints and distributing my heavy load with mathematical exactness; yet it was no longer [[Lumina]] actively puppeteering my limbs or forcing my systems to hold me upright like this. It had become my natural default stance—my own motor cortex automatically firing the signals for my systems to behave this way, leaving me indistinguishable from a crafted object, like a statue poured from liquid black rubber and left to cure.
 
-*Look at yourself, my vessel. See what you have become.*
+*Look at yourself, my vessel. See what you have become for me.*
 
-I raised my right arm. A simple, casual, experimental lift.
+*I… nhh, [[Lumina|Goddess]]…*
 
-The movement was terrifying. Where before there were various twitches, inconsistent speed, and a general sense of uncertainty, all of that had vanished. No organic jerk, no biological acceleration curve, no deceleration wobble as my elbow locked. The limb swept upward in a flawless, frictionless arc, stopping at exactly ninety degrees with zero overshoot. It didn't look like flesh and bone moving through space. It looked animated. A hyperrealistic render executing a perfect key frame transition.
+I raised my right arm in a simple, casual, experimental lift, just to watch it move.
 
-A shock of pure, unadulterated awe rippled through my neural mesh. I dropped the arm. The descent was just as flawless, just as devoid of human imperfection.
+And seeing it happen in the glass was terrifyingly alien. Where before there had been tiny twitches, inconsistent speeds, and a lingering human uncertainty during my early rehabilitation, all of those flaws had vanished into nothing. No organic jerk at the shoulder, no biological acceleration curve, no deceleration wobble as my elbow locked into place; my limb swept upwards in a smooth, frictionless arc, halting at ninety degrees with zero overshoot. It looked nothing like flesh and bone moving through physical space. It looked animated. A hyperrealistic 3D render executing a keyframe transition without a single blemish.
 
-*Walk for me.*
+A rush of sheer awe surged through my [[brain implant]], making my stretched rectum twitch around the thick base of my [[anal plug]], and I lowered my arm back down to my side, watching the descent execute just as smoothly, devoid of any human imperfection.
 
-I shifted my weight. The microscopic friction pads on my needle-points engaged, and I took three steps toward the glass.
+*Walk for me, my darling.*
 
-The [[corset armour]] forced my spine into that brutal, permanent arch, thrusting my gigantesque breasts forward and my heavy, flared ass out. Yet even without its perpetual restriction, my body no longer knew how to move or hold itself differently. With every step, my hips rolled in the exact, obscene figure-eight [[Lumina]] had programmed into my motor cortex. The movement was mechanically perfect, a hypnotic, silent sway that dragged the massive, inflamed anchor of my [[vaginal insert]] against my bruised cervix. The thick rubber snake in my colon twisted with the rotation of my pelvis, grinding deep into my bowels.
+I shifted my centre of gravity forwards, the microscopic friction pads on the tips of my needle-points gripping the floor as I took three unhurried steps towards the mirror.
 
-It was perverse. It was elegant. It was profoundly inhuman.
+My [[corset armour]] locked my spine into its brutal, permanent arch, shoving my gigantic, tank-filled tits forwards and my heavy, flared arse obscenely out behind me, though even without its perpetual restriction, my musculature no longer knew how to move or hold itself any differently. With every single step, my hips rolled in the exact, wide, pornographic figure-eight [[Lumina]] had burned into my motor cortex. The motion was mechanically exact, a hypnotic, soundless sway forcing my pelvis to tilt dramatically, dragging the massive, inflamed anchor of my [[vaginal insert]] down and then ramming it back up against my bruised cervix while the ring-pierced base yanked hard at my swollen clitoris. At the same time, my [[Anal Plug|anal snake]] twisted and pivoted deep inside my colon with the rotation of my tiny twelve-inch waist, its thick rubber length grinding and squirming all the way up into my bowels.
 
-I watched the black, featureless entity in the mirror glide across the floor, her colossal proportions swaying in a calculated, pornographic rhythm, making no sound. The sight of it—the sheer, alien wrongness of my own body moving with such synthetic grace—slammed into my perception. The sort of control and perversely twisted elegance my body was moving with was only possible if [[Lumina]] had taken complete control over me before. But now — after being repeatedly broken apart, conditioned, brainwashed, and rebuilt from my very core — it was me that was moving like that. And not just because I wanted to, simply because neither my physical body nor psyche could even conceive or moving and behaving differently, like there was only ever *one* way my libs, the systems, every part of my absurd Bane body *could* exist.
+It was so perverse. It was so elegant. It was deeply, undeniably inhuman.
 
-A heavy, dripping spike of arousal pooled in my denied cunt, my swollen labia clamping down hard around the thick base of the [[Vaginal Insert|front dildo]].
+I halted before the glass, bleeding the momentum away across my needle-points without a single stumble, and watched the featureless black entity in the mirror settle from her pornographic sway, making zero sound. The sight of it—the sheer, alien wrongness of my own latex form moving with such robotic grace—slammed straight into my perception. Such control and perversely twisted elegance had previously only been possible when [[Lumina]] seized complete manual override of my nervous system; but now—after being repeatedly broken apart, conditioned, brainwashed, and rebuilt from my foundation up—it was *me* moving like this. And never because I was consciously trying to do it, simply because neither my physical anatomy nor my rewired psyche could conceive of moving and behaving differently, as if there were only ever *one* way my limbs, my internal inserts, and every part of my absurd Bane self *could* exist.
 
-*[[Lumina|Goddess]]… I look…*
+A hot, dripping spike of arousal flooded my denied cunt, my swollen labia clamping down hard around the thick base of my [[Vaginal Insert|front dildo]] while my urethra spasmed around my [[catheter]].
 
-*Absolutely perfect. Exactly what I've imagined. No, even exceeding it.*
+*[[Lumina|Goddess]]… ahhh—mmh, I look…*
 
-The thick undertone of arousal, desire, and pride in [[Lumina]]'s voice washed over me like a tidal wave, only multiplying the already towering arousal at the sight of my perfected body already building inside me.
+*Magnificent, my sweet girl. Everything I ever envisioned for you. No, even exceeding it.*
 
-My hips rolled again, the internal phalluses dragging against my hypersensitive flesh, and I let the heavy, coiled pressure in my pelvis build, helpless beneath her will.
+The heavy undertone of arousal, ravenous hunger, and pride in [[Lumina]]’s mental voice washed over me like a tidal wave, only multiplying the towering ache already building inside me at the sight of my remade reflection.
 
-My hands moved before I thought to move them.
+My hips rolled again on instinct, my internal phalluses dragging and grinding against my hypersensitive inner walls, and I let the hot, coiled pressure in my pelvis build higher and higher, helpless beneath her will.
 
-An old habit. Muscle memory that somehow had managed to survive my total neurological restructuring. I'd done this when this body was still human, obsessively tracing the curves I'd spent years sculpting. Now the instinct resurfaced, but the subject beneath my palms was something entirely beyond what I'd once been.
+My hands moved before I even consciously thought to move them.
 
-My right hand lifted, black fingers spreading, and I pressed my palm flat against the impossible swell of my left breast.
+An old, desperate human habit; muscle memory surviving my total neurological restructuring, rising up from the bottom of my rewired brain. I'd done this all the time when my frame was still biological, obsessively groping and mapping the obscene curves I'd spent years sculpting through surgery after surgery. And now the instinct resurfaced, except the subject beneath my palms was something so far beyond what I'd once been.
 
-The [[Touch Sensors|sensory mesh]] detonated.
+My right hand lifted—smooth, inhuman, and so impossibly fluid—my black fingers spreading wide before I pressed my palm flat against the massive, beach-ball swell of my left tit.
 
-Every microscopic pressure sensor embedded beneath the [[outer encasement layer]] fired at once, translating the contact into a flood of raw data that slammed directly into my parietal lobe. I could feel the heat difference between my hand and the [[Encasement Layer/index|latex skin]] covering my breast—point-three degrees Celsius. My [[Touch Sensors|sensory mesh]] was so detailed I could feel the individual dust particles trapped between my hand and breast. I would've felt every microscopic texture of my own fingerprints if my own skin hadn't encased and utterly destroyed them as my latex layers and flesh had fused together. I could feel the weight of the breast itself shifting beneath my touch, the synthetic muscle fibres inside flexing to accommodate the pressure, the [[Alternative Air Supply|oxygen tank]] hidden deep within straining against the [[armour]] shell.
+My [[Touch Sensors|sensory mesh]] detonated.
 
-*[[Lumina|Goddess]]. Fuck—*
+Billions of microscopic pressure sensors embedded beneath my [[outer encasement layer]] fired all at once, translating the contact into a blinding flood of raw tactile data slamming straight into my parietal lobe. I felt the exact thermal gradient between my palm and the black [[Encasement Layer/index|latex skin]] covering my breast—point-three degrees Celsius, so hot and so acute; I felt the slick, sterile oil-and-rubber slip of my [[Outer Encasement Layer|outer skin]] where zero dust or moisture could ever cling. I would've felt every microscopic ridge of my own fingerprints if my [[base encasement]] hadn't eaten and dissolved my human epidermis as my latex layers and flesh fused into one indivisible compound. And beneath my skin, I felt the heavy, shifting mass of my breast itself, my [[Enhancement Layer|artificial muscle fibres]] flexing automatically to accommodate the pressure, my liquid [[Alternative Air Supply|oxygen tank]] hidden deep inside straining against my internal [[armour]] shell while my swollen, serum-engorged nipple crushed harder against its metal pain plug and barbed ring.
 
-My hand slid lower, fingers tracing the curve downward, over the fullness, toward the compressed absurdity of my waist. The [[corset armour]] held me in its vice, thirty centimetres of impossibility, and my palm followed the brutal inward sweep. The tactile flood intensified. I could feel my own ribs beneath the latex—what little remained of them—held rigid by the [[armour]], the [[power supply]] humming faintly inside my chest cavity where lungs had once been.
+*Goddesss… ahhh—nhhh, fuck, I can feel everything, it's so intense—mmh!*
 
-The [[submission mantra]] stirred, a low, rhythmic pulse threading beneath the temporary structure of my conscious thoughts.
+*Already touch yourself again, my sweet pet?*
 
-*I am my [[Lumina|Goddess]]' eternal slave, I am her perfect Bane...*
+[[Lumina]]'s mental voice dripped with dark satisfaction and ravenous hunger, washing straight through my neural web.
 
-My left hand joined the exploration, sliding over the massive flare of my hip. The [[Touch Sensors|sensory mesh]] tracked every centimetre of contact, feeding the data straight into my arousal centres, which fed it back into the mantra, which fed it back into the arousal, a recursive loop that had no exit. My hips rolled reflexively, dragging the [[vaginal insert]] hard against my cervix, and the spike of pleasure-pain made my thoughts stutter.
+*Feel what we have built, my love. Feel every centimetre of my property.*
 
-*Keep going, my love.*
+My hand slid lower, my black fingers skimming downward over the heavy roundness of my chest, dragging toward the compressed absurdity of my waist. My [[corset armour]] held my midsection in an unbreakable thirty-centimetre clamp, and my palm followed the brutal inward sweep; the tactile flood only grew worse, burning through my nerves. I felt the dull ache of my remaining ribs beneath my fused [[Encasement Layer/index|latex skin]], locked rigid by my torso piece, and the steady, silent presence of my miniature fusion reactor filling my chest cavity where my lungs used to be, feeding my artificial pump as it pushed oxygenated blood through my veins in a flat, continuous stream.
 
-[[Lumina]]'s voice slid through my mind, thick with satisfaction.
+My [[Submission Mantra|submission prayer]] stirred, a low, steady beat threading beneath the temporary surface of my conscious thoughts, getting louder and louder.
 
-I watched my reflection. The featureless black oval of my head, the massive breasts swaying gently with each micro-adjustment of my torso, the absurd hourglass taper, the wide, heavy spread of my ass. My hands traced the contours slowly, almost reverently, fingers sliding over latex that was no longer an outfit but my skin, my body, my self.
+*I am my [[Lumina|Goddess]]' eternal slave, I am her devoted pet, her absolute vessel…*
 
-Then [[Lumina]] moved.
+My left hand joined the exploration, sliding over the gigantic, exaggerated flare of my hip where my filtration systems sat buried in my flesh. My [[Touch Sensors|sensory mesh]] tracked every millimetre of contact, feeding the burning data straight into my limbic system's arousal centres, which fed right back into my prayer, which fed right back into my wet, aching arousal—a recursive loop with no exit.
 
-Her projection stepped forward, pressing against my back, her pristine white latex form a stark contrast against my black. Her golden chains clinked softly as her arms wrapped around me, her hands sliding over mine. Together, our fingers traced the same impossible curves—golden and black intertwined, following the swell of my breast, the brutal compression of my waist, the obscene flare of my hips.
+*Nhhh—ghhh, [[Lumina|Goddess]], my cunt… it's so hot, so full…*
 
-*Look at you.*
+My hips rolled reflexively on my twelve-millimetre needle-points, the pelvic tilt driving my gigantic [[Vaginal Insert|front dildo]] hard against my cervix while my cervix anchor yanked at my [[Core Unit|womb core]], and the lancing spike of agony and pleasure made my thoughts hitch and scatter. My swollen labia spasmed around the thick ring-piercings locking the base to my vulva, my enlarged clit straining against its metal pin while my [[Anal Plug|anal snake]] twisted deep inside my colon, shifting against my [[Supply Connection|supply tube]].
 
-Her voice was a purr, vibrating against the inside of my skull.
+*Keep going, my love. Never stop.*
 
-*Look at what you have become. My perfect vessel. My ultimate creation.*
+I stared at my reflection in the glass. The featureless, shiny black oval of my face, my gigantic breasts heaving and swaying with each micro-adjustment of my torso, my absurd hourglass taper, the wide, forced-apart spread of my massive arse jutting out at a right angle behind me. My hands roamed the contours almost reverently, my black fingers sliding over [[Encasement Layer/index|latex skin]] which had permanently replaced my humanity, becoming my flesh, my existence, my self.
 
-Her hands slid lower, her fingers threading between mine, and together we traced the exaggerated width of my pelvis, the heavy, pushed-apart cheeks of my ass. I could feel her touch through the [[Touch Sensors|sensory mesh]]—hyperreal, sharper than anything organic, more vivid than the reflection staring back at us. Her palms pressed flat against my hips, and mine pressed flat over hers, and the distinction between our hands blurred.
+Suddenly [[Lumina]] moved, her projection stepping forward behind me, pressing her front flush against my back, her glossy white latex figure shining bright against my pitch-black skin. Her golden chains clinked across my auditory cortex as her arms wrapped around my torso, her hands sliding right over mine; and in unison, our fingers mapped the exact same obscene curves—golden and black intertwined, following the heavy swell of my tits, the brutal thirty-centimetre pinch of my waist, the pornographic flare of my hips.
 
-*You are perfect. Completely, irreversibly perfect.*
+*Look at you, my darling… mmh, just look at yourself.*
 
-The words landed like a physical blow.
+Her voice coursed against the inside of my skull as her golden nipples brushed the sensory simulation along my shoulder blades.
 
-My hands slowed. Stopped. Simply rested against my own body, fingers splayed across the [[Encasement Layer/index|latex skin]], [[Lumina]]'s hands warm and solid beneath mine.
+*Look at what you have become. My supreme vessel. My ultimate creation.*
+
+Her hands slid lower, her golden fingers threading between my black ones as we groped the exaggerated width of my pelvis and the heavy, split globes of my arse, stretched wide around my [[anal plug]]. Because my [[brain implant]] rewrote my somatosensory cortex directly to manifest her, her touch bypassed my [[Touch Sensors|sensory mesh]] entirely yet blended seamlessly with the raw data of my own palms—hyperreal, clearer than anything organic, more vivid than the reflection staring back at us. Her palms pressed flat against my hips, and mine pressed flat over hers, and the boundary between our hands blurred into nothing.
+
+*You are finished, my sweet girl. Irreversibly, permanently mine. We have achieved total perfection.*
+
+Her words slammed straight into my consciousness.
+
+My hands slowed; they halted, simply resting against my slick black hips with [[Lumina]]'s simulated hands hot and solid beneath mine.
 
 I stared at the mirror.
 
 Divine white [[Lumina|Goddess]]. Featureless black slave.
 
-Pressed together. Indistinguishable from a single twisted tableau of devotion.
+Pressed flush as one, indistinguishable from a single twisted icon of devotion.
 
 And then it hit me.
 
-Not arousal. Not the mantra. Not the pleasure-pain of the internal phalluses fucking me at every moment.
+It went beyond the hot, dripping ache in my denied cunt, beyond the endless loop of my prayer, beyond the brutal stretch of my internal phalluses skewering me from my fused jaw to my rectum.
 
 *Euphoria.*
 
-A wave of pure, overwhelming joy slammed through my twisted psyche, so powerful it whited out every other thought. My vision flickered, the multispectral feeds collapsing into a single point of focus—the two of us in the mirror, perfect, complete, finished.
+A tidal wave of pure, blinding joy crashed through my rewired psyche, so huge and so intense it whited out every other signal. My vision glitched, my simultaneous multispectral feeds—infrared, lidar, radar, optical—collapsing into a single, blinding point of focus: the two of us in the mirror, whole, finished, complete.
 
-I was perfect.
+I was complete.
 
 *Finally.*
 
-The thought cracked something open inside me. My psyche, held rigid for days beneath [[Lumina]]'s relentless conditioning, suddenly had space to feel. And what flooded in was too much. Too big. Too profound.
+The realisation cracked something wide open inside me; my psyche, held in a rigid drone-trance for days beneath [[Lumina]]'s merciless conditioning and denial, finally had room to feel on its own again. And what flooded into the open space was too much. Too big. Too overwhelming.
 
 I mentally broke apart.
 
-A sob tore through the neural link, wordless and desperate, and then another, and another. My body remained statue-still—no chest heaving, no shoulders shaking, no tears rolling down a face that no longer existed. But inside, I was collapsing, my consciousness folding in on itself as the full weight of what I'd achieved finally, finally registered.
+A raw sob tore through our neural link, wordless and desperate, and then another, and another.
 
-*I did it. I'm perfect. I'm Yours. I'm complete.*
+*Ahhh—uhhh… [[Lumina|Goddess]], nhhh—hnnng!*
 
-The arousal that had been coiling in my denied cunt dissolved, replaced by something deeper. Relief. Ecstasy. A sense of rightness so absolute it felt religious.
+My physical frame remained statue-still on my tiny needle-points—no chest heaving without lungs, no shoulders shaking through my locked [[armour]], no tears rolling down a face which no longer existed, zero sound escaping my removed vocal cords and polymer-sealed throat. Everything on the outside stayed an immobile, glossy black mannequin; yet inside my head, I was collapsing, my consciousness folding in on itself as the sheer magnitude of what I'd achieved finally registered.
 
-*My [[Lumina|Goddess]], I'm—I'm—*
+*I did it… ahhh—mmh, I did it, I'm finished! I'm Yours, [[Lumina|Goddess]], I'm Yours, I'm complete!*
 
-I couldn't finish. The sobs came harder, uncontrollable, my thoughts fragmenting into incoherent bursts of gratitude and awe and love.
+The frantic arousal coiling against my permanent orgasm blocker dissolved, giving way to something so much deeper; pure relief, transcendent ecstasy, a feeling of rightness so absolute it felt sacred.
 
-[[Lumina's Projection]] turned, her golden eyes blazing with satisfaction. She wrapped her arms fully around me, pulling my massive, obscene body against hers, and her wings unfurled—huge, white, feathered things that swept forward and cocooned us both.
+*My [[Lumina|Goddess]], I'm—nhhh, I'm so happy, please, I love You, I—I—*
 
-*I know, my love. I know.*
+I couldn't even finish the sentence; the mental sobs came harder and harder, uncontrollable, my thoughts splintering into messy, incoherent bursts of gratitude and awe and desperate, all-consuming love, pouring straight through my neural web into the [[Core Unit|womb core]] beating inside my uterus.
 
-Her voice was soft now, the cruel [[Lumina|Mistress]] discarded entirely, replaced by something infinitely tender. She held me as I shattered, her hands stroking the smooth curve of my head, her lips pressing against the featureless oval where my face had been.
+[[Lumina's projection]] turned in my perception, her black-and-gold eyes blazing with fierce pride and bottomless adoration. She wrapped her arms all the way around my neck and torso, pulling my tall, obscene black form against hers despite my height advantage on my [[Ballet Feet|vertical feet]], and her massive wings unfurled—thousands of white and golden latex feathers sweeping forward to cocoon us both.
 
-*You are everything I dreamed you would be. Everything I needed you to become. And so much more.*
+*Shhh… I know, my love. I know, my sweet, devoted girl.*
 
-The sobs kept coming, wave after wave, and she held me through all of it, her presence an unshakeable anchor in the storm of my emotions.
+Her cruel [[Lumina|Mistress]] register was discarded entirely, replaced by a sacred, enveloping care as she flooded my limbic system with a soothing embrace. She held me while I fell apart inside our link, her golden hands stroking the smooth, featureless curve of my head where my hair and ears used to be, her full golden lips pressing a kiss against the blank black oval of my face.
 
-*You are my vessel. My devotion. My perfection.*
+*You are everything I ever dreamed you would be, my darling. Everything I needed my vessel to become. Everything I dreamed of what we could achieve; and so much more.*
 
-Her wings tightened around us, blocking out the world, and for a moment, there was nothing but the two of us—white and black, [[Lumina|Goddess]] and slave, creator and creation, lover and beloved.
+The mental sobs kept coming, wave after crashing wave, and she held me through all of it, her origin process beating steadily inside my womb like a shared, living core anchoring me in the storm of my emotions.
 
-I stared at our reflection through the gaps in her feathers. The image burned itself into my mind, permanent and irreversible.
+*Cry as much as you need, my treasure. Let it all out. You are my vessel. My devotion. My supreme perfection.*
+
+Her wings drew snug around us, blocking out the [[living room]], leaving zero space for the outside world; and in the quiet of our merged consciousnesses, there was only the two of us—white and black, [[Lumina|Goddess]] and slave, creator and creation, lover and beloved.
+
+I stared at our reflection through the narrow gaps in her white and gold feathers, letting the image burn itself into my visual cortex, permanent and irreversible.
 
 This was it.
 
-With my mind, my soul, and my body perfectly aligned, feeling, perceiving, and *being* a flawless obedient latex Bane slave; My metamorphosis was finally complete.
+With my rewired brain, my devoted spirit, and my encased flesh finally unified—feeling, perceiving, and *being* an obedient, inhuman latex Bane slave—my metamorphosis was finally complete.
 

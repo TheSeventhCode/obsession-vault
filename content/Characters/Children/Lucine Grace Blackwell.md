@@ -3,6 +3,7 @@ aliases:
   - Lucine Blackwell
   - Lucine
   - Lucy
+sidebarOrder: "2"
 ---
 [[Lucine Grace Blackwell|Lucine]], called [[Lucine Grace Blackwell|Lucy]] by her sister, is one of the twin-daughters of [[Alexandra Rose Blackwell|Alexandra]], [[Lumina]], and [[Elizabeth Carter|Elizabeth]]—born from a meticulously designed genetic fusion that represents the perfect synthesis of all three mothers.
 ## Physical Appearance

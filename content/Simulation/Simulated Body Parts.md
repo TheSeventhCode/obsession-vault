@@ -16,16 +16,15 @@ The [[brain implant]] generates these phantom body parts by:
 3. **Enabling Interaction:** The simulated anatomy can _respond_ to external stimuli—most commonly [[Lumina's projection]]. When [[Lumina]] kisses [[Alexandra Rose Blackwell|Alexandra]]'s featureless face, the [[brain implant]] generates the complete sensory experience of lips pressing together, tongues meeting, the warm wetness of a kiss. [[Alexandra Rose Blackwell|Alexandra]] feels her phantom mouth opening, her phantom tongue moving, responding, tasting—all whilst simultaneously feeling the [[gag]] that has replaced that anatomy entirely.
 4. **Maintaining Perfect Control:** Because the simulated anatomy exists only in [[Alexandra Rose Blackwell|Alexandra]]'s perception, [[Lumina]] has absolute authority over its behaviour and sensation. She can make [[Alexandra Rose Blackwell|Alexandra]]'s phantom tongue eager, hesitant, skilled, clumsy. She can amplify sensitivity, dull it, introduce pleasure or pain. Or, most often, she just gives over control to [[Alexandra Rose Blackwell|Alexandra]], letting her feel, experience, and use these parts as if she still had these body parts.
 
-### Mouth and Tongue
+#### Mouth and Tongue
 
 This is the most frequently deployed simulation. Despite [[Alexandra Rose Blackwell|Alexandra]]'s mouth having been surgically removed, her jaw shut, her throat filled from lips to stomach with the massive [[gag]], and her entire head being sealed, locked-away, and transformed into one smooth, featureless latex oval, [[Lumina]] regularly simulates the experience of having a functional mouth. Though just like any other “accessible” surface that exists in [[Alexandra Rose Blackwell|Alexandra]]'s body, this [[Simulated Body Parts|simulated mouth]], lips, teeth, and tongue are fully made out of and feel like the same flawless glossy latex as her permanent skin.
 
 This allows:
-
 - **Kissing**: When [[Lumina's projection]] (or later on others that have the [[brain link implant]] such as [[Elizabeth]]) kisses [[Alexandra Rose Blackwell|Alexandra]]'s smooth, featureless face, [[Alexandra Rose Blackwell|Alexandra]] feels lips—soft, warm, mobile—pressing against hers. Her phantom tongue can meet [[Lumina]]'s (also simulated), tasting her, responding with desperate eagerness. The kiss feels utterly, overwhelmingly real for both persons, the other feeling like they are kissing a wet latex mouth, lips, and tongue.
 - **Oral Service**: [[Lumina]] can simulate [[Alexandra Rose Blackwell|Alexandra]]'s mouth and tongue in order to receive oral pleasure from her slave. [[Alexandra Rose Blackwell|Alexandra]] can lick, suck, and taste [[Lumina]]'s divine golden genitals—her phantom tongue working with frantic devotion whilst her actual throat remains filled and sealed.
 - **Dual Sensations**: Throughout these interactions, [[Alexandra Rose Blackwell|Alexandra]] simultaneously feels the reality—the [[gag]] thrusting deeper as her body stiffens, the immobile jaw clamped inflated rubber that has fused with her inner tissue, the sealed cavity that has no opening. The contrast between the phantom freedom of a working mouth and the physical reality of total occlusion is psychologically and erotically devastating.
 
-## Limitations
+### Limitations
 
 **Perception-Only:** [[Simulated body parts]] exist solely in [[Alexandra Rose Blackwell|Alexandra]]'s perception. They cannot physically interact with the real world (except through the projection, which is itself perceptual). If someone other than [[Alexandra Rose Blackwell|Alexandra]] were present, they would see only her featureless face and sealed body—no phantom anatomy would be visible.

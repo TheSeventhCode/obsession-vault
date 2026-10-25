@@ -1,6 +1,7 @@
 ---
 aliases:
   - Mansion
+sidebarOrder: "2"
 ---
 [[Alexandra's Mansion]] is built in a quite modern, and almost Roman style, with a lot of white on the outside and sometimes almost futuristic sections. The circular [[driveway]] stops right before the main entrance of the [[Alexandra's Mansion|mansion]]. To the left-hand side, it also has a connection to the side building that serves as the garage.
 

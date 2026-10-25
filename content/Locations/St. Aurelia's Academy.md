@@ -3,6 +3,7 @@ aliases:
   - St. Aurelia's
   - The Academy
   - Aurelia's
+sidebarOrder: "8"
 ---
 St. Aurelia’s Academy is one of the most prestigious elite private schools on the continent, attended almost exclusively by the children of old-money dynasties, billionaires, royalty, oligarchs, sheiks, industrial heirs, diplomatic families, and other entrenched global elites.
 

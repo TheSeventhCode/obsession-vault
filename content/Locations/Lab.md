@@ -6,6 +6,7 @@ aliases:
   - transformation room
   - clean room
   - spray chamber
+sidebarOrder: "4"
 ---
 The [[lab]] is a large clean-room deep within [[Alexandra's mansion]] and on the basement level. In here, [[Alexandra Rose Blackwell|Alexandra]] and [[Lumina]] have developed and manufactured all the devices, materials, and systems for [[Alexandra Rose Blackwell|Alexandra]]'s transformation.
 

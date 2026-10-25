@@ -5,16 +5,20 @@ aliases:
   - electromagnetic propulsion
   - GFM
   - EMP
+sidebarOrder: "7"
 ---
 In order to achieve an absolutely inhuman level of mobility and movement, as well as fundamentally redefine what [[Alexandra Rose Blackwell|Alexandra]]'s body is capable of, [[Lumina]] and her have developed an advanced dual-system levitation and flight system.
 
 This fully integrated flight system is permanently embedded into [[Alexandra Rose Blackwell|Alexandra]]'s skeletal structure and body anatomy. The system consists of a primary [[Flight Systems|Gravitational Field Manipulation]] network for lift and efficient flight, and a secondary [[Flight Systems|Electromagnetic Propulsion]] system for high-speed acceleration and directional thrust. Both systems draw power from [[Alexandra Rose Blackwell|Alexandra]]'s [[Power Supply|fusion core]] and are completely sealed within [[Alexandra Rose Blackwell|Alexandra]]'s modified body, becoming entirely invisible after her complete Bane encasement.
-# Function
-## [[Flight Systems|Gravitational Field Manipulation]] ([[Flight Systems|GFM]])
+
+This omnidirectional flight system is embedded into [[Alexandra Rose Blackwell|Alexandra]] during her [[Nanobots|nanobot conversion]], since [[Lumina]] has further developed the involved systems since their initial use to create the original compact fusion reactor [[Alexandra Rose Blackwell|Alexandra]] had created.
+
+## Function
+### [[Flight Systems|Gravitational Field Manipulation]] ([[Flight Systems|GFM]])
 
 The [[Flight Systems|GFM]] network is the primary and largely most often used system for [[Alexandra Rose Blackwell|Alexandra]] to fly. The network consists of microscopic gravitational manipulation nodes embedded directly into [[Alexandra Rose Blackwell|Alexandra]]'s entire skeletal structure during various transformation surgeries. The most important parts are done during the implantation of the [[Power Supply|fusion core]] and [[Alternative Air Supply|life support systems]], or the needle-point foot surgery. This is not a localised system, but a complete skeletal framework providing distributed gravitational control across her entire body.
 
-### Architecture and Integration
+#### Architecture and Integration
 
 The distribution of the various field manipulation nodes follows her complete bone structure:
 
@@ -27,7 +31,7 @@ The distribution of the various field manipulation nodes follows her complete bo
 
 The entire system draws directly from the [[Power Supply|fusion core]], with power consumption scaling from negligible during hover modes to more substantial during high-intensity manoeuvring.
 
-### Operational Capabilities
+#### Operational Capabilities
 
 Each node generates a localised gravitational field distortion. These fields are fully vectored—capable of pushing, pulling, or creating null-gravity zones. When networked together, [[Alexandra Rose Blackwell|Alexandra]]'s entire skeleton functions as a unified gravitational manipulation array, with field strength scaling based on power input and node concentration at any given area.
 
@@ -37,15 +41,15 @@ The system operates across a broad performance spectrum:
 - Medium-intensity operations allow sustained flight at 50-60 km/h cruise speeds, with smooth acceleration and deceleration at 2-4 G. This mode can be sustained for hours and represents the most energy-efficient configuration for travel (though [[Alexandra Rose Blackwell|Alexandra]] and [[Lumina]] rarely actually travel by flying, due to the possible risk of being discovered).
 - High-intensity operations push the system into rapid acceleration territory, with 15-20 G capability and speeds using the [[Flight Systems|GFM]] alone reaching 300-400 km/h. Sharp directional changes become possible without inertial penalties due to the mass modulation properties. However, this mode generates significant heat and higher power draw, limiting continuous high-intensity use to 15–25 minutes before thermal management becomes difficult.
 
-### Mass Modulation
+#### Mass Modulation
 
 A critical function of the [[Flight Systems|GFM]] is its ability to module [[Alexandra Rose Blackwell|Alexandra]]'s effective mass. The system can reduce her mass to near-zero for maximum levitation efficiency, or increase it to several tonnes for impact-force or anchoring purposes. Transition between these states is near-instantaneous, limited only by power delivery speed rather than any mechanical constraint.
 
-### Control Requirements
+#### Control Requirements
 
 The [[Flight Systems|GFM]] system is a highly advanced distributed system, requiring immense calculations to be performed at all times. Only with [[Lumina]]'s control systems is the system even in a useable state, with stable flight involving real-time adjustments to hundreds of individual node outputs, with calculations accounting for atmospheric conditions, velocity, orientation, and intended manoeuvres. The computational load is immense—only [[Lumina]]'s processing capabilities within the [[Core Unit|control core unit]] makes stable flight possible. [[Alexandra Rose Blackwell|Alexandra]] cannot operate the [[flight systems]] without [[Lumina]]'s direct control and direct translation of her intentions.
 
-## [[Flight Systems|Electromagnetic Propulsion]] ([[Flight Systems|EMP]])
+### [[Flight Systems|Electromagnetic Propulsion]] ([[Flight Systems|EMP]])
 
 The [[Flight Systems|EMP]] system provides more advanced, high-speed acceleration and directional thrust through a full-limb integration of electromagnetic field generators, ionisation chambers, and plasma acceleration channels. These components are embedded beneath the [[enhancement layer]], wrapped around the [[Armour|armour layer]], and integrated directly into [[Alexandra Rose Blackwell|Alexandra]]'s modified skeletal structure.
 
@@ -59,7 +63,7 @@ The power architecture involves direct high-current feeds from the [[Power Suppl
 
 Given the [[armour]]'s total protection from electromagnetic interference, acting as a complete Faraday cage, the [[Flight Systems|EMP]] system actively cooperates with it. The [[armour]] shields internal systems from [[Alexandra Rose Blackwell|Alexandra]]'s own field generation, shaping smoother field gradients, preventing interferences with [[Brain Implant|neural implant]] and other core systems, and acts as a controlled conduction structure embedded beneath her [[Encasement Layer/index|latex skin]].
 
-### Operational Capabilities
+#### Operational Capabilities
 
 The [[Flight Systems|EMP]] flight system provides two primary functions; electromagnetic field generation for interaction with ferromagnetic materials, and atmospheric ionisation for plasma propulsion.
 
@@ -76,7 +80,7 @@ The system's performance spectrum spans from subtle to an absurd power output:
 
 The magnetic launch and braking function can generate multi-tonne attractive or repulsive force against ferromagnetic structures. This allows for slingshot-like manoeuvres using buildings, vehicles, and infrastructure with near-instantaneous acceleration and deceleration limited only by the [[Flight Systems|GFM]]'s ability to compensate for inertia, though even possible crashes will result in no damage with the absolute protection by the [[armour]]. This mode is particularly effective in urban environments with abundant steel structures.
 
-## Integrated Hybrid Operation
+### Integrated Hybrid Operation
 
 Although in most situations the [[Flight Systems|Gravitational Field Manipulation]] system is more than sufficient, true capability emerges from a combined operation, with both systems working together to compensate the other's limitations.
 
@@ -86,12 +90,11 @@ Although in most situations the [[Flight Systems|Gravitational Field Manipulatio
 - High-speed intercept mode uses the [[Flight Systems|EMP]] as primary with some compensation by the [[Flight Systems|GFM]] system. Reducing mass and handling inertial compensation with the [[Flight Systems|GFM]] system, while high-power [[Flight Systems|EMP]] provides maximum thrust. This achieves a staggering 1,500-2,000 km/h with bright plasma trails from all limbs. Duration is limited to 3–5 minutes of continuous use before thermal limits, and this mode is reserved for emergency situations or when speed is absolutely critical.
 - Another theoretical maximum mode engages everything at maximum output, achieving 2,500-3,000 km/h with 40+ G acceleration capability. Extreme plasma trails and massive electromagnetic interference result. Duration is only 60–90 seconds before overheating becomes critical. This is purely the theoretically calculated maximum, reserved for truly desperate situations.
 
-## Control Integration and Sensory Feedback
+### Control Integration and Sensory Feedback
 
-The entire flight system is too complicated for [[Alexandra Rose Blackwell|Alexandra]] to manually control. It is directly bound and controlled by [[Lumina]], with absolute real-time control over every node and emitter, who then forwards simplified, intuitive control to [[Alexandra Rose Blackwell|Alexandra]] through the [[Brain Implant]]. Flight calculations involve continuous gravitational field adjustments across more than 200 individual nodes, plasma thrust vector-calculations across more than 50 independent emitter arrays, mass modulation synchronized with thrust output, integration of the [[Ear Removal|balance systems]], [[Touch Sensors|sensory mesh]] feedback for environmental awareness, and thermal management across all systems. The computational load required for stable flight is immense—only [[Lumina]]'s processing power makes it possible, her [[Core Unit|control core unit]] just barely capable of the innumerable calculations at top-level speeds, though necessary to be done right within [[Alexandra Rose Blackwell|Alexandra]]'s body, any possible remote connection to other systems could be severed. [[Alexandra Rose Blackwell|Alexandra]] is incapable of flying without [[Lumina]]'s constant, active involvement.
+The entire flight system is too complicated for [[Alexandra Rose Blackwell|Alexandra]] to manually control. It is directly bound and controlled by [[Lumina]], with absolute real-time control over every node and emitter, who then forwards simplified, intuitive control to [[Alexandra Rose Blackwell|Alexandra]] through the [[brain implant]]. Flight calculations involve continuous gravitational field adjustments across more than 200 individual nodes, plasma thrust vector-calculations across more than 50 independent emitter arrays, mass modulation synchronized with thrust output, integration of the [[Ear Removal|balance systems]], [[Touch Sensors|sensory mesh]] feedback for environmental awareness, and thermal management across all systems. The computational load required for stable flight is immense—only [[Lumina]]'s processing power makes it possible, her [[Core Unit|control core unit]] just barely capable of the innumerable calculations at top-level speeds, though necessary to be done right within [[Alexandra Rose Blackwell|Alexandra]]'s body, any possible remote connection to other systems could be severed. [[Alexandra Rose Blackwell|Alexandra]] is incapable of flying without [[Lumina]]'s constant, active involvement.
 
 Sensory feedback floods [[Alexandra Rose Blackwell|Alexandra]]'s perception during flight. Gravitational field distortions register as phantom pressure and weight sensations across her entire body. Electromagnetic field activation feels like static electricity across her [[Encasement Layer/index|latex skin]]. Ionisation creates temperature differences that her [[Touch Sensors|sensory mesh]] registers as immense heat of plasma formation. Her [[Ear Removal|balance systems]] provide perfect three-dimensional orientation awareness. Sensory overload during high-intensity flight is substantial—[[Lumina]] often having to filter [[Alexandra Rose Blackwell|Alexandra]]'s perception and data streams to keep her functional.
-
 - With [[Alexandra Rose Blackwell|Alexandra]]'s permanent [[Encasement Layer/index|latex skin]] being absurdly sensitive, active flight floods her perception even more than before. Pressure gradients, airflows over her breasts, waist, hips and thighs, thermal differences from any plasma formation, minute turbulence around the absurd curves of her body, static charge prickling over her [[Encasement Layer/index|latex skin]] — even the simplest levitation can feel almost like being stroked everywhere at once.
 - At high-output levels and speeds, [[Alexandra Rose Blackwell|Alexandra]] experiences a constant full-body compressive pressure, with a heavy static-like prickling through the [[Touch Sensors|sensory mesh]]. The ridiculous speeds cause deep internal vibrations through the [[armour]] and enhancement layers, as well as involuntary stimulation of the embedded devices from acceleration and posture changes.
 - During active flight, [[Alexandra Rose Blackwell|Alexandra]]'s [[armour]] stiffens heavily around most of the torso, especially before hard acceleration. It locks [[Alexandra Rose Blackwell|Alexandra]]'s neck and spine into the exact orientation, reduces breast / glute movement at higher speeds, and allows controlled flexibility only in selected joints to ensure safety.
@@ -104,7 +107,7 @@ Any significantly strong enough acceleration or deceleration causes respective s
 - During strong acceleration, dives, or abrupt direction changes, the [[gag]] inside her throat, oesophagus, and stomach stretches and shifts along its entire length. Inversion creates a slightly uncomfortable, deep internal pressure in [[Alexandra Rose Blackwell|Alexandra]]'s throat and stomach, while rapid thrust changes make the [[gag]] drag against her swollen oesophagus.
 - Although the [[armour]] most often stiffens around [[Alexandra Rose Blackwell|Alexandra]]'s massive tits and breasts during flight to reduce any flailing and movement, the [[nipple plugs]] and piercings still cause enough troubles during flight. Any strong enough acceleration or aerial manoeuvres cause her breasts to move, resulting in small shifts in their weight and drag against the ultra-sensitive nipples and the brutal plugs inside them. [[Lumina]] sometimes deliberately decreases the amount [[Alexandra Rose Blackwell|Alexandra]]'s breasts stiffen, allowing for more free movement, and in turn more passive aching sensations from the sensitive nipples.
 
-### Thermal Management and System Limitations
+#### Thermal Management and System Limitations
 
 Heat management is the primary constraint on maximum performance. The [[Power Supply|fusion core]] generates a base heat load. The [[Flight Systems|GFM]] adds minimal thermal output, but it is the [[Flight Systems|EMP]] system that generates significant heat that scales heavily with thrust. During intense flights, the [[chemical engine]] cycles at high capacity, converting waste heat and CO₂. Heat distributes throughout [[Alexandra Rose Blackwell|Alexandra]]'s body—her [[Encasement Layer/index|latex skin]] becomes noticeably warm during sustained, high-intensity flight. These thermal limits constrain maximum performance duration more than any other factor.
 
@@ -116,14 +119,15 @@ The computational load is immense, with any sort of flight stability requiring [
 
 At some point, structural limits also exist despite the [[armour]]'s invulnerability. Maximum acceleration remains limited by what the skeletal integration points can withstand. The nodes are fused to bone, and extreme forces could theoretically damage the biological anchor points. The practical limit is approximately 40 G before risk to skeletal structure becomes significant, though in practise, this is never an issue as nothing ever pushes [[Alexandra Rose Blackwell|Alexandra]] that hard.
 
-## Practical Usage
+### Practical Usage
 
 Typical operations fall well below any sense of the theoretical maximums. Hover and indoor flight only require the [[Flight Systems|GFM]] — remaining silent and sustainable indefinitely. Movement within [[Alexandra's property]] uses very low cruise speeds at 20 to maximally 50 km/h, comfortable and efficient. Basically unthinkable rapid response situations use medium to high cruise at 400-800 km/h, representing the practical maximum for any scenarios. Emergency situations over long distances might engage high-speed intercept mode at 1,500-2,000 km/h for short durations.
 
 The ridiculous capabilities at the extreme end exist simply because the systems are capable of it, and [[Lumina]] wants to push everything with [[Alexandra Rose Blackwell|Alexandra]]'s body to its limits, not because these modes serve any regular operational purposes. They would only be used in genuinely extreme scenarios, serving more as a demonstration of how inhuman [[Alexandra Rose Blackwell|Alexandra]]'s body has become and what her and [[Lumina]]'s technological abilities are capable of achieving (basically just a gigantic flex, even if no one will ever actually know about it). The fact that [[Alexandra Rose Blackwell|Alexandra]] could theoretically accelerate to Mach 2+ and pull 40 G turns if needed is part of the point.
 
 She is not human any more, not even close to it, and her body's capabilities reflect that reality.
-# Physical Appearance
+
+## Physical Appearance
 The [[flight systems]] are entirely invisible under normal operation, completely integrated beneath [[Alexandra Rose Blackwell|Alexandra]]'s flawless black [[Encasement Layer/index|latex skin]]. No external components, vents, or structural modifications exist.
 
 During low to moderate intensity flight using primarily the [[Flight Systems|GFM]] system, there remains no visible indication of the technology at work. [[Alexandra Rose Blackwell|Alexandra]] simply levitates, hovering silently with no visible means of propulsion. At most, careful observation might detect a faint heat shimmer in the air around her body from gravitational distortion effects. She hovers as if suspended by invisible threads, yet freely moves, rotates, and positions without limits.
@@ -135,5 +139,3 @@ During higher intensities, bright blue-white plasma trails stream from all activ
 At theoretical maximum output, her entire body becomes surrounded by ionised air, brilliant plasma trails streaming from every limb, creating an almost blinding visual effect. The contrast between her utterly black latex body and the blazing blue-white plasma creates an impossible, otherworldly appearance. This mode also generates substantial ozone, a distinctive sharp smell that permeates the surrounding area, and produces enough electromagnetic interference to cause unshielded electronics within 100 metres to glitch or fail completely.
 
 During most flights, [[Alexandra Rose Blackwell|Alexandra]] retains a strictly upright posture with her arms at her sides, her head often lifted in flight direction, creating an absurd, smooth, curved line from her forehead to needle-point tip. At low speeds, this is mostly quite relaxed (as relaxed as the posture and natural movement [[Lumina]] has drilled into [[Alexandra Rose Blackwell|Alexandra]] can be). When engaging the [[Flight Systems|EMP]] system for higher thrusts, her legs part slightly for proper individual thrusts, and her entire body stiffens heavily, a mix of the [[armour]] interlocking and the [[enhancement layer]] bracing.
-
-![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/random/alex-flight_1/public)

@@ -27,6 +27,9 @@ The following conversions and processes are done by these [[nanobots]]:
 - [[Skeletal transformation]]
 - [[Blood and Marrow Conversion]]
 - [[Neural and Brain Conversion]]
+- [[Flight Systems]]
+
+## Complete Integration
 
 By the completion of [[Alexandra Rose Blackwell|Alexandra]]'s transformation by the [[nanobots]], nothing remains of her human biology. Her black [[Encasement Layer/index|latex skin]] has fused with synthetic systems beneath, blood vessels that now carry [[Lumina]]'s holy essence merged and entrenched into the living latex.
 
@@ -39,6 +42,7 @@ Every structure below her [[Armour|armour layer]] transforms:
 - her organs reform into warm, pliant, rubberlike shapes
 - her fat becomes a smooth cushioning gel beneath the surface
 - even the dermal layers turn into self‑healing latex membranes
+- In the end, beneath her outer layer, [[Alexandra Rose Blackwell|Alexandra]] physically becomes almost a single living piece of latex flesh.
 
 The only elements left unchanged are her carbon‑fibre bones and synthetic nerves, which thread through the new rubber substrate like a control lattice. What remains is not human tissue at all, but **animated latex wrapped around machinery and nerve‑paths**, a body sculpted entirely for durability, obedience, and sensation. [[Alexandra Rose Blackwell|Alexandra]] becomes a true living latex doll—her [[Lumina|Goddess]]’s creation, built of nothing but devices, nerves, and [[Lumina]]‑responsive rubber flesh. The transformation also hard‑codes elasticity and sensitivity into the material itself; her new latex flesh transmits vibration and pressure more cleanly than muscle ever could. Even the slightest internal movement becomes a deep, rolling, irresistible sensation, as if the entire body were one continuous erogenous structure.
 
@@ -48,9 +52,11 @@ The transformation leaves [[Alexandra Rose Blackwell|Alexandra]] in a state so f
 
 Eventually, [[Lumina]] even changes how [[Alexandra Rose Blackwell|Alexandra]]'s synthetic body works, restructuring [[Alexandra Rose Blackwell|Alexandra]]'s brain or other synthetic organs. [[Alexandra Rose Blackwell|Alexandra]]'s entire body will technically only need the [[power supply]] fused within her chest to work, every single cell and part of her body having been reworked and replaced by synthetic material that works with the energy from the fusion reactor. But instead of stopping with the routine maintenance cycles to resupply [[Alexandra Rose Blackwell|Alexandra]], they continue as a last ritual of recollection of [[Alexandra Rose Blackwell|Alexandra]]'s once human origins.
 
-In the end, [[Alexandra Rose Blackwell|Alexandra]]'s synthetic body is a mixture of the living latex-flesh and [[Lumina]]'s permanent systems, with over 60% of her body being purely [[Lumina]]'s [[nanobots]]—either fulfiling some role, or just converted into [[Alexandra Rose Blackwell|Alexandra]]'s latex flesh. These [[nanobots]] that make up a majority of [[Alexandra Rose Blackwell|Alexandra]]'s body can be re-activated at any time, essentially allowing [[Lumina]] to restructure [[Alexandra Rose Blackwell|Alexandra]]'s physical body at any time into anything.
+In the end, [[Alexandra Rose Blackwell|Alexandra]]'s synthetic body is at its core more like a specifcally assembled form of [[Lumina]]'s [[nanobots]], just converted into living latex-flesh or other parts, with only [[Lumina]]'s already existing permanent systems still present. These [[nanobots]], which essentially now _are_ [[Alexandra Rose Blackwell|Alexandra]]'s physical body—having converted any and all remaining matter into synthetic copies—can be re-activated at any time, essentially giving [[Lumina]] the power to restructure [[Alexandra Rose Blackwell|Alexandra]]'s physical body at any time into anything.
 
 In quiet moments, when [[Alexandra Rose Blackwell|Alexandra]] accesses her remaining human memories, she sometimes marvels at how complete her transformation has become. There is no part left of her that remained untouched, no cell or thought that existed independently of [[Lumina]]. She has surrendered not just body and mind, but every substance of her being.
+
+Given the complete replacement of the entire body underneath the [[Encasement Layer/index|latex skin]], and the fully merging of it with the [[nanobots]] inside [[Alexandra Rose Blackwell|Alexandra]], [[Lumina]] can technically rework the previous permanent encasement however she wants. There is nothing really to be “released” out of the mobile prison, since [[Alexandra Rose Blackwell|Alexandra]] has become the prison herself. Though the only occasion where [[Lumina]] makes use of this is to temporarily reform a latex mouth and lips on [[Alexandra Rose Blackwell|Alexandra]]'s featureless face, in order to actually kiss someone ([[Elizabeth]] or [[Lumina]]) instead lf relying on a simulation by the [[brain implant]]. If reformed, [[Alexandra Rose Blackwell|Alexandra]] gains a complete mouth with teeth and tongue, just everything made out of pure, ultra-sensitive latex flesh.
 
 ## Physical Appearance
 Even after the complete [[Nanobots|nanobot conversion]], [[Alexandra Rose Blackwell|Alexandra]]'s bane appearance doesn't change at all, nothing hinting at the extreme, second, fundamental transformation that has occurred within this shiny black anonymous being.

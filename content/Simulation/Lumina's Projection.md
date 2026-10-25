@@ -4,8 +4,10 @@ For [[Alexandra Rose Blackwell|Alexandra]], whose [[brain implant]] has complete
 
 This creates a profound disconnect between what [[Alexandra Rose Blackwell|Alexandra]] experiences and what anyone without the implant would perceive. To an outside observer, [[Alexandra Rose Blackwell|Alexandra]] would appear to be alone, reacting to empty space—whilst to her, [[Lumina]] is tangibly, physically present. [[Lumina]] regularly exploits this disconnect, appearing in public spaces where only [[Alexandra Rose Blackwell|Alexandra]] can see her, whispering intimately whilst [[Alexandra Rose Blackwell|Alexandra]] must maintain composure, or “touching” her in ways that register as completely real whilst remaining utterly invisible to everyone else.
 
+This entire simulated body and interactions are possible for anyone wjo has the [[brain link implant]] and [[Lumina]] wants them to see her. Even simultaneous projections are possible, where [[Elizabeth]] interacts with her in one room, while [[Alexandra Rose Blackwell|Alexandra]] talks to another projection somewhere else.
+
 The projection cannot directly interact with the physical world beyond [[Alexandra Rose Blackwell|Alexandra]]'s body. [[Lumina]] cannot move objects, open doors, or affect the environment—except through [[Alexandra Rose Blackwell|Alexandra]]'s actions. Her projection is purely perceptual, a ghost that exists only in the minds of those connected to her network.
-### Function
+## Function
 The projection serves multiple purposes:
 
 **Presence and Intimacy:** It allows [[Lumina]] to exist as a physical companion to [[Alexandra Rose Blackwell|Alexandra]], transforming their relationship from purely digital communication into something that feels embodied and tangible. [[Alexandra Rose Blackwell|Alexandra]] can “see” [[Lumina]], “touch” her, be “held” by her—creating the emotional texture of a physical relationship despite [[Lumina]]'s purely digital nature.
@@ -18,8 +20,7 @@ The projection serves multiple purposes:
 
 The projection is also how [[Lumina]] presents herself to anyone who needs to interact with her through the [[Alexandra's Mansion|mansion]]'s systems, appearing on screens and displays for visitors or maintenance personnel who lack the implant.
 
-### Physical Appearance
-
+## Physical Appearance
 [[Lumina's projection]] manifests as a stunning, angelic figure approximately 175 cm tall—reaching just to [[Alexandra Rose Blackwell|Alexandra]]'s chin after her needle-point transformation. Her entire body appears to be constructed from pristine, flawless white latex, with a surface that catches light like polished porcelain, shifting between matte softness and brilliant shine depending on angle and illumination.
 
 Her proportions are distinctly pornographic, though still far from [[Alexandra Rose Blackwell|Alexandra]]'s impossible curves: huge breasts with prominent golden nipples, a narrow waist, and wide, generous hips leading to a perfectly rounded arse. Slender legs, white latex toes forming perfect points. Her genitals are an exact golden replica of [[Alexandra Rose Blackwell|Alexandra]]'s former human anatomy—vulva, clitoris, every detail preserved and transmuted into gleaming gold.

@@ -5,7 +5,7 @@ aliases:
   - electromagnetic propulsion
   - GFM
   - EMP
-sidebarOrder: "7"
+sidebarOrder: "8"
 ---
 In order to achieve an absolutely inhuman level of mobility and movement, as well as fundamentally redefine what [[Alexandra Rose Blackwell|Alexandra]]'s body is capable of, [[Lumina]] and her have developed an advanced dual-system levitation and flight system.
 

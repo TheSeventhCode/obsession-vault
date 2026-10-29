@@ -1028,7 +1028,7 @@ I wasn't encased in latex.
 
 I *was* latex.
 
-My palms pressed against my thighs, feeling the material compress slightly under the pressure, whilst the [[Armour|armour layer]] beneath remained absolutely rigid—an invisible prison that would protect me from anything, that would trap me forever inside this perfection. The sensation was extraordinary: the latex flesh moved and behaved exactly as human skin would beneath a coating, responsive and yielding, giving no indication whatsoever of the microscopic carbon-Kevlar mesh permanently sealed between the layers.
+My palms pressed against my thighs, feeling the material compress slightly under the pressure, whilst the [[Armour|armour layer]] beneath remained absolutely rigid—an invisible prison that would protect me from anything, that would trap me forever inside this perfection. The sensation was extraordinary: the [[Living Latex Flesh|latex flesh]] moved and behaved exactly as human skin would beneath a coating, responsive and yielding, giving no indication whatsoever of the microscopic carbon-Kevlar mesh permanently sealed between the layers.
 
 I slid both hands lower, tracing the taper of my calves down toward where my feet should have been—where human ankles and arches and toes belonged—and found only smooth, continuous descent into vertical needle-points. The transition was seamless. Organic. As if I'd been born this way, as if human feet were the aberration and this elegant inhumanity was always meant to be.
 
@@ -1856,7 +1856,7 @@ Superhuman. Posthuman. Beyond anything human skin could achieve.
 
 My biological muscles came back online, whilst artificial fibres remained tensed, ready to stabilize if I faltered. I made tiny experimental movements—just flexing fingers, rolling shoulders fractionally. The sensations remained intense enough to steal breath I no longer took.
 
-My chest shifted against the [[corset armour]]'s unyielding compression, and the mesh reported everything. Latex sliding over [[Touch Sensors|sensor web]]. [[Armour]] distributing pressure across my compressed ribcage. The [[Alternative Air Supply|oxygen tank]] in my left breast pulsing its steady rhythm, whilst the nutritional reservoir hummed faintly on my right. Synthetic muscle fibres adjusting tension. Temperature variations where latex flesh pressed tighter, cooler zones with better air circulation.
+My chest shifted against the [[corset armour]]'s unyielding compression, and the mesh reported everything. Latex sliding over [[Touch Sensors|sensor web]]. [[Armour]] distributing pressure across my compressed ribcage. The [[Alternative Air Supply|oxygen tank]] in my left breast pulsing its steady rhythm, whilst the nutritional reservoir hummed faintly on my right. Synthetic muscle fibres adjusting tension. Temperature variations where [[Living Latex Flesh|latex flesh]] pressed tighter, cooler zones with better air circulation.
 
 My massive breasts swayed with the motion, and pleasure-pain lanced through hypersensitive nipples. The swollen tissue compressed around the metal eggs sealed inside, their countless internal wires threaded deep through my milk ducts. The piercings through my areolas pulled against inflamed flesh, whilst the mesh transmitted every microscopic shift with merciless accuracy.
 

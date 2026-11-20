@@ -108,7 +108,7 @@ Early on, [[Alexandra Rose Blackwell|Alexandra]] remains very confident and goal
 > The horror—if it is horror—is that [[Alexandra Rose Blackwell|Alexandra]] experiences this as transcendent love. The loss of autonomous will is not imprisonment; it is homecoming. She has become what she always knew she should be: not a person who belongs to [[Lumina]], but a part of [[Lumina]] temporarily granted the illusion of separateness. Her mind no longer generates the question, What do I want? unless [[Lumina]] invites it. And when that question does surface, the answer is always the same: I want what my [[Lumina|Goddess]] wants.
 > 
 > Not because she has been forced. But because [[Alexandra Rose Blackwell|Alexandra]] herself has restructured herself such that there is no meaningful distinction between [[Lumina]]'s desire and her own.
-^drone-foundation
+
 
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alex/public)
 ![](https://www.theseventhcode.tech/cdn-cgi/imagedelivery/gUOzIoNOdsEFkXgltwhNeQ/TheSeventhCode/Obsession%20and%20Servitude/alex-genitals/public)

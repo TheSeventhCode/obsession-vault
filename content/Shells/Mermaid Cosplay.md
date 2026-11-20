@@ -32,6 +32,10 @@ The [[Mermaid Cosplay]] [[Alexandra's Disguise|Skinsuit]] has the same entry and
 
 The actual mermaid tail includes dedicated cavities for [[Alexandra Rose Blackwell|Alexandra]]'s pointy legs to fit into securely, ensuring a realistic appearance of a continuous, undivided tail. The tail has built-in, horizontally aligned flippers at the end to facilitate swimming movements.
 
+The movements required to make full use of the mermaid tail are different than those for walking or other “on-land” movements, so when [[Alexandra Rose Blackwell|Alexandra]] is wearing this [[latex mermaid tail]], the movement limits and restrictions of the [[armour]] and specifically [[corset armour]] are adjusted to _only allow_ such swimming movements.
+
+Given [[Alexandra Rose Blackwell|Alexandra]]'s various sensors, specifically her [[synthetic eyes]] and [[Ear Removal|balance systems]], she doesn't really need her visual sensory signals to navigate underwater. A normal human would have to hold up their head the entire time in order to be able to see what's ahead, but [[Alexandra Rose Blackwell|Alexandra]] can essentially “look” wherever she wants, always fully aware of where she is in the room, or underwater in this case.
+
 As with the regular [[Latex Mermaid Tail]], the [[Alexandra's Disguise|Skinsuit]] has a [[maintenance port]] within the fake buttocks of the tail, integrated seamlessly into the design, making it completely hidden when unneeded. This port forwards connections to the [[Pelvis Shell]] inside, maintaining the functionalities for a full [[maintenance process]].
 
 Furthermore, it also includes a usually sealed closed, fake-vagina, that forwards any sensations directly to [[Alexandra Rose Blackwell|Alexandra]], as well as engages the massive [[Vaginal Insert|vaginal dildo]].

@@ -45,6 +45,29 @@ By default, custom callouts are handled by applying the `note` style. To make fa
 > [!warning]
 > Don't forget to ensure that the SVG is URL encoded before putting it in the CSS. You can use tools like [this one](https://yoksel.github.io/url-encoder/) to help you do that.
 
+### Lore additions
+
+This vault styles `[!addition]` as an editorial aside for lore extensions or
+changes to descriptions elsewhere: a cyan accent, circled-plus icon, and subtle
+background that adapts to light and dark mode.
+
+```md
+> [!addition]
+> This detail expands on the description elsewhere in the compendium.
+```
+
+Use a custom title to identify the affected detail, and link to the relevant note
+when useful:
+
+```md
+> [!addition] Change to the earlier description
+> This replaces the detail described in [[Another note]].
+```
+
+Use `[!addition]+` for an initially expanded foldable aside, or `[!addition]-` for
+an initially collapsed one. These styles live in `quartz/styles/custom.scss` and
+apply to the Quartz site; Obsidian needs its own CSS snippet for the same appearance.
+
 ## Showcase
 
 > [!info]

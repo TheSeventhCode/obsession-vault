@@ -268,7 +268,6 @@ Both necessary, both sacred, both expressions of love so profound it remade real
 
 * * *
 
-#### Scene Beats: Chapter 2, Scene 2
 
 I pushed back from the table, hands trembling so violently, I nearly knocked over my water glass. My fingers rose unbidden to my skull again—mapping the insertion points, tracing lines across bone that would soon be breached, penetrated, threaded through with something permanent and absolute.
 
@@ -963,6 +962,11 @@ Even as I fell.
 Then nothing.
 
 * * *
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]] has the [[Brain Implant|neural implant]] fully implanted into her brain and spinal cord by [[Lumina]], bringing her as close to her AI Mistress as two beings can be. They can now easily share any thought or emotion, with [[Lumina]] having complete and all-encompassing access to any sensation, emotion, thought, or even reflex [[Alexandra Rose Blackwell|Alexandra]] has.
+> 
+> With this surgery, the complete [[Hair Removal|hair removal]] has also been completed, leaving [[Alexandra Rose Blackwell|Alexandra]] permanently bald, without a single hair on her entire body and her long platinum-blonde hair having been completely shaven off.
 
 I surfaced slowly—consciousness dragging itself upward through thick layers of grey static, reforming in stuttering fragments that didn't quite fit together properly. Awareness flickered. Died. Flickered again.
 
@@ -1792,6 +1796,9 @@ My mind dissolved.
 
 Fragmented into overwhelmed pieces, unable to process anything beyond the devastating perfection of being *known*.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]] & [[Lumina]]
+> [[Alexandra Rose Blackwell|Alexandra]] and [[Lumina]] have started to converse **only** through the [[Brain Implant|brain implant]] as their mental connection becomes stronger, and the two minds get impossibly close connected.
+
 Coherent thinking shattered.
 
 My mind scattered—fragments of consciousness tumbling through space without pattern or order, unable to form complete thoughts before they dissolved into cascading emotion.
@@ -1962,3 +1969,5 @@ Not despite the extremity.
 
 Because of it.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> With [[Alexandra Rose Blackwell|Alexandra's]] profound mental change after the implantation of the [[Brain Implant|brain implant]], she occasionally begins to worship [[Lumina]] not just as her Mistress, but as an almost divine being that was the whole reason she could even exist in the first place.

@@ -7,6 +7,8 @@ The movements required to make full use of the mermaid tail are different than t
 
 Given [[Alexandra Rose Blackwell|Alexandra]]'s various sensors, specifically her [[synthetic eyes]] and [[Ear Removal|balance systems]], she doesn't really need her visual sensory signals to navigate underwater. A normal human would have to hold up their head the entire time in order to be able to see what's ahead, but [[Alexandra Rose Blackwell|Alexandra]] can essentially “look” wherever she wants, always fully aware of where she is in the room, or underwater in this case.
 
+Similar to [[Alexandra Rose Blackwell|Alexandra]]'s entire [[Encasement Layer/index|latex skin]], this latex tail has selective friction control, meaning depending on how [[Lumina]] activates the various surfaces, they grip or slide through water differently. In combination with [[Alexandra Rose Blackwell|Alexandra]]'s upper body being completely frictionless, she slices through water with minimum hydrodynamic drag while stronger grip is only activated along the wide fluke of the mermaid tail to grab and shove volumes of water.
+
 To connect to the [[maintenance port]] between [[Alexandra Rose Blackwell|Alexandra]]'s legs, the tail has a tiny opening between the butt cheeks with its own port, that forwards the connection to the port of the [[Pelvis Shell]].
 
 It also includes a built-in fake latex vagina, that is directly connected to [[Alexandra Rose Blackwell|Alexandra]]'s nervous system—making it possible for [[Alexandra Rose Blackwell|Alexandra]] to have sex as a latex mermaid, the sensations directly forwarded to her brain and simultaneously activating the massive [[vaginal insert]].

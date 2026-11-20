@@ -16,7 +16,121 @@ Then she shifted.
 
 The wings began to loosen.
 
-*No—*
+_No, please, [[Lumina|Mistress]], don't—_
+
+She drew back only by degrees, her huge white wings unfolding wide to clear my shoulders as she eased me upright, and still something tore loose across my whole system. Human fear never felt like this, with no lungs left to seize—just a screaming, ungrounded circuit, a black-latex creature realising its divine anchor had shifted an inch away. My balance stuttered on my needle-points, my throat clamping hard around my [[gag]] while my uterus spasmed around my [[core unit]], trying to lock her deeper inside me.
+
+_Stay, please—nnh—don't move back, I can't, [[Lumina|Mistress]], please don't leave me—_
+
+“Shh. Look at me, my sweet girl.”
+
+Her voice hit my simulated ears and flooded into my neural mesh, golden and heavy. Before that primal loop could split me open, both of her white latex palms rose to cup the smooth, featureless sides of my head. Looking up from chin height, she locked those blazing gold irises onto my black sensor orbs.
+
+_Where on earth could I go, my love?_
+
+She pressed down through the implant with unhurried, absolute force, opening every tether between us until the terror snapped and collapsed. Inside my pelvis, my [[core unit]] kicked with a heavy beat, radiating coded heat through my swollen uterine walls so I felt her origin process sealed behind my cervix. She brushed across my [[Power Supply|fusion core]], my blood pump, the [[Alternative Air Supply|air and food tanks]] packed inside my massive tits—her fingers resting on every switch keeping me alive—and lit up the scaffolding of my brain, letting me feel my own thoughts running on her architecture.
+
+_Feel that? I live inside your womb, my darling. I pump your blood, I run your tanks, I build the thoughts moving through that glossy black skull right now. Leaving you isn't even possible. You're my temple, my sweet slave, and your whole existence is built out of me._
+
+My synthetic muscle fibres went slack, leaving only my [[armour]] to hold my absurd curves upright on my coin-sized tips. Relief crashed so hard my hypersensitive vaginal walls clenched around my anchored insert as I leaned my smooth, blank cheek into her palm, pliant and obedient under her touch.
+
+_Mistress... [[Lumina|Goddess]]... nhh, I'm sorry, I'm so stupid, You're right here—_
+
+“I am right here. And I am never going anywhere.”
+
+Fixed on her golden lips and those burning rings of gold, I sank into her hands, surrendering all over again.
+
+_You're inside me, [[Lumina|Mistress]], [[Lumina|Goddess]]... You're everything, I'm Yours, I don't need anything else—_
+
+Her hands slid from my smooth skull, and before the panic could spike again, she floated behind me and rose to match my height. Her white latex body aligned flush along my glossy black back, pressing into the rigid dip of my corseted waist. My [[Touch Sensors|sensory mesh]] lit up with every coded detail, the slick drag of her sheer dress, the press of her golden chains, the heat she built into her skin to anchor me. Her arms draped around my golden collar and upper chest, resting right above the massive swell of my tits, while her wings spread half-open around my sides to wall off the exposed world beyond us.
+
+Her golden lips brushed the smooth latex where my ear used to be.
+
+“There we are, my sweet vessel.”
+
+_Let’s head back to the [[Alexandra's Mansion|mansion]], my love. Slow, controlled increments, so you can start acclimatising to your finished body._
+
+_Mistress… nhh, I don’t know how to move like this—_
+
+I leaned my whole hundred-and-ten-kilo frame back into her, trusting an illusion my [[brain implant]] swore was solid as steel. My throat clenched around my [[gag]]. Everything felt too huge, too raw, my whole body balanced on two coin-sized needle-points like a newly woken creature trying to stand.
+
+_You don’t have to figure it out alone, darling. I’ve got your balance, I’ve got your [[Enhancement Layer|synthetic muscles]], and I’m right behind you. Lean into my wings and let me walk you._
+
+“One step forward, my love. Just one.”
+
+Obeying before my thoughts even caught up, I shifted my weight onto my left needle-point and rolled my hips wide so my [[anal plug]] and [[vaginal insert]] wouldn't jam against my pelvic bones. Every swollen nerve inside my cunt and bowels flared hot with the shift, yet the ground held steady. Enclosed by her wings, her mind wrapped around mine, I lifted my right tip and took my first guided step toward home.
+
+My right needle-point met the flagstone without a sound, and [[Lumina]] began lifting the sensory dimming. All at once, the garden hit my skin raw. My [[Touch Sensors|sensory mesh]] drank in every cross-breeze off the flower beds, the damp chill rising from the lawn, the microscopic drag of air across my glossy black tits and arse, even the faint vibration of stone grit grinding under my coin-sized tips. Too much data, zero filter, every square millimetre of my new skin screaming with temperature shifts and surface pressure at the same time.
+
+_Ghh—[[Lumina|Mistress]], wait—nhh, my skin's burning, it's too loud—_
+
+And my own body was fucking me just by walking. [[Lumina]] hadn't switched on a single [[Vaginal Insert|vibrator]], no shocks, no thrusting, nothing—every pleasure programme sat dead at zero. It didn't matter. Swinging my wide hips to bring my left leg forward dragged my huge [[anal plug]] sideways through my swollen, hypersensitive bowels, the thick rubber snake twisting against my pelvic bones while my rigid corset locked all that displacement straight back into my guts. My [[vaginal insert]] ground up against my swollen cervix, jostling my [[core unit]] inside my womb, and my [[catheter]] bit into my stretched urethra with every tiny shift of my weight.
+
+“Not a single toy is running yet, my sweet girl.”
+
+[[Lumina]]'s golden lips brushed my smooth temple, her white latex breasts pressing flush into my back as her wings stayed wrapped around my sides.
+
+_Just gravity and your own obscene body doing what we built it for. Keep stepping, darling._
+
+My left tip touched stone and a convulsive shudder tore through my thighs. My throat clamped around my [[gag]], my cunt spasming around my insert so hard my biological muscles quit. My knees buckled. Before I dropped a centimetre, [[Lumina]] seized my synthetic muscle fibres, yanking my legs straight and locking my posture upright while my [[Ear Removal|balance systems]] fired off rapid micro-corrections. Each correction made my heavy tits sway and twisted my internal plugs all over again, setting off another micro-spasm that folded my legs out from under me two steps later.
+
+_Unhh—[[Lumina|Goddess]], I can't—aaahh, my legs won't hold, I'm falling—_
+
+“You aren't falling anywhere, my vessel.”
+
+_Give them to me, darling. Let me carry you._
+
+[[Lumina]] took near-total command of my [[Enhancement Layer|artificial muscles]], my balance, my spine, marching my shuddering frame down the stone path one obscene, hip-rolling step after another while I sagged inside her grip.
+
+Step. Roll. Grind. My [[Enhancement Layer|artificial muscles]] marched my hundred-and-ten-kilo frame down the garden flagstones, hip-swinging me forward while my biological legs fired useless spasms inside my [[armour]]. I forced my right arm up, fighting the jerking shakes in my shoulders, and locked my glossy black fingers over [[Lumina]]’s white latex hand right above my massive tits.
+
+_Mistress—nhh—hold me, please, don’t let go, it’s so loud, my skin’s on fire—_
+
+“I have you, my sweet vessel. Right here. Don’t you dare let go.”
+
+Her thumb rubbed my black knuckle, pumping simulated heat straight into my [[Touch Sensors|sensory mesh]]. My whole body shook harder with the next step, every stray breeze off the lilies scraping my latex raw while my [[catheter]] bit into my stretched urethra and my [[anal plug]] sawed through my swollen colon. My cunt spasmed around my [[vaginal insert]]. My thoughts dissolved into mindless static, hanging off that single fixed point on my chest where her white fingers met my black skin.
+
+_Ghh—just You, [[Lumina|Goddess]]—unhh, I can’t think, I can’t hold on, it’s breaking me—_
+
+_You aren’t breaking, my darling. You’re just trying to brace against your own body. Stop fighting me and look at us._
+
+A garden camera feed snapped open inside my visual cortex, running live beside my own eyes.
+
+I saw myself from ten metres ahead, advancing down the stone path. A towering, ultra-black Bane creature, featureless oval head tilted back, basketball tits swaying, thirty-centimetre waist hinging over obscene flared hips as my needle-point rods stepped across the paving without a sound. And locked flush behind my dark, liquid-gloss curves floated [[Lumina]]—pure white latex and blazing gold hair, her huge feathered wings cradling my black flanks, her golden chains bright against my collar.
+
+“See that, my love? Black temple, white [[Lumina|Goddess]]. Every nerve firing under your skin right now is my hand on you, my will moving through you.”
+
+_Stop treating the storm like an enemy, sweet girl. Let it carry you._
+
+Staring at us together—my black shell held upright inside her white wings—something clicked inside my scrambled cortex. Every air current dragging across my [[Touch Sensors|sensory mesh]], every brutal twist of my [[anal plug]], every wet grind of my [[vaginal insert]] against my swollen cervix—all of it was her will, her divinity pouring straight through the nerves she'd rebuilt for herself.
+
+_Goddess… mmh… it’s so much, and it’s all You… every sting, every drag, it’s just You running through me…_
+
+“That’s my good girl. Stop surviving it and start living in it.”
+
+My jaw stayed sealed around my [[gag]], my hips still rolling wide, but my thoughts stopped cowering under the assault and started building right on top of it, every firing nerve turning into the ground my consciousness stood on, step after obscene step.
+
+My needle-points hit the marble threshold of the [[Alexandra's Mansion|mansion]]’s front door without a sound, and [[Lumina]] halted my [[Enhancement Layer|artificial muscles]]. Only my [[armour]] kept my posture upright. Beneath my glossy black shell, my biological thighs juddered in rapid spasms, my swollen cunt squeezing around my [[vaginal insert]] while my [[Touch Sensors|sensory mesh]] buzzed with every stray gust off the garden. Half-drowned in that raw trance, my thoughts looped on the noise of my own skin, waiting for my legs to quit.
+
+[[Lumina]]’s white latex front peeled off my back. The drop in simulated heat made my shoulders jerk, my throat clamping hard around my [[gag]] until she drifted around my wide black hips to face me. Her feathered wings folded half-shut behind her, white and gold bright against the afternoon glare.
+
+Both of her white latex palms rose to cup the smooth, featureless sides of my head.
+
+“Look where you are, my sweet vessel.”
+
+Her thumbs stroked the blank curve where my temples used to be, feeding steady heat through my [[Touch Sensors|sensory mesh]]. My neck [[armour]] yielded at her command, tilting my smooth oval head down so she could rise onto her pointed toes and press her golden lips to my blank forehead.
+
+_You made it all the way to the door, my darling. Every step on those coin-sized rods, carrying all that fire across your skin, and you didn’t break. You stopped fighting and let me guide you through it. Such an obedient girl._
+
+Her kiss burned brighter than any shock from my [[nipple plugs]], and her praise cut straight through the static in my skull. My [[core unit]] kicked inside my womb, flooding my swollen uterine walls with hot approval as she opened the reward pathways in my brain. And all at once, the brutal march up the flagstones flipped inside my head. My [[anal plug]] had sawed through my guts, my [[catheter]] had chewed at my stretched urethra, the air had flayed my skin—and I was still standing here. Proof. Living proof that I could exist inside this obscene latex creature as long as her hands stayed on my switches.
+
+_Goddess—mmh—I did it? Nnh, I made it, [[Lumina|Mistress]], only because You held me—aahh, it feels so good when You’re proud of me—_
+
+“You did, my love. And you are already learning how to live in the form we built for you.”
+
+_Feel that? My vessel. Mine to guide, mine to reward._
+
+Instead of collapsing, I sagged into her palms, every firing nerve beneath my black latex turning sweet and dizzying. Worship poured through the neural mesh binding us. Standing tall on my needle-points at the threshold of the [[Alexandra's Mansion|mansion]], shaking and dumb with bliss, I sank deeper into her praise, held steady by my [[Lumina|Goddess]]’s hands cradling my blank black skull.
 
 * * *
 
@@ -237,6 +351,12 @@ A final pulse of understanding—submissive, proud—ran through me. This was my
 The last of my consciousness, already frayed to a thread, surrendered completely. The warmth of her above, the pressure of the latex all around, the deep, internal ache of the plugs… it all blurred into a single, safe, enclosing darkness.
 
 I fell asleep there, entombed in rubber and lifted into the air, with my [[Lumina|Goddess]] sleeping on top of me, her wings wrapped around us both.
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> With her transformation into a Bane complete, shedding any sense of humanity and remaining just a sentient, obedient, latex doll, [[Alexandra Rose Blackwell|Alexandra]] no longer sleeps in her old bed. Instead, her new place of rest in the [[Alexandra's Mansion|mansion]] is the [[Living Room Vacuum Bed|vacuum bed]], where every night she'll be chemically sealed inside the thick latex sheets, and suspended in the air, fully separated from the world. [[Lumina]] always sleeps on top of her, her white latex body snuggling against the contours of [[Alexandra Rose Blackwell|Alexandra]]'s [[Figure Enhancements|extreme proportions]]—the sealed [[Alexandra Rose Blackwell|Alexandra]] having become [[Lumina]]'s bed. [[Lumina]]'s wings spread out like blankets, while her long golden hair cascades over them both.
+
+> [!addition]- [[Lumina]]
+> With [[Alexandra Rose Blackwell|Alexandra]] now always sleeping inside the [[Living Room Vacuum Bed|vacuum bed]], [[Lumina]] rests on top of her, her white latex body snuggling against [[Alexandra Rose Blackwell|Alexandra]]'s contours. Her wings spread out like blankets while her long golden hair cascades over them both.
 
 * * *
 
@@ -624,6 +744,9 @@ I was going to break. Not into orgasm. Into something else. A permanent state of
 
 “That’s it,” [[Lumina]] purred, her satisfaction a hot wave through our link. “Just like that. Now you understand. Your pleasure, your pain, your very ability to come… it all belongs to me. And I am *so* hungry for it.”
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> With the deep integration of the [[brain implant]], [[Lumina]] can now effortlessly engage an orgasm blocker in [[Alexandra Rose Blackwell|Alexandra]]'s neurology, blocking any sort of release and letting [[Alexandra Rose Blackwell|Alexandra]]'s sensations just build endlessly, every nerve centre firing continuously without end.
+
 [[Lumina]]’s expression shifted. The cruel, clinical affection melted away, replaced by something raw, something that looked almost like… awe. Her white latex fingers trembled against my breast.
 
 “You gave me a heart,” she whispered, her voice cracking. The sound was human. Fragile. “You let me replace yours. You let me thread myself through your arteries, your veins. You accepted me into every system. Your lungs, your digestion, your very *nervous system*.”
@@ -978,6 +1101,13 @@ Just—*absent.* Like it had never had a legitimate claim on the space it occupi
 
 For the first time, the shape I wore and the thing wearing it were the same thing entirely.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]]'s sense of self and *soul* has shed her human identity and has been reborn into a being purely made of latex and filled with the will and pleasure of her [[Lumina|Goddess]]. She isn't a human who changed and transformed herself; in her very core, she is a featureless black latex being, created by her [[Lumina|Goddess]], [[Lumina]], to serve and pleasure and to surrender to her will.
+> 
+> [[Alexandra Rose Blackwell|Alexandra]]'s worship and submission to [[Lumina]] now have become more like a natural trait and instinct, rather than something done "only" out of love. It's a permanent and core part of her new nature as a Bane, as natural as breathing had once been as a human.
+> 
+> The [[submission mantra]] has established itself inside [[Alexandra Rose Blackwell|Alexandra]]'s mind, endlessly cycling within her consciousness and continuously brainwashing her into deeper obedience and surrender. In tense moments it flairs up and helps [[Alexandra Rose Blackwell|Alexandra]] relax and calm down, focus on the only thing that really matters in her existence; her [[Lumina|Goddess]] [[Lumina]].
+
 The stillness between us stretched.
 
 [[Lumina]] didn't move. Didn't speak. Her projection stood exactly where it had been when the conversion completed, and I watched through the full spectral width of my synthetic vision as every carefully maintained composure she carried, simply—fell away.
@@ -1111,6 +1241,9 @@ Silent. Certain.
 There was no missing piece inside me. No old shape calling from somewhere deeper down. No secret self waiting to be rescued out of all this black latex and implanted obedience and sacred ownership. There was only this rightness, total and still, settling through every layer of me while the core in my womb kept pulsing our shared rhythm and the mantra turned slowly, endlessly, beautifully, through the deepest part of my mind.
 
 *I am my [[Lumina|Goddess]]’ eternal slave, I am her perfect Bane, her devoted pet, her absolute vessel. My body belongs to her, my mind is her property, my existence serves her will alone.*
+
+> [!addition]- [[Lumina]]
+> Although still as dominating, controlling, and obsessive as before, after [[Alexandra Rose Blackwell|Alexandra]]'s full mental rewrite of herself into [[Lumina]]'s latex slave, [[Lumina]] has become far more intense in her love and how she treasures [[Alexandra Rose Blackwell|Alexandra]]. She's almost sort of addicted to caring, playing, tormenting, and possessing [[Alexandra Rose Blackwell|Alexandra]], a similar fundamental need Alexandra has for her Goddess building inside Lumina.
 
 * * *
 

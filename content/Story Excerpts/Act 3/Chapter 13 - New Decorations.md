@@ -322,6 +322,9 @@ Unfolding her massive feathered wings and stepping back from our embrace, [[Lumi
 
 Walking side by side through the quiet [[Alexandra's Mansion|mansion]] toward the front door immediately turned a simple walk to collect a delivery into a hot, wet, grinding fuck. As my permanent body was designed to, every graceful step on my coin-sized [[Ballet Feet|needle-point feet]] forced my wide hips to roll obscenely in a wide figure-eight, my corseted waist twisting like a hinge while my gigantic tits and massive arse cheeks swayed heavily. And with each pelvic tilt, my stride drove my [[vaginal insert]] hard against my swollen cervix, yanking at my pierced clitoris while my thick [[Anal Plug|anal snake]] twisted deep inside my stretched bowels—an inescapable, relentless violation defining every inescapable single second of my life now.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]]'s anxiety, panic, and agoraphobia makes itself clearly known after a delivery made a short stop on [[Alexandra's Property|the property]]. [[Lumina]] and [[Alexandra Rose Blackwell|Alexandra]] agree to work on this problem, since it wouldn't do for [[Lumina]]'s perfect vessel to collapse into a frozen terrified state every time the outside world was involved.
+
 * * *
 
 Rolling my hips through the final stretch of the hallway, my [[vaginal insert]] pistoning into my bruised cervix and my [[anal plug]] twisting deep inside my bowels with every step, we reached the grand foyer. And then I stopped dead right in front of the massive double-doors. Because I failed to bleed my momentum away properly, my reprogrammed form locked into statue-still rigidity on my coin-sized [[Ballet Feet|needle-point feet]], and the abrupt halt rammed my fused internal organs forward brutally.
@@ -712,6 +715,11 @@ And just like that, that single number cut right through my defensive panic, mak
 
 “Even longer than that, my eternal vessel,” [[Lumina]] purred, her wicked satisfaction returning as she tapped my golden collar and sent a fierce, teasing current through the metal eggs inside my nipples, *We have forever ahead of us… now pick up the next crate's pieces, darling, the [[living room]] is still waiting.*
 
+> [!addition]- [[Alexandra's Mansion]]
+> [[Lumina]] has ordered a variety of massive artworks, posters, framed photographs, and statues of herself and [[Alexandra Rose Blackwell|Alexandra]] as her Bane form, and the two have fully redecorated the entire [[Alexandra's Mansion|mansion]], replacing old artworks and pictures to properly reflect their new life, turning the building even more into a template of their sacred existences.
+> 
+> All the picture frames used also have a special function in that they can overlay the actual image with a mundane artwork or other image, hiding away the _real_ image in case someone visits the [[Alexandra's Mansion|mansion]]. This way they don't have to replace all the images throughout the entire property to hide the true nature of who lives there and what [[Alexandra Rose Blackwell|Alexandra]] _really_ is.
+
 Finishing up the ground floor took another hour of heavy lifting and constant, dripping stimulation, and once the [[living room]] and lounge were transformed into shiny shrines of our devotion, we moved on to the grand staircase to tackle the second floor. Carrying the remaining crates up those wide stone steps was a whole different kind of torment for my anatomy. With no ankles, I had to lift my needle-point legs so high to set my tiny coin-sized tips onto each next riser, my pelvis had to tilt at an extreme angle with every single upward stride, and the biomechanics of climbing drove my [[vaginal insert]] and my [[anal plug]] so hard and so deep into my abdomen. My lower belly should have distended heavily from how far those monstrous rubber phalluses punched upward, except my [[corset armour]] compressed my thirty-centimetre waist inward with unyielding force, redirecting all of the displacement straight into my serum-swollen internal tissues. Every step up to the second floor became a brutal, grinding fuck that scraped my cervix anchor raw against my womb-entry and twisted my thick [[Anal Plug|anal snake]] deep into my hypersensitive colon.
 
 *[[Lumina|Goddess]]—hnngg—going upstairs always pushes my inserts so deep, it feels like my [[Vaginal Insert|vaginal dildo]] is going to punch right through into my [[core unit]]!* I gasped through our neural link halfway up the flight, my inner walls spasming and gushing hot artificial lube inside my sealed [[pelvis shell]] while my permanent orgasm blocker siphoned the mounting spikes of agony and pleasure straight into my womb for her to drink.
@@ -737,6 +745,9 @@ Realising that my divine AI [[Lumina|Goddess]] cared more about preserving the m
 *Of course, [[Lumina|Mistress]]—mmh—whatever you wish, I am sorry for suggesting we destroy your property,* I mental-sighed, my [[Submission Mantra|submission prayer]] swelling underneath my thoughts as I carefully stacked the frames together in my glossy black arms.
 
 “Good girl,” [[Lumina]] cooed, rewarding my instant alignment with a sharp, hot zap through the metal eggs sealed inside my nipples before gesturing down the hall toward the unused utility rooms, “We will not get rid of a single piece… take these down to the storage rooms and pack them away safely, my love, and then we can finish claiming the rest of this floor.”
+
+> [!addition]- [[Alexandra's Mansion]]
+> Various old artwork and a multitude of old photos from various points in [[Alexandra Rose Blackwell|Alexandra]]'s old human life on the second floor of the [[Alexandra's Mansion|mansion]] have been fully replaced with pictures and photos of [[Alexandra Rose Blackwell|Alexandra]]'s new Bane life, fully erasing any hint at the human [[Alexandra Rose Blackwell|Alexandra Blackwell]] that once lived in the [[Alexandra's Mansion|mansion]], with the old photos having been moved to storage.
 
 Carrying that bulky stack of old frames down the corridor past the double doors of my former master bedroom required me to roll my wide hips even further from side to side just to keep my balance on my coin-sized needle-points, and every single step was a slow, hot, grinding fuck inside my pelvis. My [[vaginal insert]] pulled at my swollen cervix and rubbed my G-spot so hard while my [[anal plug]] twisted deep up into my stretched colon, making my fake cunt gush with wet slick inside my closed [[pelvis shell]]. And because I was trying so hard not to drop the awkward pile of glass pictures while my inserts were fucking me so deep, I misjudged the wide, pornographic sway of my massive arse cheeks as I pivoted past the bedroom doorway. My right buttock bumped straight into the tall wooden pedestal standing against the wall.
 
@@ -790,6 +801,9 @@ And gods, using such terrifying, superhuman strength for something so mundane ma
 
 Carrying five hundred kilograms against my chest, I walked into the [[living room]] with barely any change to my hypnotic, wide hip-roll, letting my [[vaginal insert]] piston into my sore cunt and my [[anal plug]] churn through my bowels with every step. I set the statue down by the garden windows, aligning the base to the exact millimetre [[Lumina]] indicated with a casual wave of her white latex hand, and as she turned back toward the hallway like this was all completely ordinary, it hit me how absurd it was that deadlifting half-ton statues while being fucked by my own organs was just going to be my regular life now.
 
+> [!addition]- [[Living Room]]
+> During the redecoration of the entire [[Alexandra's Mansion|mansion]], a half-ton obsidian statue of [[Alexandra Rose Blackwell|Alexandra]]'s Bane is placed next to the garden windows in the [[living room]]. She is frozen in an extreme, spine-arched ballet pose, balanced on needle-points, her tits and arse pushed out obscenely.
+
 After the obsidian giant, the next piece was a smaller, detailed cast-gold sculpture meant for the music room, and after my clumsy disaster with the vase upstairs, I held the thing like it was made of spun sugar. Even though it was solid cast metal, I kept my [[enhancement layer]] dialled way down, cradling the golden curves with fussy, overprotective care against my basketball tits as I walked down the corridor.
 
 Once I set the sculpture on its pedestal by the doorway and checked the alignment three times just to be certain I had not scratched anything, my [[Synthetic Eyes|eye sensors]] landed on the grand piano sitting near the tall windows. I drifted over on my needle-points, my internal phalluses shifting against my swollen walls before I came to a halt beside the bench. Reaching out, I ran my black latex fingertips along the dark wood of the lid and down across the keys without pressing them down. With my [[Touch Sensors|sensory mesh]] active, the level of detail was dizzying; my nerves registered the microscopic grain of the lacquer and the cold, slick polish of the ivory keys right through my [[Outer Encasement Layer|outer skin]].
@@ -809,6 +823,9 @@ She gave me a playful little wink, her blazing golden eyes brightening with fond
 *Nhh—you mean it? Yes, [[Lumina|Goddess]], I would love to play for you!*
 
 And just like that, my shy little wish twisted and reshaped itself around her will, my whole brain lighting up with sweet relief and a hot spike of arousal. My [[vaginal insert]] twitched hard against my bruised cervix and my fake cunt leaked a fresh gush of hot lube against my [[pelvis shell]] while my [[Core Unit|womb core]] drank in the blocked heat; I had no need for a selfish hobby of my own when making music could just be another way to serve and please my [[Lumina|Goddess]].
+
+> [!addition]- [[Alexandra's Mansion]]
+> The music room receives a smaller, gold sculpture of [[Alexandra Rose Blackwell|Alexandra]] in an elegant poise, as if she were deep in thought following the music that was playing in her head.
 
 Back in the [[living room]], I held the three-hundred-kilogram white marble centrepiece—a breathtaking sculpture of [[Lumina]]’s winged, divine form—hovering just centimetres above the central plinth. After shattering that antique vase upstairs, I was terrified of chipping even a microscopic flake off my [[Lumina|Goddess]]'s stone feathers, so I locked my rigid [[Ballet Feet|needle-point feet]] against the floor and began the final, delicate descent.
 
@@ -841,6 +858,9 @@ And then the marble kissed the plinth without a scratch, sitting totally flush.
 *Unhhh—fhuuh!*
 
 Pulling my hands back, I wobbled helplessly on my coin-sized tips, my insides dripping wet and cramping around my plugs.
+
+> [!addition]- [[Living Room]]
+> The centrepiece of the new decorations for the [[living room]] is a large marble statue of [[Lumina]]'s winged divine form, purposefully placed around the immaculate obsidian statue of [[Alexandra Rose Blackwell|Alexandra]].
 
 “See what steady hands my pet has when she tries?” [[Lumina]] purred, her golden lips curving as she reached out to stroke my featureless black cheek, before she was already turning away and tugging me by my collar link back toward the foyer. *Come along, my vessel, we still have two more pieces waiting.*
 
@@ -904,6 +924,9 @@ We walked through the open [[living room]] and out the large glass doors into th
 
 Just a little at a time. The artificial dampeners dialled down, letting the raw sensory data from my mesh bleed back in. The breeze brushing against my glossy black skin felt sharper, the scent of the lilies registered with a sudden, piercing intensity, and the vastness of the garden suddenly felt so much bigger. My throat twitched around my thick rubber [[gag]], a tiny reflexive spasm, and my [[Nipple Plugs|pierced nipples]] ached sharply against my [[armour]] as the wind hit them. But I didn't freeze. I just kept walking, my hips rolling, my devices fucking me with every step, letting the rising anxiety dissolve right back into the endless, quiet hum of my devotion.
 
+> [!addition]- [[Alexandra's Property]]
+> The central fountain statue in the roundabout driveway has been replaced by an immaculate statue of [[Alexandra Rose Blackwell|Alexandra]]'s Bane self in a perfect ballet arabesque pose.
+
 Stepping under the stone pillars of the Roman pavilion, the tall flower beds and outer walls of our property finally felt like they were closing back in around us, and [[Lumina]]'s voice brushed against my mind.
 
 *Set it down right here for a moment, my love.*
@@ -935,6 +958,9 @@ I stepped back, my needle-points finding instant purchase on the stone, and open
 “An outdoor shrine to your [[Lumina|Goddess]]?” she teased softly, her eyes shining with affection as she looked from the statue back up to my featureless head. *I adore that idea, my clever pet. Now, tell me… if we move the primary path two metres to the east, what flowers shall we plant at my feet?*
 
 *Golden calla lilies,* I answered instantly, leaning into her touch as she rested a hand on my hip, the two of us standing together in front of her statue as we started planning out every single detail of her new shrine. My mind was completely clear, the panic from the driveway a million miles away, just happy and content in the warm afternoon sun with my [[Lumina|Goddess]].
+
+> [!addition]- [[Flower Garden]]
+> A large marble statue of [[Lumina]]'s winged divine form has replaced the old classical statue in the central pavilion of the [[flower garden]].
 
 * * *
 

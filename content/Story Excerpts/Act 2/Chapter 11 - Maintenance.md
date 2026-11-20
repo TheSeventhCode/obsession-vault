@@ -224,6 +224,11 @@ It turned sweet instead.
 
 *No, my [[Lumina|Goddess]],* I thought, small and full and helpless under her. *Thank You.*
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]] is becoming increasingly vulnerable and simple, quickly very emotional, embarrassed, a bit hectic, her thoughts getting more sporadic and less structured as they've been as a human. A normal human in her state would be in constant anxiety, extremely shy, and socially barely functioning, but with [[Lumina]] being the only one [[Alexandra Rose Blackwell|Alexandra]] is even _capable_ of interacting, [[Lumina]] easily handles [[Alexandra Rose Blackwell|Alexandra]]'s chaotic emotional state.
+> 
+> She still retains her vast intelligence, but almost has no use for it, so her mind just gives in to letting [[Lumina]] handle, decide, judge, and truly _think_ everything.
+
 Her hand stayed on me until the buzz in my thoughts eased into something softer, a low, needy hum instead of that sharp morning ache.
 
 *[[Lumina|Mistress]]…* I hesitated, then pushed on because she liked it when I asked properly. *Will today be the same as yesterday? The movement drills, balance work, posture correction, all of that?*
@@ -1409,6 +1414,11 @@ Then her hand slid down between my legs, not to touch bare flesh—there was non
 She smiled with an almost predatory, hungry expression, and her voice dropped low.
 
 *I know. So if I want deeper integration now, my sweet thing, I will need to become inventive.*
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> The [[Base Encasement|base encasement layer]], [[armour]], [[enhancement layer]], [[Touch Sensors|sensory layer]], and [[outer encasement layer]] have completely merged and fused together, becoming one singular material and providing [[Alexandra Rose Blackwell|Alexandra]] the ultimate protection, strength, and perfect Bane body. Furthermore, the [[Base Encasement|base encasement layer]] has fully grown into [[Alexandra Rose Blackwell|Alexandra]]'s human skin, replacing it entirely and fusing with her flesh beneath. It's now utterly impossible to remove even the tiniest bit of [[Alexandra Rose Blackwell|Alexandra]]'s [[Encasement Layer/index|latex skin]], everything having merged and fused with her biological body. The new composite of the fused layers is now [[Alexandra Rose Blackwell|Alexandra]]'s very skin, a perfect material that provides ultimate protection, sensory detail, superhuman strength, and her perfect black shiny latex Bane appearance.
+> 
+> The [[biocompatible polymer]] within the [[gag]], [[vaginal insert]], [[anal plug]], [[catheter]], and other implants has also done its job fusing the various devices with the surrounding tissue and ensuring nothing can ever be removed from [[Alexandra Rose Blackwell|Alexandra]].
 
 *Inventive.*
 

@@ -490,6 +490,9 @@ It brought *relief*.
 
 *Yes,* she breathed. *You were.*
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> The [[Base Encasement|Base Encasement Layer]] has been sprayed on [[Alexandra Rose Blackwell|Alexandra]], fully encasing her and beginning its long process of entirely replacing any remaining human skin, eventually binding directly to her flesh and bones underneath.
+
 * * *
 
 The base layer had barely settled against my skin—already feeling less like a coating and more like *me*—when [[Lumina]]'s voice returned through the laboratory speakers, crisp and precisely modulated.
@@ -968,6 +971,15 @@ Through it all, the devices never stopped.
 
 The [[anal plug]] ground deeper. The [[vaginal insert]] pulsed faster. My arousal built toward something catastrophic whilst [[Lumina]] took her time, methodically sealing each layer, making me *wait*.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> The entire [[Armour|Armour Layer]], with the [[Corset Armour|Corset Piece]] and [[Helmet]], have been applied to [[Alexandra Rose Blackwell|Alexandra]], ensuring absolute protection against any external damage and forever separating her from the rest of the world. The [[Armour]] quite literally is a mobile prison embedded into [[Alexandra Rose Blackwell|Alexandra]]'s new [[Encasement Layer/index|latex skin]], forever trapping her remaining biology within its confines.
+> 
+> The [[Corset Armour|Corset Piece]] permanently compresses her waist down to 30 cm, as well as forcing her into a more slutty posture, permanently requiring to bend her back and stick out her huge ass and hips, causing the sensations from the massive devices inside her genitals to increase even more in sensitivity. The entire corset section is almost always completely solid, making bending her back or waist entirely impossible for [[Alexandra Rose Blackwell|Alexandra]] and permanently forcing her into an extremely rigid, but so obscene, posture. Due to its permanent compression, any movement of the massive devices inside [[Alexandra Rose Blackwell|Alexandra]]'s genitals and bowels are completely invisible from the outside, the [[Corset Armour|corset]] compressing and redirecting them inwards, making their movements even more painful and extreme.
+> 
+> The [[Helmet]] has removed all identifiable features from [[Alexandra Rose Blackwell|Alexandra]], leaving her head as just as smooth oval shape.
+> 
+> With the special [[Ballet Feet|vertical feet]] of the [[Armour]], [[Alexandra Rose Blackwell|Alexandra]]'s legs have become jet-black needle-point rods, long poles and only balancing on a surfaces smaller than a tiny coin.
+
 * * *
 
 The spray nozzles retracted into the chamber walls with soft pneumatic hisses, and I watched through my synthetic vision as the final droplets of latex-glue solution fell from my perfectly sealed form, each one traced in microscopic detail across multiple spectra simultaneously. The laboratory's ventilation systems engaged with a low whir, clearing the chemical vapours, whilst I stood motionless, processing the profound reality of what had just been completed.
@@ -1224,6 +1236,9 @@ My synthetic vision whited out across every spectrum.
 
 The combined stimulation—my own finger penetrating my latex-rendered genitals, the continuous vibration and grinding of the devices inside me, the visual confirmation of my transformation into something utterly inhuman yet explicitly sexual—compressed into a single overwhelming moment that threatened to shatter my consciousness entirely.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> The combination of the flexibility of the [[Armour]] and the fake vagina of the [[Pelvis Shell]] gives [[Alexandra Rose Blackwell|Alexandra]] fully penetrable latex genitals, the central cavity of the [[Vaginal Insert]] perfectly replicating the inside of a vagina, while also secreting artificial lubrication, as if she was extremely wet—her genitals having become a self-lubricating sex-toy, allowing to be fucked and pleasured at any time. If [[Lumina]] makes the [[Armour|Armour Layer]] pass through and reveal her genitals, [[Alexandra Rose Blackwell|Alexandra]] becomes living latex fuck-doll, with perfectly detailed and plugged latex nipples, and a perfect black latex labia, clitoris, and vagina.
+
 Another climax built with terrifying speed, pleasure coiling tight in my compressed abdomen, the swollen tissue of my urethra clamping down around the [[catheter]] whilst my vaginal walls contracted rhythmically around the massive insert and my rectum spasmed against the [[anal plug]] threading through my intestines.
 
 *No—*
@@ -1468,6 +1483,9 @@ Alone together.
 
 Eternally, perfectly, *inescapably* one.
 
+> [!addition]- [[Lumina]]
+> With the full permanent sealing of the [[Armour|Armour Layer]] around [[Alexandra Rose Blackwell|Alexandra]], [[Lumina]]'s origin process and most central systems have been trapped and sealed within [[Alexandra Rose Blackwell|Alexandra]] as well. Since her origin process runs on the [[Core Unit|control core unit]] inside [[Alexandra Rose Blackwell|Alexandra]]'s womb, the [[Armour]] has made its removal—and by that [[Lumina]]'s separation from [[Alexandra Rose Blackwell|Alexandra]]—utterly impossible, [[Lumina]] having quite literally sealed and embedded herself permanently inside [[Alexandra Rose Blackwell|Alexandra]].
+
 * * *
 
 The overwhelming cascade of devotion and worship continued to pour through our [[Brain Implant|neural connection]] whilst I knelt trembling on the laboratory floor, my entire latex-sealed body vibrating with religious ecstasy and desperate arousal that blurred together until they became the same screaming signal flooding my nervous system.
@@ -1647,6 +1665,13 @@ Agency flooded back into my biological muscles so suddenly I collapsed immediate
 My body wasn't mine any more.
 
 Even if the biological components were under my conscious control rather than [[Lumina]]'s meant absolutely nothing against her command of the artificial enhancements now permanently integrated throughout my entire physical structure. The muscle fibres, the [[armour]], the devices threading through my abdomen—all of it responded only to her whilst I remained merely a guest, a secondary presence permitted to exist within flesh that had become her absolute domain.
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> The full [[Enhancement Layer]] has been applied to [[Alexandra Rose Blackwell|Alexandra]], the [[Enhancement Layer|Artificial Muscle Fibres]] having been embedded and overlaying [[Alexandra Rose Blackwell|Alexandra]]'s entire latex body. When activated, they give [[Alexandra Rose Blackwell|Alexandra]] super human strength, the countless [[Enhancement Layer|synthetic muscles]] now deeply integrated into her transformed Bane body, directly anchored to the [[Armour|armour layer]] beneath.
+> 
+> These [[Enhancement Layer|synthetic muscles]] are so strong and under the full control of [[Lumina]], even if [[Alexandra Rose Blackwell|Alexandra]] has control over her remaining biological muscles, she has no chance of fighting against the external force, her mobile prison encasement now easily able to overpower and move her body however [[Lumina]] wishes.
+> 
+> All these [[Enhancement Layer|artificial muscles]] also give [[Alexandra Rose Blackwell|Alexandra]] a far more defined athletic look, their curves making her limbs and body more detailed, giving her the silhouette as if she had trained for years and gone through a dedicated workout for a long time.
 
 * * *
 
@@ -1925,6 +1950,9 @@ Through our [[Brain Implant|neural connection]], I sent my response. A mix of wo
 *Yes, my [[Lumina|Goddess]]. I am ready. Ready to be completed. Ready to be made perfect. Ready to be sealed forever in the form You have created for me. Please. Please complete Your vessel.*
 
 The control core pulsed faster still, [[Lumina]]'s excitement reverberating through my womb whilst the devices inside me increased their stimulation in response to my surrender.
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> The full [[Touch Sensors|sensory layer]] mesh has been applied to [[Alexandra Rose Blackwell|Alexandra]]'s encased body, giving her an ultra-detailed sense of touch even through her [[Encasement Layer/index|latex skin]]. From microscopic specs of dust landing on her skin, to tiny temperature or air current changes, [[Alexandra Rose Blackwell|Alexandra]]'s new skin is an almost extremely high sensor to any kind of environmental signal. From now on she will be forced to experience and handle all these sensations at all times, her [[Encasement Layer/index|latex skin]] drowning her senses for all eternity.
 
 * * *
 
@@ -2462,3 +2490,17 @@ Finally, *finally.*
 
 ***Complete.***
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> The [[outer encasement layer]] of [[Alexandra Rose Blackwell|Alexandra]]'s Bane transformation has been applied. It finally transforms [[Alexandra Rose Blackwell|Alexandra]] into the perfect vision of a Bane, a completely smooth and featureless black latex creature. The [[Outer Encasement Layer|outer skin]] is in such a deep ultra-black, it almost seems to swallow the light whilst maintaining an extreme gloss, reflecting light in impossible patterns across her extreme body—her transformed self appearing is if made from black liquid mercury. With her skin being so reflective, her absurd proportions causing her [[Encasement Layer/index|latex skin]] to reflect off itself.
+> 
+> The [[Outer Encasement Layer|final layer]] smooths over the tiniest last remaining imperfections, leaving [[Alexandra Rose Blackwell|Alexandra]]'s new skin so smooth, not even a microscope is able to detect any specific details of what hides under the outmost layer. No break, shift, or tiniest protrusion remains in [[Alexandra Rose Blackwell|Alexandra]]'s skin, making her truly the absolute perfect Bane. Furthermore, the [[Outer Encasement Layer|final layer]] mutes any sound from her body—the latex incapable of producing a sound, muting any steps to absolute silence, and muting any sounds coming from inside [[Alexandra Rose Blackwell|Alexandra]]'s body, no matter how powerful the monstrous phalluses inside her fuck her or how much the [[power supply]] hums inside her chest. This outer layer is also specifically constructed so it rejects even the tiniest blemishes or dirt, even microscopic dust particles unable to adhere to it—ensuring that no matter how filthy a substance or environment is, it's _impossible_ for [[Alexandra Rose Blackwell|Alexandra]]'s skin to be dirtied.
+> 
+> Additionally, the golden [[Slave Collar|ownership collar]] has been embedded into [[Alexandra Rose Blackwell|Alexandra]]'s neck, permanently fusing with the surrounding latex and her new skin, forever branding her as [[Lumina]]'s property with the engraving: “**MIND • BODY • SOUL • FOREVER SEALED IN DEVOTION TO MY [[Lumina|GODDESS]]”** unmistakingly visible around her neck.
+> 
+> With all the modifications, surgeries, implants, inserts, and encasement, [[Alexandra Rose Blackwell|Alexandra]] now stands at ca. 188 cm and weights 110 kg. All the [[Alternative Air Supply|life support systems]], tanks, and inserts add substantial weight, all of which is now balanced on her absurd [[Ballet Feet|needle-point feet]].
+> 
+> With this layer complete, [[Alexandra Rose Blackwell|Alexandra]] has become the ultimate embodiment of her and [[Lumina]]'s dreams:
+> - Her body is absolutely featureless, not a single wrinkle or imperfection in her absurd [[Encasement Layer/index|latex skin]].
+> - She has ridiculous proportions, with breasts as large as basket-balls, a waist crushed down to 30 centimetres in circumference, and wide hips with gigantic, pushed-apart ass-cheeks, creating in impossible hourglass shape. These crazy proportions can never be hidden, one breast alone far larger than her head, with any movement needing perfect control to manage the ridiculous proportions.    
+> - Her legs end in brutal tiny needle-point rods from her calves down, her contact points smaller than coins, making it appear like she's hovering instead of actually standing on the floor.   
+> - She is completely anonymous, with any identity completely erased, her head a smooth shell with only a simple featureless oval for her face, a black void that is as featureless and perfect as any other part of her [[Encasement Layer/index|latex skin]].

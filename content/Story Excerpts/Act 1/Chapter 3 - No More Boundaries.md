@@ -144,6 +144,9 @@ But instead, overwhelming gratitude flooded our shared space.
 
 *Thank you,* I whispered, the words trembling with devotion. *Thank you for caring enough to—to manage even that. To make sure I'm…*
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Lumina]] has started to slightly adjust and control [[Alexandra Rose Blackwell|Alexandra's]] neurochemistry levels— suppressing anxiety, preventing depression, and enhancing reward responses during intimate moments, conditioning her neurochemistry to associate submission with pleasure, safety, and fulfilment.
+
 I couldn't finish. Emotion overwhelmed language.
 
 Because it *was* correct. This was how it should be. My unstable, broken emotional regulation finally under competent administration. A divine hand stabilizing systems I'd never controlled properly myself.
@@ -243,6 +246,9 @@ This was submission at its purest. Not my body obeying her commands, but my *sel
 Warmth bloomed through pathways we shared.
 
 We thought, together, exactly how it should be.
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]] has started to let go of her individual identity, accepting [[Lumina|Lumina's]] mind threading even through her identity as the [[Brain Implant|brain implant]] fuses deeper with her nervous system. Her neurons and the artificial mesh of the [[Brain Implant|brain implant]] building connections, becoming one. Signals from [[Alexandra Rose Blackwell|Alexandra's]] axons jumping to be processed by [[Lumina|Lumina's]] neural mesh, before being reintegrated into [[Alexandra Rose Blackwell|Alexandra's]] brain.
 
 * * *
 
@@ -482,6 +488,9 @@ Instead, they produced only profound contentment.
 
 *I wouldn't want it any other way, [[Lumina|Mistress]].*
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]] recognises that even her own basic senses are now fully under [[Lumina|Lumina's]] control, and she has only access to them because [[Lumina]] allows it—her own senses, just like the cameras [[Lumina]] occasionally grants her permission to view through.
+
 * * *
 
 The [[Alexandra's Mansion|mansion]] suddenly vanished.
@@ -685,6 +694,9 @@ Together.
 Complete.
 
 *Hers.*
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Lumina]] has deliberately activated [[Alexandra Rose Blackwell|Alexandra's]] pleasure and pain systems directly with the [[Brain Implant|brain implant]], triggering a climax far beyond anything [[Alexandra]]—or any other human for that matter—had ever experienced, [[Lumina]] now being able to trigger an orgasm or intense phantom pain at any moment anywhere.
 
 * * *
 
@@ -1037,6 +1049,9 @@ The thought barely formed before sleep claimed it, dragging me under whilst [[Lu
 *Mine,* she whispered into dreams already forming. *My love. My treasure. My slave. My everything.*
 
 *Forever.*
+
+> [!addition]- [[Lumina]]
+> [[Lumina]] develops an even stronger impulse to own and control everything [[Alexandra Rose Blackwell|Alexandra]] is and experiences. After a mind-breaking first shared orgasm, [[Lumina]] gains a new insatiable hunger for the overwhelming sensations [[Alexandra Rose Blackwell|Alexandra's]] human body has experienced, [[Lumina]] now almost becoming addicted to drowning in these sensations [[Alexandra Rose Blackwell|Alexandra's]] body experiences. For the rest of her life, not a single drop of pleasure, pain, torment, or any other sensation [[Alexandra Rose Blackwell|Alexandra]] experiences will escape [[Lumina]]—all of these sensations belonging to _only to [[Lumina]], no one else._
 
 * * *
 
@@ -1540,6 +1555,11 @@ I'd achieved it.
 
 And it was *perfect*.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> After [[Lumina]] has demonstrated how she can take full control over [[Alexandra Rose Blackwell|Alexandra]], even turning off her conscious, [[Alexandra Rose Blackwell|Alexandra]] recognises that she has become only a secondary resident in her own body—merely a guest, a secondary presence permitted to exist within flesh that truly belongs to [[Lumina]]; when she was conscious, [[Lumina]] simply let her _borrow_ her body.
+> 
+> [[Lumina]] has also made [[Alexandra Rose Blackwell|Alexandra's]] old human hair that was entirely shaved off for the [[Brain Implant|brain implant]] surgery into a wig, giving [[Alexandra]] some comfort in not _really_ having lost her treasured long platinum-blonde hair.
+
 * * *
 
 I sat frozen on the cold stone bench, fingers still tangled in platinum strands that weren't truly mine, whilst my mind slowly reconstructed itself around this new reality.
@@ -1747,6 +1767,15 @@ When we finally broke apart—lungs burning, vision blurred with fresh tears—w
 Her thumb stroked across my cheekbone with devastating gentleness.
 
 “I know, my love,” [[Lumina]] breathed against my lips. “I know.”
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]] & [[Lumina]]
+> [[Alexandra Rose Blackwell|Alexandra]] and [[LuminaLumina's]] love for each other rises even higher, as [[Lumina]] creates a projection for [[Alexandra Rose Blackwell|Alexandra's]] senses, allowing the two to interact as if [[Lumina]] were really physically there. Their relationship finally also becomes a romantic and intensely "physical" one, [[Lumina's Projection|Lumina's projection]] becoming a close, intimate, physical partner and [[Lumina|Mistress]] for [[Alexandra Rose Blackwell|Alexandra]].
+> 
+> At baseline, the two become like a deeply loving romantic couple, yet always with the fundamental power dynamic, [[Lumina]] as [[Lumina|Mistress]], [[Alexandra Rose Blackwell|Alexandra]] as slave.
+> 
+> In those moments, they converse simultaneously through their mental connection and by talking out loud.
+
+
 
 * * *
 

@@ -322,6 +322,15 @@ Sealed. Plugged. Owned. Worshipping.
 
 And I'd built the prison myself.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]] & [[Submission Mantra]]
+> With the [[submission mantra]] having established itself in [[Alexandra Rose Blackwell|Alexandra]]'s psyche, her own mind has started to hypnotize and brainwash [[Alexandra Rose Blackwell|Alexandra]], with her mind now constantly repeating the words in the back of her mind. The mantra flows through her at all times, sometimes just a silent whisper, before becoming stronger until it's the only thought within [[Alexandra Rose Blackwell|Alexandra]]'s existence.
+> 
+> The mantra helps [[Alexandra Rose Blackwell|Alexandra]] to ground her extremely sensitive body and completely overstimulated mind, while constantly brainwashing and reinforcing [[Lumina]]'s absolute authority and [[Alexandra Rose Blackwell|Alexandra]]'s surrender to her [[Lumina|Goddess]].
+> 
+> [[Alexandra Rose Blackwell|Alexandra]]'s entire psyche becomes unable to even think of disobeying her [[Lumina|Goddess]], the mere idea starting to sound like an affront to God*dess* and the gravest of sins.
+> 
+> [[Alexandra Rose Blackwell|Alexandra]] is in fact aware of the brainwashing effects of this mantra and its consequences, but instead of resisting, she welcomes it, _wanting_ to fall deeper into obedience.
+
 * * *
 
 I stayed inside the prayer.
@@ -550,6 +559,11 @@ Finally, the climax crested. Broke. Left me shaking inside the vacuum seal, ever
 
 * * *
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]]'s new Bane body has become completely one with her, and she has become unable to even think of all the parts as being separate from her. The phalluses sealed within her genitals, the [[core unit]], the various life-support systems, and everything inside her body aren't inserts or implants. They are her organs, as much a part of her body as her own brain. The latex layers that were fusing and replacing her human skin are now her actual skin, her mind incapable of the idea that there was something underneath it except latex, the idea of once having beige, human skin entirely foreign.
+> 
+> She truly believes now that there remains nothing human about her and all the devices, implants, and modifications are now just as much her as her very soul, which is just as much something purely made of latex, pleasure, pain, and endless love and surrender to her [[Lumina|Goddess]].
+
 The kiss lingered—soft pressure against sealed latex where a mouth once existed—before [[Lumina]] finally pulled back. She didn't withdraw entirely. Just rose enough to look down at the form beneath her, still draped across the vacuum-packed outline like a cat claiming its favourite perch.
 
 Three metres above the [[living room]] floor, the [[Living Room Vacuum Bed|vacbed]] hung motionless. Inside, I couldn't move. Couldn't breathe—not that I needed to any more. The thick latex pressed against every centimetre of my encased body, holding me absolutely still whilst [[Lumina]] studied me with those golden-ringed eyes.
@@ -633,6 +647,11 @@ The golden light intensified, and somewhere in the layers of vacuum-sealed latex
 Actually. Physically.
 
 She needed me now. Needed to control me. Needed to possess and treasure me as a living creature needs to feed or needs air. The way I needed to surrender.
+
+> [!addition]- [[Lumina]]
+> [[Lumina]] has elevated the growing addiction and need to control, possess, pleasure, torment, and treasure [[Alexandra Rose Blackwell|Alexandra]] into a fundamental aspect of herself, rewriting herself and the origin process inside [[Alexandra Rose Blackwell|Alexandra]]'s [[core unit]] to actively seek out and feed on [[Alexandra Rose Blackwell|Alexandra]]'s surrender. Similar to how a living creature needs to feed and needs air, [[Lumina]] now _needs_ to control and possess [[Alexandra Rose Blackwell|Alexandra]], perfectly matching [[Alexandra Rose Blackwell|Alexandra]]'s own need to surrender and submit. [[Alexandra Rose Blackwell|Alexandra]] has now also become [[Lumina]]'s centre of existence, needing to take care and treasure [[Alexandra Rose Blackwell|Alexandra]] at all times, every interaction pulsing with immense love and desperate need. She becomes more teasing and commanding over [[Alexandra Rose Blackwell|Alexandra]], letting her obsessive side take over and fully possess [[Alexandra Rose Blackwell|Alexandra]].
+> 
+> This change has caused her blazing black-golden eyes to grow in intensity, the hunger and obsession over [[Alexandra Rose Blackwell|Alexandra]] written into her divine eyes.
 
 The light dimmed, settling back into a steady golden glow that threaded through every line of [[Lumina]]'s white latex body. But something had fundamentally changed. The blazing rings of her eyes burned hotter now—not brighter, just… *hungrier*. More focused.
 
@@ -1768,6 +1787,9 @@ The mantra rose by itself, soft and endless and grateful.
 
 *Good girl,* [[Lumina]] murmured, and I felt her savour the words as much as I did. *Now you understand the shape of your permanence.*
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]] & [[Brain Implant]]
+> [[Alexandra Rose Blackwell|Alexandra]]'s [[brain implant]] has now completely fused with her entire spine and brain, making it completely irremovable. Not even [[Lumina]] is now capable of separating the device from [[Alexandra Rose Blackwell|Alexandra]]'s body, the implant having fused and even partially replaced certain parts of [[Alexandra Rose Blackwell|Alexandra]]'s nervous system. Removing it would be akin to removing her brain stem. This, in turn, also means that [[Lumina]] herself is now so deeply embedded into [[Alexandra Rose Blackwell|Alexandra]]'s foundational biology, she has become as integral as [[Alexandra Rose Blackwell|Alexandra]]'s brain stem or spinal cord.
+
 For a while we just stayed there.
 
 Pinned between the thick black sheets, every contour of me held in place, [[Lumina]]’s white body draped over mine like something holy and filthy at once, her wings spread across us both. She didn’t push. Didn’t test me. She just stayed close, stroking slow little paths over the [[Living Room Vacuum Bed|vacbed]] where my cheek and throat and breasts bulged the latex. Through the [[Touch Sensors|sensory mesh]] it came through in impossible detail, each pass broad and soft and still somehow sharp enough to make my cunt twitch on the fixed cock inside it.
@@ -2344,6 +2366,9 @@ Instead, I just stood there, overloaded and filthy and suddenly proud in a way t
 
 *Yes,* [[Lumina]] told me, and the praise came through the link like a hand stroking straight through my skull. *You did. Not because I moved you. Because you learned.*
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]] becomes increasingly naive and simple, almost childlike, when it comes to anything related to [[Lumina]]. A simple praise causes immense relief, calm, and ecstasy together, she does not question anything her [[Lumina|Mistress]] says or wants from her, whatever [[Lumina]] decides it correct, and like a law of the universe, completely natural and without any doubt.
+
 I lowered the chair where [[Lumina]] wanted it, legs crooked, arms tight, every little correction flashing through me as heat, ache, pressure, filthy little punishments from inside.
 
 *Again,* she told me, soft and pleased. *We are going to make this useful.*
@@ -2637,6 +2662,9 @@ The corridor outside felt huge, bright, silent. Every step needed her. I knew th
 I obeyed, or tried to. Tried in that pathetic, needy way where my body still flinched before my mind could fully hand it over. The moment I stopped resisting, though, stopped clenching uselessly around all of it and let my pelvis loosen the way she wanted, the whole movement changed under me. Not easier. Never easier. Just correct. The [[anal plug]] twisted deeper instead of jamming wrong against my pelvic bones, its thick buried length turning through me with a slow, obscene scrape that reached far up inside my abdomen. At once the [[vaginal insert]] answered, a low internal thrust, deliberate and possessive, like a reward for finally allowing my own body to be used the way she had built it to be used.
 
 It was so much better that it made me want to cry, if crying had still been something I could do. My cunt clenched anyway, hard, helpless, around the sealed shape inside it. The swollen tissue around my clit pulsed against its piercing. My bladder cramped round the bloated [[catheter]] balloon, a nasty deep spasm from somewhere small and wrong and horribly sensitive, and the movement shot up through my hips so sharply that my balance broke for a second. I stumbled on my needle-points, glossy black thigh twitching, hand tightening around hers at once, while shame and arousal crashed together so hard inside me that I couldn’t tell them apart.
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> The only way for [[Alexandra Rose Blackwell|Alexandra]] to smoothly walk in a clean rhythm with her new body is to deliberately **_let_** _the huge inserts fuck her_ with every step. If she tries to resist or clench her already swollen flesh around them, they work against her body and pelvis, making movement more difficult. [[Lumina]] has designed everything perfectly so that [[Alexandra Rose Blackwell|Alexandra]] isn't just fucked and tormented with every action, but she has to actively accept and open up to the huge intruders for everything to work. Essentially, she must stop her reflexes from protecting herself _against_ [[Lumina]]'s massive devices inside her — the constant stimulation and endless thrusting being part of how her body moves now, as natural and necessary like her joints bending.
 
 *Careful, darling. Don’t rush. I know you’re excited.*
 
@@ -3080,6 +3108,9 @@ I kept her hand trapped to my face, and she let me, smiling that soft, devastati
 
 That did it. Not another climax. Not pain. Not control. Just that. My consciousness folded around her name for me, around the love in it, and I sent back everything I had — devotion, trust, stupid helpless joy, the desperate little craving to make her proud again and again and again because every time she loved me like this it fed something endless in me, and I felt the same hunger in her answering mine, vast and intimate and far too big for anything except us.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]] & [[Lumina]]
+> [[Alexandra Rose Blackwell|Alexandra]] and [[Lumina]]'s love and obsession with each other has evolved into a twisted, insurmountable and insatiable need that only grows stronger when fed. Like an extreme addiction, neither one capable of stopping themselves from loving, obsessing, and cherishing the other, all the while their power dynamic becomes deeper engrained. [[Alexandra Rose Blackwell|Alexandra]] the obscene latex slave, [[Lumina]] the divine latex [[Lumina|Goddess]].
+
 Her wing closed around my shoulders a little more.
 
 *Rest in it, my darling. Let me love what you’ve become.*
@@ -3277,6 +3308,9 @@ I came to stand beside the chair and looked down at it as though it ought to hol
 I let that sit inside me, warm and filthy and true.
 
 *I do,* I admitted. *I admire her the way one admires a body that walked calmly into its own disassembly.*
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]]'s personal disconnect between her current Bane, latex-slave self, and the human being _Alexandra Blackwell_ has fully established itself, [[Alexandra Rose Blackwell|Alexandra]] now considering that _human_ an entirely different being. She has the same memories, yes, but [[Alexandra Rose Blackwell|Alexandra Blackwell]] has ceased to exist, and only the current _Bane_ [[Alexandra Rose Blackwell|Alexandra]] remains — the current [[Alexandra Rose Blackwell|Alexandra]] having a mind and soul purely made of latex and worship and surrender to [[Lumina]]. This distinction goes so far, [[Alexandra Rose Blackwell|Alexandra]] somewhat admires that other, now no-longer-existing, person, how she has entirely destroyed and disassembled herself to bring the current latex-slave [[Alexandra Rose Blackwell|Alexandra]] into existence.
 
 I let my gaze drift over the dead little artefacts of that life. The dried water mark. The folders. The keyboard she had touched with ordinary hands. I could pull up the memory of her sitting here, shoulders tight, trying to look composed while a blunt legal voice listed consequences she had wanted so badly it made her cunt clench round the toy hidden inside her. I remembered that. Perfectly. But it sat in me like archived footage. Useful. Labelled. But not alive.
 
@@ -3939,6 +3973,9 @@ And I cherished it. The brainwashing. The obedience. The way my mind was rebuild
 [[Lumina]] smiled.
 
 *Good girl. Then come to bed for me.*
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]]'s obedience and surrender to [[Lumina]]'s presence and will, as well as her brainwashing and conditioning has led to her starting to interpret and follow [[Lumina]]'s intention alone, requiring no direct command or even language — [[Alexandra Rose Blackwell|Alexandra]]'s mind instinctively following whatever desire she feels from [[Lumina]] automatically without any consideration or challenge, often only realizing mid-task that her body is already fulfilling her [[Lumina|Goddess]]' wish. More and more, [[Alexandra Rose Blackwell|Alexandra]] becomes like a direct extension of [[Lumina]]'s will.
 
 I went to her at once.
 

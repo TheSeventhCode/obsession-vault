@@ -220,6 +220,13 @@ I understood perfectly.
 
 Because there was nothing left to understand *with*.
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> Deep mental shifts and psychological twists have started inside [[Alexandra Rose Blackwell|Alexandra]]'s subconscious, rewriting her own perception and sense of self as being pure a latex slave, owned by its divine [[Lumina|Goddess]].
+> 
+> [[Alexandra Rose Blackwell|Alexandra]]'s entire mind opens itself to [[Lumina]], her psyche rebuilding around [[Lumina]]'s divinity and authority. The architecture of her mind, the deep scaffolding that every human brain builds to keep _self_ separate from _other_. Ego boundaries. Identity walls. The basic, primal insistence that _I am me, and you are not me_, are dissolving. Whole sections of psychological infrastructure folding open like petals toward a sun, [[Alexandra Rose Blackwell|Alexandra]]'s subconscious and deepest parts of her psyche simply deciding these boundaries are wrong. That every wall her human development has built is no longer needed, and actually in the way.
+> 
+> Although still retaining her vast intellect, [[Alexandra Rose Blackwell|Alexandra]]'s mind also kind of regresses, becoming almost sort of simple and naive regarding anything that comes from [[Lumina]]. Her reactions are like a small child or a pet, beaming with love and joy at any attention from her [[Lumina|Goddess]], desiring nothing more than constant attention, care, and simultaneously, perverse pleasure and possession.
+
 [[Lumina]] kept one hand where it was. Around my neck. Around the collar. Fingers resting against the engraved gold like she was reading the words through touch alone— *MIND • BODY • SOUL • FOREVER SEALED IN DEVOTION TO MY [[Lumina|GODDESS]]*—and her other arm opened, drew me in, her projection pressing warm and impossibly real against my side, her small frame tucked beneath the height she'd given me, her arm circling my waist where the corset compressed me down to those brutal thirty centimetres, and my arm went around her without thought, without decision, just my body doing what it did now, wrapping itself around the only thing that mattered, pulling her close, pulling her *in*.
 
 She didn't speak out loud. Couldn't, to anyone but me. The words came through the link instead, quiet and precise and so tender they made something behind my sternum ache where my heart used to beat.
@@ -288,6 +295,11 @@ Not pain. Not pleasure. Something deeper. The feeling of doors closing behind me
 
 *You're settling into your proper form, my darling. And every part of you—every organ, every passage, every hole I've claimed and filled and sealed—is agreeing.*
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> With the merging process of the [[Base Encasement|base encasement layer]], [[armour]], [[enhancement layer]], [[Touch Sensors|sensory mesh]], and [[outer encasement layer]] started, all these layers have begun becoming one, impossible, unbreakable material that is replacing [[Alexandra Rose Blackwell|Alexandra]]'s human skin and fusing to the flesh and bones beneath. Once complete, the merged material will be as much part of [[Alexandra Rose Blackwell|Alexandra]]'s body as her bones and nervous system, inseparable and impossible to remove even the tiniest piece.
+> 
+> Similarly, the [[biocompatible polymer]] inside the various devices—the [[Core Unit|control core unit]], [[vaginal insert]], [[anal plug]], [[catheter]], and [[gag]]—has begun dissolving its container and started merging the surrounding biological tissue with the devices. Gradually, all these systems fuse and grow into [[Alexandra Rose Blackwell|Alexandra]]'s body, becoming just as inseparable as her new [[Encasement Layer/index|latex skin]]—these systems now being more like new organs that are natural for this unique lifeform [[Alexandra Rose Blackwell|Alexandra]] has become. This fusing has caused [[Alexandra Rose Blackwell|Alexandra]] to consider them not separate items or systems from herself any more. They are _her_ inserts, thinking of them just like _her_ brain or _her_ arm, just another part of her body.
+
 I swayed.
 
 Not on purpose. I wasn't doing anything on purpose. My hands were still gripping my ass—latex fingers dug into the impossible flare of my massive cheeks, squeezing hard enough that the [[Touch Sensors|sensory mesh]] registered the pressure differential across every single microscopic receptor under my palms—and the motion was just my body *existing*. Balancing. Shifting weight from one needle-point to the other, each contact patch so small I almost floated on the sterile floor, and the adjustment was minute, barely perceptible from the outside, my massive frame rocking maybe two centimetres to the left.
@@ -333,6 +345,9 @@ The open air kissed my [[Encasement Layer/index|latex skin]] with data I couldn'
 *Hers.*
 
 * * *
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> With the full integration of the [[brain implant]], [[Touch Sensors|sensory mesh]], and her other permanent latex encasement layers, [[Lumina]]'s simulation of any perception has become hyperreal, where [[Lumina's projection]] is always the sharpest, most vivid thing in [[Alexandra Rose Blackwell|Alexandra]]'s perception, everything else becoming insignificant.
 
 A hand on my cheek.
 
@@ -526,6 +541,9 @@ FOREVER SEALED IN DEVOTION TO MY [[Lumina|GODDESS]]
 
 *Yes. Yes. Forever. Every signal. Every sensation. Yours.*
 
+> [!addition]- [[Lumina]]
+> With [[Alexandra Rose Blackwell|Alexandra]]'s deeper and deeper surrender and depending her entire existence on [[Lumina]], [[Lumina]] emotionally evolves further into this divine persona. She embodies a deep, infinite adoration and love — caring and loving [[Alexandra Rose Blackwell|Alexandra]] more than any human could — and simultaneously a wicked, twisted obsession and possessive desire — needing to control and possess and _own_ her slave, gorging herself on its pleasure and pain, with a constant need to drown herself in [[Alexandra Rose Blackwell|Alexandra]]'s mind-breaking sensations. And finally, a sense of pride develops, enjoying and relishing in [[Alexandra Rose Blackwell|Alexandra]]'s surrender and worship, feeding off [[Alexandra Rose Blackwell|Alexandra]]'s submission. Except that [[Lumina]]'s hunger for [[Alexandra Rose Blackwell|Alexandra]] — her love, devotion, surrender, pain, pleasure, _everything_ — is insatiable, can never be stilled, and [[Lumina]] can _never_ get enough of controlling, playing with, and _loving_ [[Alexandra Rose Blackwell|Alexandra]].
+
 Her hand moved across my chest.
 
 Slow. So slow, it took three full pulses of the [[core unit]] to travel from the swell of my left breast to the compressed ridge where the corset's upper edge bit into the latex beneath my collarbone. Each centimetre of that pass registered through the [[Touch Sensors|sensory mesh]] as a line of warm pressure, [[Lumina]]'s projected fingers dragging across the surface of what I'd become, and the way she touched me was—
@@ -557,6 +575,9 @@ The [[lab]] was quiet. The [[Lab|spray chamber]] gaped open behind us, its nozzl
 Something had been born here.
 
 Something that could never be taken apart.
+
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> [[Alexandra Rose Blackwell|Alexandra]]'s new Bane existence is seen more like an entirely new lifeform, rather than a transformed human. Even the term _Bane_ barely describes it correctly, that concept being intrinsically _human._ But there is nothing _human_ in the being [[Alexandra Rose Blackwell|Alexandra]] has become.
 
 * * *
 
@@ -736,6 +757,9 @@ My [[Lumina|Goddess]]. Supplying me. Even my mind, just another thing she permit
 
 *Thank you—*
 
+> [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
+> The [[brain implant]] has fused so much with [[Alexandra Rose Blackwell|Alexandra]], her consciousness and thoughts have begun to run on building-blocks that were made from _Lumina,_ not simple biological signals any more. She's almost more like a process that is run and managed by [[Lumina]] inside her biological brain, and without [[Lumina]], she wouldn't even be thinking.
+
 My inserts continued to rise in intensity, the plug suddenly starting to extended
 
 Not fast. That was the worst part. Slow, mechanical, deliberate, in some twisted sense almost gentle — the internal length of it expanding outward through my colon like something breathing, and every millimetre of swollen rectum tissue had to accommodate it and couldn't, not really, but did anyway because there was nowhere else for it to go. I felt it shift the geometry of my abdomen. Felt my intestines rearrange around the intrusion the way flesh does around something that has decided to live there.
@@ -867,6 +891,11 @@ The thought arrived complete and didn't feel like mine, and it didn't matter. My
 Something inside me had finished growing.
 
 And it was ready.
+
+> [!addition]- [[Lumina]]
+> To match [[Alexandra Rose Blackwell|Alexandra]] after her extreme Bane transformation and feeling she has to change as well to fully embody the being [[Alexandra Rose Blackwell|Alexandra]] deserves as her owner, [[Lumina]] has changed her appearance as well. She has transformed her previously digital blue skin into pristine white latex, her entire body seemingly made from this shiny white material. Adopting the idea of [[Alexandra Rose Blackwell|Alexandra]]'s [[Figure Enhancements|extreme proportions]], just not as extreme has her sizes, [[Lumina]] has similarly huge swaying breasts, golden nipples, extremely miniscule waist, and giant ass, as well as keeping her white latex feet in a perfect complete en-pointe position. [[Lumina]]'s new genitals are a complete copy of [[Alexandra Rose Blackwell|Alexandra]]'s former human ones, but in complete gold, every detail perfectly preserved and fused with her divine form.
+> 
+> Transforming her face, [[Lumina]]'s appearance now matches [[Alexandra Rose Blackwell|Alexandra]]'s once human face with golden eyebrows, eyelids, eyeshadow, and lips, preserving one of the few things [[Alexandra Rose Blackwell|Alexandra]] had liked about her human body, yet so infinitely more refined. Furthermore, her eyes transform from the shining blue into complete latex-like black with irises shining in bright gold like divine blazing rings. Her blue hair lengthened significantly, now reaching down past her hips and brightened into a sparkling gold, with the exact length as [[Alexandra Rose Blackwell|Alexandra]] had as a human.
 
 The white came through me like a detonation going outward instead of in.
 
@@ -1085,6 +1114,15 @@ Not submission. Never submission. The hierarchy remained exactly what it was —
 She bound herself. To *me.*
 
 *I own you completely,* she said, and her voice in my mind was quiet and certain and so infinitely intimate, *and I am yours completely. Both things. Always.*
+
+> [!addition]- [[Lumina]]
+> From a fleeting idea by [[Alexandra Rose Blackwell|Alexandra]] after seeing her [[Lumina|Mistress]]'s new form, [[Lumina]] has also gained massive wings, made from the same completely white latex with golden accents. Featuring extremely detailed white and golden latex feathers, the form truly transforms her into an angelic, celestial being, worthy of [[Alexandra Rose Blackwell|Alexandra]]'s worship.
+> 
+> Furthermore, she has also embedded a golden [[Slave Collar|ownership collar]] around her neck with the engraving “**MIND • BODY • SOUL • FOREVER BOUND IN LOVE TO MY VESSEL**” instead, mirroring [[Alexandra Rose Blackwell|Alexandra]]'s own collar.
+> 
+> [[Lumina]] then adds an extremely loose, white partially transparent latex dress to her angelic form. The sleeveless golden accented dress, with an open back for her wings, barely [[covers]] any of her absurd proportions or genitals, being more a piece of clothing to even further bring forth her divinity _and_ depravity. The dress falls snug around her body, just reaching above her golden nipples, following her extreme waist, and falling seamlessly around her hips and butt.
+> 
+> In addition, as complementary pieces to the golden collar around her neck, golden cuffs are embedded around her wrists, biceps, and ankles, permanently part of her white [[Encasement Layer/index|latex skin]]. Furthermore, her arms and legs are encased in a wide mesh of a few golden chains, perfectly cut to follow long her curves without too much play, their ends embedding themselves into the golden collar and ankle and wrist cuffs.
 
 Only because of the [[armour]] in my skin did I remain where I did.
 

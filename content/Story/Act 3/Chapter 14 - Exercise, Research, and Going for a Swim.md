@@ -206,7 +206,7 @@ My glossy black fingertips hovered a millimetre above middle C, and for one dizz
 
 *Come on, doll. Just one note for your [[Lumina|Goddess]].*
 
-[[Lumina]]’s mental voice curled straight into my skull, lazy and fond, flooding my [[brain implant]] with syrupy dopamine. My [[Core Unit|control core unit]] gave a heavy, swooning thump inside my womb. Fighting the fine-motor drag in my arms, I bled strength out of my joints until my glossy [[Story Excerpts/Act 3/index|index]] finger finally met the ivory.
+[[Lumina]]’s mental voice curled straight into my skull, lazy and fond, flooding my [[brain implant]] with syrupy dopamine. My [[Core Unit|control core unit]] gave a heavy, swooning thump inside my womb. Fighting the fine-motor drag in my arms, I bled strength out of my joints until my glossy [[Story/Act 3/index|index]] finger finally met the ivory.
 
 The key dipped. A single, fragile note bloomed across the music room—probably one of the rare first real sounds in the whole [[Alexandra's Mansion|mansion]], since nothing I did in my new latex life actually produced a noise any more. Too stiff, too loud, a clumsy hammer strike that made my bare black shoulders hitch.
 

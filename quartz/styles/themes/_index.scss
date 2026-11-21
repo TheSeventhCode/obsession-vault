@@ -2161,7 +2161,7 @@ body {
     color: light-dark(rgb(138, 92, 245), rgb(166, 138, 249));
   }
 
-  p {
+  p, .page article li  {
     background-color: rgba(0, 0, 0, 0);
     color: light-dark(rgb(124, 127, 147), rgb(142, 149, 179));
     cursor: auto;

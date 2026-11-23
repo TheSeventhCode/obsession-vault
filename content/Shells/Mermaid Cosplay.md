@@ -40,6 +40,6 @@ As with the regular [[Latex Mermaid Tail]], the [[Alexandra's Disguise|Skinsuit]
 
 Furthermore, it also includes a usually sealed closed, fake-vagina, that forwards any sensations directly to [[Alexandra Rose Blackwell|Alexandra]], as well as engages the massive [[Vaginal Insert|vaginal dildo]].
 
-With embedded tiny speakers, the [[Alexandra's Disguise|Skinsuit]] replicates [[Alexandra Rose Blackwell|Alexandra]]'s voice in her mermaid form, allowing her to speak naturally. These speakers are also capable of working underwater.
+With embedded tiny speakers, the [[Alexandra's Disguise|Skinsuit]] replicates [[Alexandra's new voice]] in her mermaid form, allowing her to speak naturally. These speakers are also capable of working underwater.
 
 The suit allows [[Alexandra Rose Blackwell|Alexandra]] to swim very efficiently while fully disguised. Out of water, [[Alexandra Rose Blackwell|Alexandra]] cannot walk in the tail; the lower body is a single piece with no knee joints. For out-of-water movement, a specially designed chaise longue wheelchair is available. It's controlled by [[Lumina]] and tailored to accommodate the mermaid tail, ensuring easy navigation within the [[Alexandra's Mansion|mansion]] and its premises.

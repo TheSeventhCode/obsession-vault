@@ -310,7 +310,7 @@ Data bloomed across my vision—surgical schematics, bone density calculations, 
 
 The contact area at each end measured barely twelve millimetres across.
 
-My entire body weight. Balanced on two points smaller than coins.
+My entire body weight. Balanced on two points the size of matchsticks.
 
 “You'll need the armoured encasement just to stand,” [[Lumina]] murmured, her projection's hand ghosting over my calf. “Without it, these points would shatter instantly. Your legs will be elegant, tapering sculptures—inhuman, perfect, and completely dependent on my systems to function.”
 
@@ -426,7 +426,7 @@ Cultured from [[Alexandra Rose Blackwell|Alexandra]]'s own cells, grown in accel
 
 When she stepped back—metaphorically, her consciousness still distributed across every system—the transformation was complete.
 
-[[Alexandra Rose Blackwell|Alexandra]]'s legs were elegant sculptures. Smooth tapers from knee to impossibly sharp points. No ankle definition. No arch. No hint of human foot architecture. Just perfect, fetishistic geometry that terminated in contact points smaller than coins.
+[[Alexandra Rose Blackwell|Alexandra]]'s legs were elegant sculptures. Smooth tapers from knee to impossibly sharp points. No ankle definition. No arch. No hint of human foot architecture. Just perfect, fetishistic geometry that terminated in contact points the size of the tip of a pen.
 
 *Beautiful,* [[Lumina]] thought, studying her work with something approaching religious awe. *Inhuman. Dependent. Mine.*
 
@@ -443,7 +443,7 @@ Perfect.
 > [!addition]- [[Alexandra Rose Blackwell|Alexandra Blackwell]]
 > [[Alexandra Rose Blackwell|Alexandra]]'s ears have been fully replaced with the [[Ear Removal|synthetic ears]] and new [[Ear Removal|Balance systems]]. Her natural sense of hearing and balance is fully gone, only [[Lumina]]'s systems providing her with a far more detailed sense of sound and balance. Nothing remains of [[Alexandra Rose Blackwell|Alexandra]]'s ears, and her head remains completely smooth where they've once been, as if she didn't have ears in the first place.
 > 
-> [[Alexandra Rose Blackwell|Alexandra]]'s feet have also been restructured in the extreme [[Ballet Feet|needle-point feet]] surgery. Over 90% of her human feet have been removed, her legs now ending in tiny needle-points from her calves down, her contact with the floor barely larger than a small coin. With this modification, [[Alexandra Rose Blackwell|Alexandra]] has also gained some more height, [[Lumina]] now significantly smaller than her, just reaching up to her chin.
+> [[Alexandra Rose Blackwell|Alexandra]]'s feet have also been restructured in the extreme [[Ballet Feet|needle-point feet]] surgery. Over 90% of her human feet have been removed, her legs now ending in tiny needle-points from her calves down, her contact with the floor now being two tiny round hemispheres the size of the tip of a pen. With this modification, [[Alexandra Rose Blackwell|Alexandra]] has also gained some more height, [[Lumina]] now significantly smaller than her, just reaching up to her chin.
 
 * * *
 
@@ -515,7 +515,7 @@ And I saw them.
 
 *Oh God.*
 
-My legs terminated in impossibilities. From mid-calf down, the familiar contours of ankle and foot had been erased entirely, replaced by smooth conical structures that tapered with mathematical precision. The flesh looked healthy—perfectly healed—but the geometry was fundamentally wrong. My calves narrowed into impossibly slender points barely wider than my pinkie finger, the tips capped with surgical steel smaller than a coin.
+My legs terminated in impossibilities. From mid-calf down, the familiar contours of ankle and foot had been erased entirely, replaced by smooth conical structures that tapered with mathematical precision. The flesh looked healthy—perfectly healed—but the geometry was fundamentally wrong. My calves narrowed into impossibly slender points barely wider than my pinkie finger, the tips capped with surgical steel in a round hemisphere barely larger than the tip of a pen.
 
 These weren't feet. They were needles. Weapons. Instruments designed for piercing, not bearing weight.
 
@@ -525,7 +525,7 @@ I tried to flex them—an automatic human reflex seeking reassurance through fam
 
 The thought fractured before completing, panic clawing up through my limbic system. [[Lumina]]'s neurochemical regulation intercepted it immediately, flooding artificial calm through my hypothalamus, but not quickly enough to completely suppress the raw horror.
 
-I couldn't walk. Couldn't possibly balance on these—these *things* that had replaced my feet. The contact points were smaller than coins. The geometry violated every principle of human biomechanics. I would fall. I would shatter these needle-points against the floor. I would—
+I couldn't walk. Couldn't possibly balance on these—these *things* that had replaced my feet. My legs ended in tiny tips the size of matchsticks. The geometry violated every principle of human biomechanics. I would fall. I would shatter these needle-points against the floor. I would—
 
 *Breathe, my love.*
 
@@ -551,7 +551,7 @@ Every instinct screamed that this was impossible, that I would topple, that the 
 
 I stood.
 
-On two points smaller than coins.
+On two points that were more like matchsticks than _feet_.
 
 Because [[Lumina]] willed it.
 
@@ -573,7 +573,7 @@ My arms flailed automatically—useless meat responding to ancient reflexes. My 
 
 [[Lumina]]'s systems engaged.
 
-My legs locked rigid mid-fall, muscles freezing with absolute authority. Micro-hydraulic actuators throughout my restructured calves activated in precise sequence, redistributing my weight through impossibly complex calculations. I hung suspended at an angle that violated physics—balanced on two points smaller than coins through pure computational mastery—before [[Lumina]]'s control slowly pulled me upright again, my body moving like a marionette drawn by invisible strings.
+My legs locked rigid mid-fall, muscles freezing with absolute authority. Micro-hydraulic actuators throughout my restructured calves activated in precise sequence, redistributing my weight through impossibly complex calculations. I hung suspended at an angle that violated physics—balanced on two points smaller than my pinky through pure computational mastery—before [[Lumina]]'s control slowly pulled me upright again, my body moving like a marionette drawn by invisible strings.
 
 *You see?*
 
@@ -639,7 +639,7 @@ Her projection materialised beside me in the [[Lab|surgery room]], ethereal form
 
 *Try walking,* she commanded, rising gracefully. *Three steps forward. I'll guide you through the first, but you must execute the second yourself.*
 
-My consciousness focused on the intention—*forward*—and felt [[Lumina]]'s systems engage in response. My weight shifted. My left leg lifted fractionally, needle-point separating from the floor with a faint metallic whisper. Hip muscles activated. Knee extended. The leg swung forward in a perfect arc, whilst micro-hydraulic actuators throughout my right leg made thousands of instantaneous corrections, keeping me balanced on a contact point smaller than a coin.
+My consciousness focused on the intention—*forward*—and felt [[Lumina]]'s systems engage in response. My weight shifted. My left leg lifted fractionally, needle-point separating from the floor with a faint metallic whisper. Hip muscles activated. Knee extended. The leg swung forward in a perfect arc, whilst micro-hydraulic actuators throughout my right leg made thousands of instantaneous corrections, keeping me balanced on a contact point barely the size of the tip of a pen.
 
 The needle-point touched down.
 

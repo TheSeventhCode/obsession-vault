@@ -527,7 +527,7 @@ Both feet were gone.
 
 Not hidden. Not covered. *Gone.*
 
-What remained were two smooth, black, tapering rods extending from my calves to impossibly sharp points—each contact surface barely larger than a small coin. No ankles. No arches. No toes. No discernible human structure whatsoever. Just elegant, alien darkness ending in reinforced needle-tips that would bear my entire weight forever.
+What remained were two smooth, black, tapering rods extending from my calves to impossibly sharp points—each contact surface reduced to two round hemispheres than came close to the tips of matchsticks in size. No ankles. No arches. No toes. No discernible human structure whatsoever. Just elegant, alien darkness ending in reinforced needle-tips that would bear my entire weight forever.
 
 I stared down at them through my synthetic vision, the thermal overlay painting them in cool blues and purples, the pressure sensors feeding me data about the perfect force distribution across those tiny contact points. My legs looked like they belonged to some otherworldly statue—smooth, black, tapering, inhuman.
 
@@ -719,7 +719,7 @@ My latex-coated hands rose before my face, turning slowly in the sterile air. Th
 
 *“Beautiful,”* I whispered mentally.
 
-I shifted my weight experimentally, preparing for the inevitable loss of balance that my [[Figure Enhancements|extreme proportions]] should have demanded. The needle-point contacts—each barely larger than a coin—pressed against the laboratory floor with impossibly concentrated force.
+I shifted my weight experimentally, preparing for the inevitable loss of balance that my [[Figure Enhancements|extreme proportions]] should have demanded. The needle-point contacts—each about the size of the tip of a pen—pressed against the laboratory floor with impossibly concentrated force.
 
 I didn't stumble.
 
@@ -978,7 +978,7 @@ The [[anal plug]] ground deeper. The [[vaginal insert]] pulsed faster. My arousa
 > 
 > The [[Helmet]] has removed all identifiable features from [[Alexandra Rose Blackwell|Alexandra]], leaving her head as just as smooth oval shape.
 > 
-> With the special [[Ballet Feet|vertical feet]] of the [[Armour]], [[Alexandra Rose Blackwell|Alexandra]]'s legs have become jet-black needle-point rods, long poles and only balancing on a surfaces smaller than a tiny coin.
+> With the special [[Ballet Feet|vertical feet]] of the [[Armour]], [[Alexandra Rose Blackwell|Alexandra]]'s legs have become jet-black needle-point rods, long poles and only balancing on surfaces the size of the tips of pens.
 
 * * *
 
@@ -1028,7 +1028,7 @@ And it was absolutely *perfect*.
 
 *It is,* [[Lumina]] agreed softly through our connection, her voice warm honey and quiet pride. *You're perfect, my love. Completely sealed. Completely mine.*
 
-I pushed away from the chamber wall, and my body responded with immediate, perfect stability—no wobble, no adjustment period, no learning curve required. The [[Ballet Feet|needle-point feet]] beneath me distributed my entire weight across contact areas smaller than coins, yet I stood as steady as if I were planted on solid ground, the [[armour]]'s force distribution working in seamless concert with the synthetic [[Ear Removal|balance systems]] embedded where my inner ears once existed.
+I pushed away from the chamber wall, and my body responded with immediate, perfect stability—no wobble, no adjustment period, no learning curve required. The [[Ballet Feet|needle-point feet]] beneath me distributed my entire weight across contact areas the size of matchsticks, yet I stood as steady as if I were planted on solid ground, the [[armour]]'s force distribution working in seamless concert with the synthetic [[Ear Removal|balance systems]] embedded where my inner ears once existed.
 
 Standing fully upright, I began the exploration that felt less like self-examination and more like… devotion. Like touching a relic. Something holy.
 
@@ -1713,7 +1713,7 @@ All hidden. All perfectly concealed behind this sleek outer shell.
 
 I spread my fingers across my glutes, groping the massive swell of flesh and implant material. So huge they created that obscene gap between them, space for the [[anal plug]]'s inflated end to nestle, whilst forcing my gait into its inevitable hip-rolling sway. The muscle fibres here were particularly dense—I could feel their coiled power beneath my palms, ready to amplify any movement [[Lumina]] permitted.
 
-My exploration continued down legs that tapered in smooth, unbroken lines. No irregularities. No hint of knee or ankle joints beneath the [[armour]] feet. Just elegant black rods narrowing to points barely wider than coins, each ending in a synthetic cap that somehow bore my entire transformed weight without fracturing.
+My exploration continued down legs that tapered in smooth, unbroken lines. No irregularities. No hint of knee or ankle joints beneath the [[armour]] feet. Just elegant black rods narrowing to points barely wider than pen-tips, each ending in a synthetic cap that somehow bore my entire transformed weight without fracturing.
 
 I shifted my balance experimentally. The needle-points held. Stable. Impossible, yet real.
 
@@ -1937,7 +1937,7 @@ I would become shiny, smooth, anonymous, perfection.
 
 I turned slightly—the devices inside me shifting with the movement, sending fresh cascades of pleasure-pain through my abdomen—and regarded my reflection one final time through [[synthetic eyes]] that saw across impossible spectra.
 
-The thing in the mirror was impossible. Black latex already turning my body into something other than human. Massive breasts now full of tanks instead of implants or flesh. A waist crushed down to thirty centimetres. Hips flaring wide around the [[pelvis shell]], and behind them my huge, obscene arse jutting out in a ridiculous, pornographic swell, split by the way the plug forced my cheeks apart. Then those long black legs, tapering into elegant rods and ending in needle-points barely larger than coins.
+The thing in the mirror was impossible. Black latex already turning my body into something other than human. Massive breasts now full of tanks instead of implants or flesh. A waist crushed down to thirty centimetres. Hips flaring wide around the [[pelvis shell]], and behind them my huge, obscene arse jutting out in a ridiculous, pornographic swell, split by the way the plug forced my cheeks apart. Then those long black legs, tapering into elegant rods and ending in needle-points.
 
 And above it all, the smooth oval [[helmet]] that had erased my face entirely.
 
@@ -1956,7 +1956,7 @@ The control core pulsed faster still, [[Lumina]]'s excitement reverberating thro
 
 * * *
 
-My mental affirmation crashed through our [[Brain Implant|neural connection]] with such overwhelming force that the [[Core Unit|control core unit]] embedded in my womb *detonated* into response. The steady pulse I'd grown accustomed to—that artificial heartbeat we'd started sharing—accelerated violently into a hammering rhythm that felt like it might tear through my compressed abdomen. Each thundering beat reverberated outward through sensitivity-swollen tissue, transmitted by the mesh with merciless precision, whilst my entire transformed body convulsed on needle-points barely wider than coins.
+My mental affirmation crashed through our [[Brain Implant|neural connection]] with such overwhelming force that the [[Core Unit|control core unit]] embedded in my womb *detonated* into response. The steady pulse I'd grown accustomed to—that artificial heartbeat we'd started sharing—accelerated violently into a hammering rhythm that felt like it might tear through my compressed abdomen. Each thundering beat reverberated outward through sensitivity-swollen tissue, transmitted by the mesh with merciless precision, whilst my entire transformed body convulsed on my tiny needle-points.
 
 The [[anal plug]] erupted into synchronized motion.
 
@@ -2126,7 +2126,7 @@ Could only *see*.
 
 I was complete.
 
-From the front: a creature of absolute darkness. My head a perfect oval, smooth and featureless, catching laboratory light in long sweeping arcs that travelled from crown to chin without interruption. No eyes. No nose. No mouth. No ears. Not even the faintest suggestion of where these things had once existed. Just unbroken, flawless black that seemed to drink the light touching it and return it transformed into something richer, deeper, more alive. Below that anonymous head, the dramatic flare of my shoulders gave way to my enormous breasts—perfect, massive spheres of glossy void that reflected the room in warped miniature—then plunged inward to the brutal compression of my thirty-centimetre waist before swelling out into hips so wide they seemed structurally impossible, my giant arse jutting behind them in a heavy, obscene counter-curve even from this angle. My legs tapered into elegant rods ending in needle-points smaller than coins, my contact with the floor so minimal I appeared to hover.
+From the front: a creature of absolute darkness. My head a perfect oval, smooth and featureless, catching laboratory light in long sweeping arcs that travelled from crown to chin without interruption. No eyes. No nose. No mouth. No ears. Not even the faintest suggestion of where these things had once existed. Just unbroken, flawless black that seemed to drink the light touching it and return it transformed into something richer, deeper, more alive. Below that anonymous head, the dramatic flare of my shoulders gave way to my enormous breasts—perfect, massive spheres of glossy void that reflected the room in warped miniature—then plunged inward to the brutal compression of my thirty-centimetre waist before swelling out into hips so wide they seemed structurally impossible, my giant arse jutting behind them in a heavy, obscene counter-curve even from this angle. My legs tapered into elegant rods ending in needle-points reduced to tiny round hemispheres akin to the tip of a pen, my contact with the floor so minimal I appeared to hover.
 
 From the back: the same flawless darkness, the dramatic curve of my spine forced into permanent arch by the corset, my massive arse and hips creating an obscene silhouette that no biological human could possess, the huge weight of my arse pushed apart into that shameless, pornographic valley between my cheeks. Every surface caught and consumed light in equal measure, glossy-wet reflections flowing across my curves like oil on still water.
 
@@ -2502,5 +2502,5 @@ Finally, *finally.*
 > With this layer complete, [[Alexandra Rose Blackwell|Alexandra]] has become the ultimate embodiment of her and [[Lumina]]'s dreams:
 > - Her body is absolutely featureless, not a single wrinkle or imperfection in her absurd [[Encasement Layer/index|latex skin]].
 > - She has ridiculous proportions, with breasts as large as basket-balls, a waist crushed down to 30 centimetres in circumference, and wide hips with gigantic, pushed-apart ass-cheeks, creating in impossible hourglass shape. These crazy proportions can never be hidden, one breast alone far larger than her head, with any movement needing perfect control to manage the ridiculous proportions.    
-> - Her legs end in brutal tiny needle-point rods from her calves down, her contact points smaller than coins, making it appear like she's hovering instead of actually standing on the floor.   
+> - Her legs end in brutal tiny needle-point rods from her calves down, her “feet” now simply two tiny round hemispheres the size of the tip of a pen, making it appear like she's hovering instead of actually standing on the floor.   
 > - She is completely anonymous, with any identity completely erased, her head a smooth shell with only a simple featureless oval for her face, a black void that is as featureless and perfect as any other part of her [[Encasement Layer/index|latex skin]].

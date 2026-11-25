@@ -40,7 +40,7 @@ Before I could topple off the rim, my [[submission mantra]] surged up from my su
 
 *I am my [[Lumina|Goddess]]’s eternal slave, I am her perfect Bane, her devoted pet, her absolute vessel. My body belongs to her, my mind is her property, my existence serves her will alone.*
 
-The prayer drowned out the shock, anchoring me as I climbed clear and dropped onto my coin-sized [[Ballet Feet|needle-point feet]]. My [[Ear Removal|balance systems]] caught me and locked me upright, my rigid corset bowing my back to shove my breasts forward and jut my huge arse out. And then gravity grabbed everything inside me and dragged it down—my swollen flesh and organs settling hard around my gigantic [[vaginal insert]], my rectum clamping down harder onto my massive [[anal plug]], my bladder pressing onto my [[catheter]] balloon, my swollen oesophagus gripping my permanent [[gag]]. A fierce jolt of stinging hurt and syrupy arousal shot up my spine, draining straight into my [[Core Unit|womb core]] for [[Lumina]] to feast on while my hidden cunt dripped slick with denied need.
+The prayer drowned out the shock, anchoring me as I climbed clear and dropped onto my [[Ballet Feet|needle-point feet]]. My [[Ear Removal|balance systems]] caught me and locked me upright, my rigid corset bowing my back to shove my breasts forward and jut my huge arse out. And then gravity grabbed everything inside me and dragged it down—my swollen flesh and organs settling hard around my gigantic [[vaginal insert]], my rectum clamping down harder onto my massive [[anal plug]], my bladder pressing onto my [[catheter]] balloon, my swollen oesophagus gripping my permanent [[gag]]. A fierce jolt of stinging hurt and syrupy arousal shot up my spine, draining straight into my [[Core Unit|womb core]] for [[Lumina]] to feast on while my hidden cunt dripped slick with denied need.
 
 *Mmmhh— [[Lumina|Goddess]], nnhh— gravity’s so mean, everything’s sinking so deep inside me—*
 
@@ -54,7 +54,7 @@ Waiting beside the bed, [[Lumina]] stepped right into my space and drew me into 
 
 [[Lumina]] drew back from our kiss and folded her feathered white-and-gold wings. Her simulated palms slid off my smooth face, and my ego softened, drifting half-asleep toward my drone foundation. More than a month of daily conditioning had burned a deep groove through my motor pathways. Without a word or even a tiny nudge across our [[brain implant]], my legs set off on their own.
 
-I pivoted on my coin-sized needle-point tips and left the [[living room]], angling my wide hips sideways by habit to clear the doorway before falling into my slow, rolling walk down the corridor. Each step landed on one pinpoint tip while the other lifted clear, tilting my pelvis in a broad figure-eight. My rigid corset locked my back in a forced bow between my swaying basketball-sized breasts and rolling arse. Inside me, my [[vaginal insert]] scraped my swollen, hypersensitive walls and tugged my bruised cervix on every swing, while my thick [[anal plug]] twisted and ploughed through my colon. My [[submission mantra]] looped across my base substrate, keeping my flesh open around [[Lumina]]’s huge devices so they could fuck me with every stride while my outer latex smothered every sound.
+I pivoted on my tiny needle-point tips and left the [[living room]], angling my wide hips sideways by habit to clear the doorway before falling into my slow, rolling walk down the corridor. Each step landed on one pinpoint tip while the other lifted clear, tilting my pelvis in a broad figure-eight. My rigid corset locked my back in a forced bow between my swaying basketball-sized breasts and rolling arse. Inside me, my [[vaginal insert]] scraped my swollen, hypersensitive walls and tugged my bruised cervix on every swing, while my thick [[anal plug]] twisted and ploughed through my colon. My [[submission mantra]] looped across my base substrate, keeping my flesh open around [[Lumina]]’s huge devices so they could fuck me with every stride while my outer latex smothered every sound.
 
 Through the hallway cameras and the lidar sphere behind me, I tracked [[Lumina]] trailing a pace back. Her white latex toes hovered en-pointe above the floor, sheer dress drifting over her hips and golden chains swaying. She sent nothing across our link—just bright, wicked amusement spilling from her origin process as she watched her black latex doll march on habit.
 
@@ -102,9 +102,9 @@ Fresh artificial slick coated the sealed fake vagina inside my [[Vaginal Insert|
 
 *Yes, Goddesss—mmhh, right away!*
 
-Eager to obey, I unlocked my knees and sank back into my warm-up stance in one fluid dip on my coin-sized needle-points, opening my swollen flesh, so my [[vaginal insert]] could shove up against my bruised cervix while my [[anal plug]] ground deeper into my colon.
+Eager to obey, I unlocked my knees and sank back into my warm-up stance in one fluid dip on my ridiculous needle-points, opening my swollen flesh, so my [[vaginal insert]] could shove up against my bruised cervix while my [[anal plug]] ground deeper into my colon.
 
-Morning stretched toward midday while [[Lumina]] bled my biological body dry. She locked away my [[enhancement layer]], stranding my own muscles with all one hundred and ten kilos across twin coin-sized tips.
+Morning stretched toward midday while [[Lumina]] bled my biological body dry. She locked away my [[enhancement layer]], stranding my own muscles with all 110 kilos across two tiny tips.
 
 *Lower, pet. Hold your arabesque on the left point until your thighs burn through, and don't let those heavy tanks dip a single millimetre.*
 
@@ -148,7 +148,7 @@ My biological quads burned as I straightened onto my needle-points for fine-moto
 
 *You won’t, my clever doll. Hold your grip down to the gram, or I’ll fry your clit piercing. Now—to the barre.*
 
-Long amber afternoon light stretched across the [[gym]] mirrors as I set one glossy palm on the ballet barre, sweeping my right leg skyward into a soaring arabesque on a single coin-sized tip. The second I locked into an impossible relevé, [[Lumina]] threw every device wide open. My [[vaginal insert]] jack-hammered my bruised cervical os, my thick rubber [[Anal Plug|anal snake]] gyrated up through my entire colon, and branding jolts raked across my barbed [[nipple plugs]] and enlarged, pierced clitoris.
+Long amber afternoon light stretched across the [[gym]] mirrors as I set one glossy palm on the ballet barre, sweeping my right leg skyward into a soaring arabesque on a single [[Ballet Feet|needle-point tip]]. The second I locked into an impossible relevé, [[Lumina]] threw every device wide open. My [[vaginal insert]] jack-hammered my bruised cervical os, my thick rubber [[Anal Plug|anal snake]] gyrated up through my entire colon, and branding jolts raked across my barbed [[nipple plugs]] and enlarged, pierced clitoris.
 
 *Aaaahh—ghhh—Goddesssaahhhplease—my cervix, it’s too deep—I am my [[Lumina|Goddess]]’s eternal slave, her perfect Bane, her devoted pet—nhh—fhuuh—*
 
@@ -196,7 +196,7 @@ My massive, spread-apart arse cheeks compressed into the padded seat, shoving st
 
 I lifted my sleek, glossy black hands to hover over the keys. And a quiet strangeness hit me. Nearly a full year had passed since anyone played this piano—back when the human woman, [[Alexandra Rose Blackwell|Alexandra Blackwell]], still existed. She felt like some distant, dismantled predecessor now, a stranger who stripped herself down so I could wake up in shiny black latex. Her sheet music sat ready in my memory, sure, yet those fragile human hands were gone. Mine were seamless black mercury packed with enhancement fibres and ultra-fine [[touch sensors]].
 
-Beneath the bench, I aligned my rigid, tapering needle-point legs above the narrow brass pedals—two coin-sized rods poised over polished brass, bracing my knees, hips, and [[Ear Removal|balance systems]] for the dizzying motor and sensory recalibration ahead.
+Beneath the bench, I aligned my rigid, tapering needle-point legs above the narrow brass pedals—two tiny rounded rods poised over polished brass, bracing my knees, hips, and [[Ear Removal|balance systems]] for the dizzying motor and sensory recalibration ahead.
 
 Across the room, [[Lumina]] stretched out on a plush lounge, golden hair spilling over white latex curves. She folded her white-and-gold wings around herself, propping her chin on one gilded wrist while her blazing eyes locked onto me with shameless pride.
 
@@ -220,7 +220,7 @@ So I eased my other fingers onto the keys, summoning a shy, fragile nocturne fro
 
 Three hesitant notes linked up. Then four. My left hand found a timid bass chord, and I moved for the sustain pedal.
 
-Except I had no heels to plant on the floorboards. No ankles to hinge, no arches to flex. Beneath the bench, my legs ended in twin rigid black rods tapering down to coin-sized tips. I had to hoist my entire right leg from my hip and knee, hovering my tiny needle-point straight over the narrow strip of polished brass, and press downward with my thigh.
+Except I had no heels to plant on the floorboards. No ankles to hinge, no arches to flex. Beneath the bench, my legs ended in twin rigid black rods tapering down to tiny rounded-off tips. I had to hoist my entire right leg from my hip and knee, hovering my tiny needle-point straight over the narrow strip of polished brass, and press downward with my thigh.
 
 The second my rod pushed the brass down, my pelvis rocked forward across the padded bench. Outside, my smooth black skin and [[corset armour]] refused to show a single crease or shift. Inside, everything surged at once.
 
@@ -346,7 +346,7 @@ Unprompted, a brand-new melody began stacking itself note by note at the back of
 
 *Da-da-dum, da-da-dum… oh, [[Lumina|Goddess]] will adore this, I have to keep the middle bar—*
 
-Caught up in the cheerful music and my body finally being more used to its absurd nature and having capacity for something else, my strict, robotic needle-point gait loosened, tipping playful on my coin-sized points until my conditioned glide turned into what could be considered the absurd Bane equivalent of an innocent, girlish skip down the hallway.
+Caught up in the cheerful music and my body finally being more used to its absurd nature and having capacity for something else, my strict, robotic gait loosened, tipping playful on my tiny points until my conditioned glide turned into what could be considered the absurd Bane equivalent of an innocent, girlish skip down the hallway.
 
 And inside my fuzzy head it felt so pure, like a beaming child skipping along with a secret gift, except every buoyant hop bounced a hundred and ten kilos of mirror-black fuck-doll through sunlit air. Each light spring off my needle-points jiggled my basketball-sized breasts above my locked thirty-centimetre waist, yanking the metal [[Nipple Plugs|pain plugs]] and barbed rings buried in my swollen nipples until sparks of bright sting shot through my chest. My huge, flared arse cheeks bounced and rolled, and every mute landing knocked my gigantic [[vaginal insert]] harder up against my bruised cervix, tugging my pierced clit while my thick [[anal plug]] jammed deeper into my aching bowels.
 
@@ -369,7 +369,7 @@ Her voice rang bright out loud while her thoughts wrapped close around mine.
 
 *All hundred and ten kilos of my glossy, anonymous latex doll, bouncing past our shrines like a giddy schoolgirl with a secret song stuck in her head?*
 
-My drowsy doll-haze snapped away, sharp individuality clicking back as I killed my stride mid-air and planted both coin-sized needle-points dead on the wood. My [[Ear Removal|balance systems]] locked me upright—zero sway, zero wobble, crisp as an obsidian statue—except inertia pitched everything sealed inside me forward. My thick [[vaginal insert]] lurched into my bruised cervix, yanking my pierced clit with a dizzy flash of sting while my heavy [[anal plug]] rammed my colon. My sealed throat twitched around the rubber bulk of my [[gag]], a reflexive spasm clamping down on the phallus wedged in my gullet as my fake cunt gushed slick beneath my sealed skin.
+My drowsy doll-haze snapped away, sharp individuality clicking back as I killed my stride mid-air and planted both [[Ballet Feet|needle-point feet]] dead on the wood. My [[Ear Removal|balance systems]] locked me upright—zero sway, zero wobble, crisp as an obsidian statue—except inertia pitched everything sealed inside me forward. My thick [[vaginal insert]] lurched into my bruised cervix, yanking my pierced clit with a dizzy flash of sting while my heavy [[anal plug]] rammed my colon. My sealed throat twitched around the rubber bulk of my [[gag]], a reflexive spasm clamping down on the phallus wedged in my gullet as my fake cunt gushed slick beneath my sealed skin.
 
 *M-Mistress! Nnh—[[Lumina|Goddess]], I—I had no idea you were watching—*
 
@@ -421,7 +421,7 @@ Her blazing black-and-gold irises narrowed with teasing glee, kicking my [[Core 
 
 She hijacked my visual cortex mid-thought, slamming a hyperreal vision straight over the corridor.
 
-At once, I stood perched on a conductor's podium inside a packed grand concert hall, hot spotlights drenching my ultra-glossy black skin. An obscene, featureless latex doll with monstrous breasts over a crushed thirty-centimetre waist, massive pushed-apart arse cheeks, and my gold [[Slave Collar|ownership collar]] flashing for every row. Balancing on coin-sized needle-points, waving a baton before a huge human orchestra beneath hundreds of stunned human eyes.
+At once, I stood perched on a conductor's podium inside a packed grand concert hall, hot spotlights drenching my ultra-glossy black skin. An obscene, featureless latex doll with monstrous breasts over a crushed thirty-centimetre waist, massive pushed-apart arse cheeks, and my gold [[Slave Collar|ownership collar]] flashing for every row. Balancing on tiny needle-point tips, waving a baton before a huge human orchestra beneath hundreds of stunned human eyes.
 
 *G-Goddess—NO—!*
 
@@ -596,7 +596,7 @@ My fingers pressed into my slick hip, my [[Submission Mantra|submission prayer]]
 
 By the following afternoon—the morning still filled with intense physical training—our brand-new habit had already taken root.
 
-My [[Ballet Feet|needle-point feet]] met the winding flagstones of the [[flower garden]] without a single sound, coin-sized tips setting down and lifting off in a mute, automatic loop. Above those tapering black rods, my hips rolled in their broad figure-eight swing, hinging my thirty-centimetre corseted waist while my gigantic rubber breasts swayed heavy against my chest and my pushed-apart arse cheeks rolled in a lush, shameless sway. Not a scrap of conscious thought went into navigation—my lidar, sonar, balance sensors, and [[Touch Sensors|sensory mesh]] mapped the lavender borders, mossy kerbs, and stone statues straight into my reprogrammed reflexes, guiding me round every plinth and drooping lily stem on autopilot.
+My [[Ballet Feet|needle-point feet]] met the winding flagstones of the [[flower garden]] without a single sound, those tiny tips setting down and lifting off in a mute, automatic loop. Above those tapering black rods, my hips rolled in their broad figure-eight swing, hinging my thirty-centimetre corseted waist while my gigantic rubber breasts swayed heavy against my chest and my pushed-apart arse cheeks rolled in a lush, shameless sway. Not a scrap of conscious thought went into navigation—my lidar, sonar, balance sensors, and [[Touch Sensors|sensory mesh]] mapped the lavender borders, mossy kerbs, and stone statues straight into my reprogrammed reflexes, guiding me round every plinth and drooping lily stem on autopilot.
 
 Inside my belly, though, every smooth step kept fucking me raw. My [[vaginal insert]] dragged deep along my swollen walls and bumped my sore cervix on the downbeat, its base tugging my pierced, aching clit at the crest of each hip roll, while my thick [[anal plug]] twisted up through my colon in a heavy, grinding screw.
 

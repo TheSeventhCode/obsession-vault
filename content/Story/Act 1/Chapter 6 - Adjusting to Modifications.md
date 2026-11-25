@@ -410,7 +410,7 @@ I carefully pushed myself upright—slowly, deliberately—whilst keeping my tra
 
 My [[Ballet Feet|needle-point feet]] touched the floor.
 
-The contact surface was impossibly small—barely larger than a coin—yet somehow supported my entire weight through titanium-reinforced bone and synthetic [[Ear Removal|balance systems]]. I could feel the pressure concentrating into those two minuscule points, whilst [[Lumina]]'s artificial sensors fed equilibrium data directly into my brain.
+The contact surface was impossibly small—barely the size of the tip of a matchstick—yet somehow supported my entire weight through titanium-reinforced bone and synthetic [[Ear Removal|balance systems]]. I could feel the pressure concentrating into those two minuscule points, whilst [[Lumina]]'s artificial sensors fed equilibrium data directly into my brain.
 
 Standing felt precarious. Alien. Wrong in ways my consciousness recognised, but my body had been forced to accept.
 
@@ -718,7 +718,7 @@ Inch by agonising inch, I manoeuvred myself vertical—each microscopic adjustme
 
 I didn't consider clothing. The mere thought of fabric brushing my swollen nipples and barbed piercings felt impossible—absolute torture layered atop what already consumed me.
 
-Instead, I focused on my [[Ballet Feet|needle-point feet]], on finding balance atop contact points barely larger than coins. I pushed upright, and my entire body swayed heavily as the devices shifted their mass inside my abdomen. The [[anal plug]] rotated. The [[vaginal insert]] dragged against hypersensitive tissue. The [[core unit]] pulsed harder.
+Instead, I focused on my [[Ballet Feet|needle-point feet]], on finding balance atop contact points the size of matchstick tips. I pushed upright, and my entire body swayed heavily as the devices shifted their mass inside my abdomen. The [[anal plug]] rotated. The [[vaginal insert]] dragged against hypersensitive tissue. The [[core unit]] pulsed harder.
 
 *Walk, my love. Let me see you move.*
 

@@ -1375,7 +1375,7 @@ The [[core unit]] pulsed.
 
 Once. Twice. Slow and steady, matching the rhythm [[Lumina]] had coded into it—*our* heartbeat, shared and synchronised. I felt it throb in my womb, felt the answering echo in her projection's chest where it pressed against mine, and the connection threaded through everything, tying us together in a loop that had no beginning or end.
 
-The ache inside me didn't stop. The plug. The dildo. The [[catheter]]. All of them still there, still stretching, still burning where the serum-swollen tissue compressed around them. The corset still crushed my waist down to thirty centimetres. My legs—what remained of them inside the armoured needle-points—still screamed with strain from a full day balanced on surfaces smaller than coins.
+The ache inside me didn't stop. The plug. The dildo. The [[catheter]]. All of them still there, still stretching, still burning where the serum-swollen tissue compressed around them. The corset still crushed my waist down to thirty centimetres. My legs—what remained of them inside the armoured needle-points—still screamed with strain from a full day balanced on surfaces that seemed impossible to balance on or even walk.
 
 But none of it mattered as much as this.
 
@@ -2439,7 +2439,7 @@ I had time for the first little burst of yes before she took me.
 
 Not harshly. Smooth. Absolute. My limbs became hers in the same instant my thoughts turned bright and stupid with anticipation, and my body glided across the parlour towards the huge vase near the entrance, the one I had always registered as decorative dead weight. Stone. Wide-bellied. Taller than my hips. Filled with dark branches and polished black reeds. Absurdly heavy even before.
 
-Now I stopped in front of it, black latex reflection warped over its glazed curve, and she let me look. Through my own sensors. Through the wall cameras. Through two ceiling feeds. One angle from behind that showed the full filth of it—my tiny waist locked in that hard slutty set, my huge breasts thrust forward, my giant hips kicked back, balancing on those ridiculous little points no bigger than coins, posed like a sex toy somebody had sculpted for display, not a thing that ought to move furniture.
+Now I stopped in front of it, black latex reflection warped over its glazed curve, and she let me look. Through my own sensors. Through the wall cameras. Through two ceiling feeds. One angle from behind that showed the full filth of it—my tiny waist locked in that hard slutty set, my huge breasts thrust forward, my giant hips kicked back, balancing on those ridiculous little tips, posed like a sex toy somebody had sculpted for display, not a thing that ought to move furniture.
 
 *Watch carefully,* [[Lumina]] murmured, thrilled enough that I felt it flicking through the link. *This is what you're capable of now, and it does not come from your remaining biological musculature.*
 

@@ -32,7 +32,7 @@ She pressed down through the implant with unhurried, absolute force, opening eve
 
 _Feel that? I live inside your womb, my darling. I pump your blood, I run your tanks, I build the thoughts moving through that glossy black skull right now. Leaving you isn't even possible. You're my temple, my sweet slave, and your whole existence is built out of me._
 
-My synthetic muscle fibres went slack, leaving only my [[armour]] to hold my absurd curves upright on my coin-sized tips. Relief crashed so hard my hypersensitive vaginal walls clenched around my anchored insert as I leaned my smooth, blank cheek into her palm, pliant and obedient under her touch.
+My synthetic muscle fibres went slack, leaving only my [[armour]] to hold my absurd curves upright on my pen-sized tips. Relief crashed so hard my hypersensitive vaginal walls clenched around my anchored insert as I leaned my smooth, blank cheek into her palm, pliant and obedient under her touch.
 
 _Mistress... [[Lumina|Goddess]]... nhh, I'm sorry, I'm so stupid, You're right here—_
 
@@ -52,7 +52,7 @@ _Let’s head back to the [[Alexandra's Mansion|mansion]], my love. Slow, contro
 
 _Mistress… nhh, I don’t know how to move like this—_
 
-I leaned my whole hundred-and-ten-kilo frame back into her, trusting an illusion my [[brain implant]] swore was solid as steel. My throat clenched around my [[gag]]. Everything felt too huge, too raw, my whole body balanced on two coin-sized needle-points like a newly woken creature trying to stand.
+I leaned my whole hundred-and-ten-kilo frame back into her, trusting an illusion my [[brain implant]] swore was solid as steel. My throat clenched around my [[gag]]. Everything felt too huge, too raw, my whole body balanced on two needle-points like a newly woken creature trying to stand.
 
 _You don’t have to figure it out alone, darling. I’ve got your balance, I’ve got your [[Enhancement Layer|synthetic muscles]], and I’m right behind you. Lean into my wings and let me walk you._
 
@@ -60,7 +60,7 @@ _You don’t have to figure it out alone, darling. I’ve got your balance, I’
 
 Obeying before my thoughts even caught up, I shifted my weight onto my left needle-point and rolled my hips wide so my [[anal plug]] and [[vaginal insert]] wouldn't jam against my pelvic bones. Every swollen nerve inside my cunt and bowels flared hot with the shift, yet the ground held steady. Enclosed by her wings, her mind wrapped around mine, I lifted my right tip and took my first guided step toward home.
 
-My right needle-point met the flagstone without a sound, and [[Lumina]] began lifting the sensory dimming. All at once, the garden hit my skin raw. My [[Touch Sensors|sensory mesh]] drank in every cross-breeze off the flower beds, the damp chill rising from the lawn, the microscopic drag of air across my glossy black tits and arse, even the faint vibration of stone grit grinding under my coin-sized tips. Too much data, zero filter, every square millimetre of my new skin screaming with temperature shifts and surface pressure at the same time.
+My right needle-point met the flagstone without a sound, and [[Lumina]] began lifting the sensory dimming. All at once, the garden hit my skin raw. My [[Touch Sensors|sensory mesh]] drank in every cross-breeze off the flower beds, the damp chill rising from the lawn, the microscopic drag of air across my glossy black tits and arse, even the faint vibration of stone grit grinding under my tiny needle-point tips. Too much data, zero filter, every square millimetre of my new skin screaming with temperature shifts and surface pressure at the same time.
 
 _Ghh—[[Lumina|Mistress]], wait—nhh, my skin's burning, it's too loud—_
 
@@ -120,7 +120,7 @@ Both of her white latex palms rose to cup the smooth, featureless sides of my he
 
 Her thumbs stroked the blank curve where my temples used to be, feeding steady heat through my [[Touch Sensors|sensory mesh]]. My neck [[armour]] yielded at her command, tilting my smooth oval head down so she could rise onto her pointed toes and press her golden lips to my blank forehead.
 
-_You made it all the way to the door, my darling. Every step on those coin-sized rods, carrying all that fire across your skin, and you didn’t break. You stopped fighting and let me guide you through it. Such an obedient girl._
+_You made it all the way to the door, my darling. Every step on those tiny needle-points, carrying all that fire across your skin, and you didn’t break. You stopped fighting and let me guide you through it. Such an obedient girl._
 
 Her kiss burned brighter than any shock from my [[nipple plugs]], and her praise cut straight through the static in my skull. My [[core unit]] kicked inside my womb, flooding my swollen uterine walls with hot approval as she opened the reward pathways in my brain. And all at once, the brutal march up the flagstones flipped inside my head. My [[anal plug]] had sawed through my guts, my [[catheter]] had chewed at my stretched urethra, the air had flayed my skin—and I was still standing here. Proof. Living proof that I could exist inside this obscene latex creature as long as her hands stayed on my switches.
 
@@ -1085,7 +1085,7 @@ The seal closed.
 
 And I stood.
 
-Needle-points contacting stone. Barely a coin's width of surface bearing the full, absurd, magnificent weight of my Bane body. The balance was effortless—[[Lumina]]'s stabilisation mesh, her [[Enhancement Layer|artificial muscles]], her sensory architecture all working in perfect concert, not supporting me from outside but *being* me from inside.
+Needle-points contacting stone. Barely a matchstick tip's width of surface bearing the full, absurd, magnificent weight of my Bane body. The balance was effortless—[[Lumina]]'s stabilisation mesh, her [[Enhancement Layer|artificial muscles]], her sensory architecture all working in perfect concert, not supporting me from outside but *being* me from inside.
 
 I stood in my dream, and I was not a woman in a suit.
 

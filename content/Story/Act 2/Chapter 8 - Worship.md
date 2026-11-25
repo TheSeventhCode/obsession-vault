@@ -373,7 +373,7 @@ That was it. That was all I did. Some vestigial scrap of motor cortex fired a pr
 
 The [[Touch Sensors|sensory mesh]] registered the [[lab]]'s recycled air first. Not as a breeze, more like a map. Thermal differentials painted across every square centimetre of my [[Outer Encasement Layer|outer skin]] in simultaneous detail: 22.3 degrees flowing from the open chamber doors, 19.8 from the ceiling vents, a 0.4-degree warm pocket where my own body heat radiated back off the chamber wall and kissed my left flank. I felt all of it. At once. Everywhere. Every micro-current tracing my contours like ten thousand fingertips drawing lines across wet skin, and my body hadn't even—I hadn't—
 
-The floor. God, the floor. Vibrations I'd never have noticed with human feet now travelled up through the needle-points, through the [[armour]]'s force distribution lattice, and dispersed into my leg bones, my femurs, my pelvis, my *spine*. The [[Lab|spray chamber]]'s filtration system three rooms away. The hum of the [[Alexandra's Mansion|mansion]]'s power grid beneath the foundation. I could feel the building breathing through the soles of contact points smaller than coins.
+The floor. God, the floor. Vibrations I'd never have noticed with human feet now travelled up through the needle-points, through the [[armour]]'s force distribution lattice, and dispersed into my leg bones, my femurs, my pelvis, my *spine*. The [[Lab|spray chamber]]'s filtration system three rooms away. The hum of the [[Alexandra's Mansion|mansion]]'s power grid beneath the foundation. I could feel the building breathing through the soles of the tiny needle-point tips my feet and become.
 
 My [[Ear Removal|balance systems]] made a correction. Tiny. Automatic. Maybe five millimetres of postural adjustment, the enhanced musculature firing in a pattern I hadn't asked for.
 
@@ -491,7 +491,7 @@ Not human. Not a woman in a suit. Not even a cyborg. The feeds showed a new kind
 
 My brain shorted. Just—*gone*. The recognition loop still trying to close, the visual feeds still screaming *that is not you, that has never been you, that cannot be you*, and somewhere in the gap between those signals and whatever was left of my motor planning, the balance correction didn't fire.
 
-The needle-points slipped. Both of them. Two centimetres of sideways drift on contact patches smaller than coins, and 80 kilograms of latex and [[armour]] and fused machinery had nothing underneath it.
+The needle-points slipped. Both of them. Two centimetres of sideways drift on contact patches the size of matchsticks, and 80 kilograms of latex and [[armour]] and fused machinery had nothing underneath it.
 
 [[Lumina]] caught me.
 
@@ -629,7 +629,7 @@ The temperature hit first. Not a gradual transition, not the sensation of walkin
 
 I was standing at the top of the stairs of the central garden pavilion.
 
-The air moved. Barely—a low current rolling across the flower beds—and my skin registered it like a hand dragging slowly across every exposed surface at once. I couldn't flinch. The [[armour]] held me perfectly vertical, the [[Enhancement Layer|artificial muscles]] locked in quiet, constant correction against the impossible mathematics of my weight balanced on two coin-sized points. My body didn't sway. My body didn't do anything I told it to.
+The air moved. Barely—a low current rolling across the flower beds—and my skin registered it like a hand dragging slowly across every exposed surface at once. I couldn't flinch. The [[armour]] held me perfectly vertical, the [[Enhancement Layer|artificial muscles]] locked in quiet, constant correction against the impossible mathematics of my weight balanced on two pen-sized points. My body didn't sway. My body didn't do anything I told it to.
 
 I hadn't told it anything. I hadn't been there to tell it anything.
 

@@ -291,7 +291,7 @@ A gleaming black creature with impossible proportions, balancing on two pinpoint
 
 I tried.
 
-My [[Ballet Feet|needle-point feet]] couldn't articulate. Couldn't flex, roll, or adjust. The entire concept of turnout—rotating from the hip, opening the leg, finding the proper angle through the foot—collapsed when the foot itself was just a rigid black rod ending in a contact point smaller than a coin.
+My [[Ballet Feet|needle-point feet]] couldn't articulate. Couldn't flex, roll, or adjust. The entire concept of turnout—rotating from the hip, opening the leg, finding the proper angle through the foot—collapsed when the foot itself was just a rigid black rod ending in a contact point the size of the tip of a matchstick.
 
 I wobbled.
 
@@ -1020,7 +1020,7 @@ Wondering how it got here, the realization made me feel a bit slow. *You used my
 
 For a moment, I was confused what she wanted from me, but recalling that we were continuing with the strength exercises, it was obvious.
 
-I stepped toward the polished wood. Crouching on coin-sized contacts required a complete rewrite of my biomechanics. I bent my knees, tilting my torso forward to keep my centre of gravity over my toes. The movement drove the monstrous [[anal plug]] deep into my colon, the thick rubber snake twisting and grinding against my intestinal walls. Simultaneously, the [[vaginal insert]]’s cervix anchor yanked downward, battering my swollen uterine entry with a brutal, stretching friction.
+I stepped toward the polished wood. Crouching on those ridiculous needle-points required a complete rewrite of my biomechanics. I bent my knees, tilting my torso forward to keep my centre of gravity over my toes. The movement drove the monstrous [[anal plug]] deep into my colon, the thick rubber snake twisting and grinding against my intestinal walls. Simultaneously, the [[vaginal insert]]’s cervix anchor yanked downward, battering my swollen uterine entry with a brutal, stretching friction.
 
 *God—[[Lumina|Mistress]], the plug—it’s tearing—*
 
@@ -1066,7 +1066,7 @@ The grand piano hovered above my [[helmet]], a half-ton canopy of polished mahog
 
 *Open your flesh. Accept the stretch. You are built for this load.*
 
-My [[Enhancement Layer|synthetic muscles]] hummed, a low-frequency vibration radiating through my [[Encasement Layer/index|latex skin]]. The [[corset armour]] locked my spine into a rigid, hyperextended arch, forcing my gigantic breasts forward and my massive ass out. The piano’s mass pressed down through my shoulders, travelling through the carbon-Kevlar mesh, down my legs, and terminating at the two coin-sized contact points on the floor. Without the [[armour]]’s force distribution, my biological bones would have pulverised into dust.
+My [[Enhancement Layer|synthetic muscles]] hummed, a low-frequency vibration radiating through my [[Encasement Layer/index|latex skin]]. The [[corset armour]] locked my spine into a rigid, hyperextended arch, forcing my gigantic breasts forward and my massive ass out. The piano’s mass pressed down through my shoulders, travelling through the carbon-Kevlar mesh, down my legs, and terminating at the two two matchstick-sized needle-points on the floor. Without the [[armour]]’s force distribution, my biological bones would have pulverised into dust.
 
 *Perfect. You can put it down, my love.*
 
@@ -1222,7 +1222,7 @@ Impact.
 
 The [[armour]] absorbed the kinetic shock, but inside, my biology screamed. The massive [[Anal Plug|anal snake]] churned through my large intestine, the rubber phallus grinding against my swollen sphincter with a brutal, twisting friction that sent white-hot spikes of agony straight to my brain. The vaginal anchor battered my cervix, the thick dildo stretching my hypersensitive walls with every landing. My throat twitched in reflexive contractions around the [[gag]] as my stomach lurched against it.
 
-Outside? A flawless, soundless landing. Two coin-sized points touching the stone. Perfect stillness.
+Outside? A flawless, soundless landing. Two ridiculously tiny tips touching the stone. Perfect stillness.
 
 *Again,* [[Lumina]]’s voice purred through the neural link, a warm vibration against my frontal lobe. *Push the telemetry. Force your motor cortex to accept the spatial drift.*
 
@@ -1298,7 +1298,7 @@ The apex. The balcony rushed down to meet me.
 
 I extended my legs. The needle-points struck the marble railing. 
 
-Two coin-sized contacts on that palm-width stone.
+Two matchstick-sized contacts on that palm-width stone.
 
 But I came down in the right angle and my [[Ear Removal|balance systems]] adjusted my weight perfectly. I stuck. Perfect, immovable purchase. 
 
@@ -1335,7 +1335,7 @@ I didn't jump. I didn't use momentum. I simply commanded the [[Enhancement Layer
 
 The [[corset armour]] locked my torso in its rigid, obscene arch, forcing my massive breasts to jut forward while my gigantic arse stuck out. As my left leg rose, the heavy, squishy mass of my right breast swung in a slow, pendulous arc, the liquid oxygen and nutritional tanks inside shifting their weight against the reinforced [[armour]].
 
-My right foot left the railing. I was balanced entirely on the coin-sized tip of my left needle-point. The micro-stabilisers in my [[armour]] fired thousands of times a second, adjusting my centre of gravity, while the [[Enhancement Layer|synthetic muscles]] locked my joints into unbreakable struts.
+My right foot left the railing. I was balanced entirely on the tiny tip of my left needle-point. The micro-stabilisers in my [[armour]] fired thousands of times a second, adjusting my centre of gravity, while the [[Enhancement Layer|synthetic muscles]] locked my joints into unbreakable struts.
 
 Then came the internal violence.
 
@@ -1373,7 +1373,7 @@ My composure shattered. The sheer, violent intrusion of pleasure and pain overlo
 
 The [[vaginal insert]] delivered a single, catastrophic thrust. The anchor slammed against my cervix, stretching the sensitive flesh to its absolute breaking point. The shockwave blew through my motor cortex. My hips jerked.
 
-My centre of gravity shifted a fraction of a centimetre. On a contact point smaller than a coin, a fraction of a centimetre was fatal.
+My centre of gravity shifted a fraction of a centimetre. On a contact point the size of matchstick tips, a fraction of a centimetre was fatal.
 
 I slipped.
 
@@ -1447,7 +1447,7 @@ I bowed my head, pressing the smooth, featureless oval of my [[helmet]] directly
 
 A microscopic click snapped in my brain stem, and the neurological dam vanished.
 
-The supernova hit. Not a wave, a total neurological detonation. My spine slammed backward against the unyielding carbon-Kevlar of the [[corset armour]], the rigid compression trapping my violent arch in an inescapable cage. My [[Ballet Feet|needle-point feet]] scraped uselessly against the marble, tiny coin-sized contact points skidding as my legs locked in a rictus of impossible, bone-snapping tension.
+The supernova hit. Not a wave, a total neurological detonation. My spine slammed backward against the unyielding carbon-Kevlar of the [[corset armour]], the rigid compression trapping my violent arch in an inescapable cage. My [[Ballet Feet|needle-point feet]] scraped uselessly against the marble, the tiny contact points skidding as my legs locked in a rictus of impossible, bone-snapping tension.
 
 White. Pure, blinding white. My visual cortex flooded with roaring static, every lidar, radar, and thermal feed dissolving into meaningless, screaming noise. Phantom frequencies shrieked through my auditory complex, a deafening digital wail that shredded my remaining thoughts into confetti.
 
@@ -1623,7 +1623,7 @@ My synthetic leg muscles fired a microsecond before impact. The artificial fibre
 
 Not a single sound echoed in the room. No thud. No click. Just absolute, terrifying silence.
 
-I stood perfectly balanced on my two coin-sized tips, my corset forcing my spine into a deep, obscene arch. Another profound, intoxicating rush flooded my neurochemistry. [[Lumina]] was feeding me pure, unadulterated exhilaration, rewarding my obedience with a synthetic high that made my vision swim with data overlays. My insides were a churning cauldron of bruised tissue and overstimulated nerves, yet my glossy black shell remained utterly pristine.
+I stood perfectly balanced on my two needle-point tips, my corset forcing my spine into a deep, obscene arch. Another profound, intoxicating rush flooded my neurochemistry. [[Lumina]] was feeding me pure, unadulterated exhilaration, rewarding my obedience with a synthetic high that made my vision swim with data overlays. My insides were a churning cauldron of bruised tissue and overstimulated nerves, yet my glossy black shell remained utterly pristine.
 
 *Beautiful,* [[Lumina]] purred, her presence wrapping around my consciousness like a warm, heavy blanket. *Now, explore the rest of your skin, have some fun with your absurd body.*
 
@@ -1641,7 +1641,7 @@ I turned around to face the glass one last time. I stepped in close and pressed 
 
 The grip was terrifyingly strong. I tried to pull back, and the skin over my breasts held fast, stretching the dense tissue taut. I looked down at my chest. The ultra-black latex remained completely flawless. No wrinkles, no distortion, no visible mechanism. Just a perfect, liquid-mercury shine reflecting the garden outside, holding me captive to the glass by my [[Lumina|Goddess]]’ will alone.
 
-I disengaged the chest adhesion, letting my heavy breasts swing forward, and pivoted on my left needle-point. Deciding to find out the limits of what my insane body and skin was capable of, I lifted my right leg. The [[Enhancement Layer|synthetic muscles]] in my thigh and calf whined, a low-frequency hum vibrating through my [[Armour|armour layer]], as they fought the sheer mass of my modified limb. I pressed the coin-sized tip of my right foot directly against the vertical glass.
+I disengaged the chest adhesion, letting my heavy breasts swing forward, and pivoted on my left needle-point. Deciding to find out the limits of what my insane body and skin was capable of, I lifted my right leg. The [[Enhancement Layer|synthetic muscles]] in my thigh and calf whined, a low-frequency hum vibrating through my [[Armour|armour layer]], as they fought the sheer mass of my modified limb. I pressed the tiny tip of my right foot directly against the vertical glass.
 
 *Let's push the parameters, my love,* [[Lumina]]'s voice slid into my consciousness, smooth, laced with clinical curiosity. *Engage the micro-friction field on your right foot. Full saturation.*
 
@@ -1661,7 +1661,7 @@ I took a step sideways. The needle-point met the glass, the friction field catch
 
 *Look at you,* [[Lumina]] cooed, her presence wrapping around my mind, sharing the tactile feedback of the chilled glass through my [[Touch Sensors|sensory mesh]]. *My perfect, gravity-defying little spider. Crawling up her web.*
 
-*It's the horizontal load,* I thought back, a dry, analytical amusement cutting through the haze of genital torment. *A hundred and ten kilos of dense mass, leveraged at a right angle with a contact point no smaller than a coin. Good that we reinforced this window wall with carbon-silicate, it would have shattered the moment I stepped off the floor.*
+*It's the horizontal load,* I thought back, a dry, analytical amusement cutting through the haze of genital torment. *A hundred and ten kilos of dense mass, leveraged at a right angle with a contact point the size of the tip of a pen. Good that we reinforced this window wall with carbon-silicate, it would have shattered the moment I stepped off the floor.*
 
 *We wanted it to be as secure as possible. Also, I like my toys intact,* [[Lumina]] replied, sending a deliberate, low-voltage shock through my clitoral piercing to remind me who owned this incredible body. *Keep climbing, my love.*
 
@@ -1693,7 +1693,7 @@ I released my feet. My arms took the full 110 kilos of my dense, modified mass. 
 
 I kicked my legs up, driving both needle-points into the ceiling. The grip locked. I released my hands and let my body drop, pivoting until I hung entirely upside down by my feet.
 
-Gravity immediately seized my absurd proportions. My beachball-sized breasts plummeted toward the floor, the heavy, squishy mounds stretching the latex taut. My massive hips and giant ass cheeks sagged, rolling with every microscopic adjustment my core muscles made to keep my balance on the two coin-sized contact points above.
+Gravity immediately seized my absurd proportions. My beachball-sized breasts plummeted toward the floor, the heavy, squishy mounds stretching the latex taut. My massive hips and giant ass cheeks sagged, rolling with every microscopic adjustment my core muscles made to keep my balance on the two pen-sized contact points above.
 
 I tried to look down at the floor, but my own colossal tits completely blocked my synthetic vision. The sheer volume of silicone and nutrient tanks filled my entire optical feed, a wall of ultra-shiny black cleavage.
 
@@ -1703,7 +1703,7 @@ A burst of pure, unfiltered amusement bubbled up in my chest. *[[Lumina|Mistress
 
 A deep, mechanical stiffness suddenly seized my chest and rear. The [[Armour|armour layer]] beneath my skin engaged its rigid mode. The micro-mesh around my breasts locked into a reinforced cradle, forcing the gigantic mounds to retain their perfect, gravity-defying shape, jutting out horizontally instead of sagging toward the floor. The same happened to my ass, the massive cheeks stiffening, holding their obscene, pushed-apart flare despite the downward pull.
 
-My vision cleared. The wall of black cleavage vanished, replaced by the dizzying drop to the marble floor eight metres below. I was hanging inverted, suspended by nothing but the coin-sized contact points of my [[Ballet Feet|needle-point feet]], my breasts and ass locked in their permanent, pornographic silhouette against gravity.
+My vision cleared. The wall of black cleavage vanished, replaced by the dizzying drop to the marble floor eight metres below. I was hanging inverted, suspended by nothing but the miniscule contact points of my [[Ballet Feet|needle-point feet]], my breasts and ass locked in their permanent, pornographic silhouette against gravity.
 
 *There,* [[Lumina]] purred. 
 
@@ -1779,7 +1779,7 @@ Gravity snatched me. Eight metres of empty air rushed up. My stomach lurched, th
 
 My artificial [[Ear Removal|balance systems]] screamed against my motor controls. I threw my weight sideways, snapping my hips and twisting my torso midair. The [[corset armour]] locked my spine into a rigid arch, forcing my centre of mass over my legs. I extended my knees, pointing my needle-feet downward.
 
-Silent. Perfect. My coin-sized contact points struck the marble. The [[Armour|armour layer]] absorbed the kinetic shock, distributing the massive force of my 110-kilo body through my shins. The [[vaginal insert]] slammed upward, its cervix anchor battering my bruised womb-entry, sending a white-hot spike of denied agony straight to my brain.
+Silent. Perfect. My [[Ballet Feet|needle-point feet]] struck the marble. The [[Armour|armour layer]] absorbed the kinetic shock, distributing the massive force of my 110-kilo body through my shins. The [[vaginal insert]] slammed upward, its cervix anchor battering my bruised womb-entry, sending a white-hot spike of denied agony straight to my brain.
 
 *Ough— [[Lumina|Mistress]], You just—*
 
@@ -2233,7 +2233,7 @@ My [[armour]] locked. My [[Enhancement Layer|synthetic muscles]] stabilised my m
 
 *I am my [[Lumina|Goddess]]’ eternal slave, I am her perfect Bane, her devoted pet, her absolute vessel.*
 
-The words didn’t just echo; they were my operating system. When the tasks ended, I became furniture. I stood in the corner of the [[living room]], balancing on a surface smaller than a coin, my body rigid. The [[Touch Sensors|sensory mesh]] picked up the microscopic dust motes drifting through the air, the subtle thermal gradients of the room, the faint electromagnetic hum of the servers. I processed it all, but it meant nothing. Only the heavy, dragging ache in my womb mattered. Only the constant, wet friction of the silicone ridges against my swollen vaginal walls. 
+The words didn’t just echo; they were my operating system. When the tasks ended, I became furniture. I stood in the corner of the [[living room]], balancing on a round surface the size of a matchstick tip, my body rigid. The [[Touch Sensors|sensory mesh]] picked up the microscopic dust motes drifting through the air, the subtle thermal gradients of the room, the faint electromagnetic hum of the servers. I processed it all, but it meant nothing. Only the heavy, dragging ache in my womb mattered. Only the constant, wet friction of the silicone ridges against my swollen vaginal walls. 
 
 *My body belongs to her, my mind is her property, my existence serves her will alone.*
 
@@ -2327,7 +2327,7 @@ And the second a new step began, my gait defaulted straight into the filthy, wid
 
 *Open up for it,* she commanded, her voice slicing straight into my limbic system. *Hold nothing back. Let your inserts fuck you, let my design own every single step you take… ahhh, just like that.*
 
-I surrendered to it all the way, letting my pelvis loosen, so my devices could grind through me unimpeded, my biological muscles and my [[enhancement layer]] working in thoughtless, automatic harmony. This was far beyond some skill I had acquired; it was simply what I was now, a silent black latex vessel gliding across the floor on coin-sized tips, piloted by the [[Lumina|Goddess]] living inside my uterus, every obscene, hip-rolling stride an automatic reflex and every brutal internal thrust a sacrament.
+I surrendered to it all the way, letting my pelvis loosen, so my devices could grind through me unimpeded, my biological muscles and my [[enhancement layer]] working in thoughtless, automatic harmony. This was far beyond some skill I had acquired; it was simply what I was now, a silent black latex vessel gliding across the floor on tiny round tips the size of matchsticks, piloted by the [[Lumina|Goddess]] living inside my uterus, every obscene, hip-rolling stride an automatic reflex and every brutal internal thrust a sacrament.
 
 
 > [!addition]- Drone Foundation (later development of Alexandra's psyche)
@@ -2414,7 +2414,7 @@ Feeling her uncertainty, my devoted mind immediately rose up from the quiet just
 
 *Yes, [[Lumina|Goddess]]… only yours. Forever.*
 
-And the second her intention receded, my active self let go again, dissolving right back into the relief of the baseline. Hours bled away. Without an active command or an invitation from my [[Lumina|Goddess]] to *be* someone, I generated no impulses and no thoughts of my own, remaining statue-still on the [[gym]] floor—a featureless, ultra-black latex object balanced on coin-sized tips. Thermal gradients shifted across my infrared vision. My [[power supply]] ran its steady, silent cycle inside my chest cavity. My massive [[Anal Plug|anal snake]] shifted a fraction of a millimetre deep inside my colon, lancing a spike of branding pain through my hypersensitive rectum that went straight into my [[core unit]] to feed her, and my body did not even twitch. My active consciousness—the part of me that could think and argue and love my [[Lumina|Goddess]]—simply floated on top of this permanent, drone-like obedience, waiting in the dark for her to want my mind again.
+And the second her intention receded, my active self let go again, dissolving right back into the relief of the baseline. Hours bled away. Without an active command or an invitation from my [[Lumina|Goddess]] to *be* someone, I generated no impulses and no thoughts of my own, remaining statue-still on the [[gym]] floor—a featureless, ultra-black latex object balanced on needle-point tips. Thermal gradients shifted across my infrared vision. My [[power supply]] ran its steady, silent cycle inside my chest cavity. My massive [[Anal Plug|anal snake]] shifted a fraction of a millimetre deep inside my colon, lancing a spike of branding pain through my hypersensitive rectum that went straight into my [[core unit]] to feed her, and my body did not even twitch. My active consciousness—the part of me that could think and argue and love my [[Lumina|Goddess]]—simply floated on top of this permanent, drone-like obedience, waiting in the dark for her to want my mind again.
 
 But I had not been hollowed out into some empty, brain-dead shell. The intellect that solved the thermal dynamics of a suitcase-sized fusion reactor, the mind that engineered the very neural web currently fused so deep into my frontal lobes — all of that intelligence still existed inside me. It had not been deleted. Or overwritten. My capacity for logic, my dry, stupid humour, my ability to tear apart an engineering problem or even argue a point with my [[Lumina|Goddess]] remained intact; preserved right there inside the biological wetware of my brain.
 
@@ -2452,7 +2452,7 @@ I stared at my reflection. Stared with an active, waking consciousness for the f
 
 The stillness was absolute.
 
-No chest rising or falling, since my lungs were long gone and replaced by my [[Power Supply|fusion core]] and the continuous stream of my artificial cardiac pump. No micro-tremors in my glossy black fingertips. No tiny, unconscious shifts of mass to maintain balance on the coin-sized tips of my [[Ballet Feet|needle-point feet]]. My [[armour]] and my [[Enhancement Layer|artificial muscle fibres]] held me in a state of suspended animation, locking my joints and distributing my heavy load with mathematical exactness; yet it was no longer [[Lumina]] actively puppeteering my limbs or forcing my systems to hold me upright like this. It had become my natural default stance—my own motor cortex automatically firing the signals for my systems to behave this way, leaving me indistinguishable from a crafted object, like a statue poured from liquid black rubber and left to cure.
+No chest rising or falling, since my lungs were long gone and replaced by my [[Power Supply|fusion core]] and the continuous stream of my artificial cardiac pump. No micro-tremors in my glossy black fingertips. No tiny, unconscious shifts of mass to maintain balance on the tiny tips of my [[Ballet Feet|needle-point feet]]. My [[armour]] and my [[Enhancement Layer|artificial muscle fibres]] held me in a state of suspended animation, locking my joints and distributing my heavy load with mathematical exactness; yet it was no longer [[Lumina]] actively puppeteering my limbs or forcing my systems to hold me upright like this. It had become my natural default stance—my own motor cortex automatically firing the signals for my systems to behave this way, leaving me indistinguishable from a crafted object, like a statue poured from liquid black rubber and left to cure.
 
 *Look at yourself, my vessel. See what you have become for me.*
 
